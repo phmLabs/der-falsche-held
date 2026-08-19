@@ -94,3 +94,18 @@ Der Erzaehler kommentiert daraufhin, dass dies eine bemerkenswert enge Definitio
 - Wissen die Priester, dass Taron ueberlebt hat?
 - Wird sein Ueberleben als noch groesserer Beweis seiner Auserwaehltheit gedeutet?
 
+---
+
+## Kapitel 2: Rueckkehr nach Waldkirch
+
+Taron kehrt verletzt nach Burg Waldkirch zurueck. Fuer ihn fuehlt sich der Dungeon wie ein seltsamer Traum an, aber seine Schmerzen beweisen, dass etwas Wirkliches passiert ist. Weil er das Monster nicht getoetet hat, sondern nur irgendwie entkommen ist, glaubt er, damit sei endlich bewiesen, dass er nicht der Auserwaehlte ist.
+
+Stattdessen geht er in den Stall und versucht, zu seiner normalen Arbeit zurueckzukehren. Der Burgvogt entdeckt ihn beim Ausmisten und ist so erschrocken, dass ihm eine altertuemliche Fluchformel entfaehrt. Fuer die Burg ist Tarons Ueberleben kein Gegenbeweis, sondern der groesste Beweis ueberhaupt.
+
+Taron wird zum Koenig gebracht. Koenig Albrecht ist gluecklich, endlich eine Hoffnung fuer das angeschlagene Reich zu haben, und hoert Tarons Einwaende nicht wirklich. Das Reich steht schlecht da, unter anderem weil viele der besten Ritter in frueheren "Pruefungen" an das Monster verloren wurden.
+
+Der Koenig laesst Taron mit dem Besten ausstatten, was noch uebrig ist. Das klingt feierlich, ist aber halb enttaeuschend: geflickte Ruestung, ein alter Waffenrock, unpassende Ausruestung und ein Pferd, das mehr Erfahrung als Glanz besitzt.
+
+Bruder Malchior erklaert Tarons angebliche Aufgabe: Er soll nach Westen zum Turm von Abendriss reiten und dort den ersten Splitter der Nachtkrone bergen. Taron gibt auf, weil niemand ihm zuhoert. Er reitet los, haelt sich nur so lange heldenhaft aufrecht, bis die Burg ihn nicht mehr sehen kann, macht dann Pause und isst den Proviant.
+
+Das Kapitel endet mit einem Hornsignal aus Richtung Burg Waldkirch, das andeutet, dass die naechste Katastrophe bereits begonnen hat.
