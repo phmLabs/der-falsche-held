@@ -656,21 +656,21 @@ Taron fuhr hoch, bereute es sofort und sank stöhnend zurück.
 
 „Du.“
 
-Marta beugte sich vor. „Ich?“
+Marta beugte sich vor. „Meinst du mich?“
 
 „Nicht du.“
 
-„Ach so. Die Zimmerdecke?“
+„Ach so.“ Marta folgte seinem Blick zur Decke. „Da oben ist nur der Balken. Der knarrt manchmal, aber reden tut er nicht.“
 
 „Niemand.“
 
-„Du solltest nicht mit niemandem streiten. Das macht müde.“
+„Mit niemandem streiten ist schlecht für die Brust“, sagte Marta besorgt. „Beim Atmen meine ich.“
 
 „Sie hat recht“, sagte der Erzähler.
 
 „Halt den Mund.“
 
-Marta nickte. „Ja, Ruhe ist gut.“ Taron starrte an die Decke. „Warst du das?“
+Marta nickte, offenbar erleichtert, dass wenigstens dieser Teil verständlich war. „Ruhe ist gut. Und Suppe. Beides zusammen ist meistens noch besser.“ Taron starrte an die Decke. „Warst du das?“
 
 „War ich was?“
 
@@ -710,25 +710,25 @@ Taron schloss die Augen. Er war zu müde zum Streiten. Das war neu. Normalerweis
 
 Marta stellte die Suppe zurück in seine Hände.
 
-„Iss“, sagte sie. „Danach schläfst du wieder. Der Mann sagte, du würdest zu früh aufstehen wollen.“
+„Iss erst einmal“, sagte sie. „Danach schläfst du wieder. Der Mann meinte, du würdest bestimmt zu früh aufstehen wollen. Er hat dabei geguckt, als hätte er das schon erlebt, obwohl er dich ja getragen hat und nicht du ihn.“
 
 „Hat er das.“
 
-„Ja. Er sagte: Wenn er fragt, ob er gehen kann, sagt Ihr nein. Wenn er trotzdem geht, gebt ihm den alten Mantel meines verstorbenen Mannes, weil sein eigener nach Monster riecht.“
+„Ja. Er sagte, wenn du fragst, ob du gehen darfst, soll ich nein sagen. Und wenn du dann trotzdem gehst, soll ich dir den alten Mantel meines Mannes geben. Also meines verstorbenen Mannes. Nicht, dass du denkst, ich verleihe hier einfach lebende Männerkleidung.“
 
 Taron sah zum Stuhl neben dem Herd. Dort hing ein brauner Mantel. Geflickt, abgetragen, aber warm.
 
 „Er hat das gesagt?“
 
-„Wörtlich.“
+„So ungefähr. Ich hab mir nicht alles gemerkt. Er redete sehr sauber, aber auch viel zu glatt. Da rutscht einem manches aus dem Kopf.“
 
 „Und du findest das nicht seltsam?“
 
-Marta überlegte. „Doch.“
+Marta überlegte lange genug, dass Taron kurz fürchtete, sie hätte die Frage unterwegs verloren. „Doch. Schon.“
 
 „Aber?“
 
-„Ein Goldstück ist sehr rund.“
+„Aber er hat vorher bezahlt. Und du hast so jämmerlich ausgesehen. Da dachte ich, wenn das eine Falle ist, ist sie wenigstens eine, in der jemand Suppe bekommt.“
 
 Gegen diese Philosophie war schwer anzukommen.
 
@@ -742,7 +742,7 @@ Taron blieb bis zum nächsten Morgen. Nicht freiwillig. Sein Körper hatte sich 
 
 „Das ist wichtig.“
 
-„Brot auch.“
+Marta sah auf das Brot in ihrer Hand, dann auf ihn. „Wichtige Dinge laufen nicht weg, wenn man vorher kaut. Meistens jedenfalls.“
 
 Sie hatte eine Art, einfache Sätze zu sagen, die jede Diskussion wie übertriebene Schauspielerei wirken ließ.
 
@@ -752,15 +752,15 @@ Das war verdächtig. Taron aß Brot, trank dünnen Kräutertee und versuchte, ni
 
 „Sie werden denken, ich bin tot“, sagte er.
 
-Marta stopfte Kräuter in einen kleinen Beutel. „Wer?“
+Marta stopfte Kräuter in einen kleinen Beutel und zog die Schnur mit den Zähnen fest. „Wer denn alles?“
 
 „Alle.“
 
-„Das ist aber unhöflich.“
+„Das ist traurig“, sagte Marta. „Und ein bisschen voreilig.“
 
 „In diesem Fall ist es sogar wahrscheinlich.“
 
-„Dann kannst du sie ja überraschen.“
+„Dann geh langsam“, sagte Marta. „Wenn man Leute überrascht, soll man nicht gleich wieder umfallen. Das nimmt dem Ganzen die Freude.“
 
 Taron sah sie an.
 
@@ -768,11 +768,11 @@ Das war das Problem mit Marta. Manchmal sagte sie Dinge, die so schlicht waren, 
 
 Am späten Vormittag stand Taron auf. Es war kein würdevoller Vorgang. Er musste sich am Bettpfosten festhalten, an der Wand, an einem Stuhl und schließlich kurz an Marta, die zufrieden nickte, als hätte er gerade eine militärische Prüfung bestanden.
 
-„Sehr gut“, sagte sie. „Du bist fast aufrecht.“
+„Sehr gut“, sagte sie. „Das sieht schon beinahe nach Stehen aus.“
 
 „Fast ist im Moment großzügig.“
 
-„Großzügig ist gut.“
+Marta lächelte. „Dann nehmen wir großzügig. Kleinlich hilft Kranken selten.“
 
 Sie gab ihm den Mantel ihres verstorbenen Mannes. Er roch nach Rauch, Wolle und ein wenig nach Zwiebeln. Außerdem gab sie ihm ein Stück Brot, einen Apfel, den einzelnen geretteten Stiefel und einen zweiten, der nicht passte.
 
@@ -780,7 +780,7 @@ Sie gab ihm den Mantel ihres verstorbenen Mannes. Er roch nach Rauch, Wolle und 
 
 „Ich merke es.“
 
-„Dann hast du Platz für Schwellung.“
+„Dann drückt er nicht so. Mein Mann hatte breite Füße. Also, beide. Nicht nur den einen.“
 
 „Das ist sehr vorausschauend.“
 
@@ -808,19 +808,19 @@ Draußen lag der Wald hinter Burg Waldkirch. Die Bäume waren nass vom Morgenneb
 
 „Genau der.“
 
-„Was soll ich dann tun?“
+„Was soll ich dann machen?“
 
 Taron wollte sagen: Lauf. Er wollte sagen: Frag ihn, was er ist. Er wollte sagen: Sag ihm, er soll mich in Ruhe lassen.
 
 Stattdessen sagte er: „Nimm kein zweites Goldstück.“
 
-Marta dachte darüber nach.
+Marta dachte darüber nach und sah dabei so ernst aus, als hätte Taron ihr gerade eine ganze Scheune zur Aufsicht übergeben.
 
-„Auch nicht, wenn es sehr rund ist?“
+„Auch nicht, wenn er freundlich fragt?“
 
 „Besonders dann nicht.“
 
-Sie nickte ernst. „Ich versuche es.“
+Sie nickte ernst. „Dann mache ich die Tür nicht gleich auf. Erst frage ich, wer da ist. Und dann vielleicht noch einmal, falls er zu vornehm antwortet.“
 
 Das war vermutlich das Beste, was man von der Welt verlangen konnte.
 

@@ -97,7 +97,7 @@ Marta Grubenlicht ist eine warmherzige, etwas dicke Frau, die allein in einem kl
 
 Nachdem Taron im Dungeon beinahe stirbt, wacht er in Martas Haus auf. Marta erklaert ihm, ein fremder Mann habe ihr ein Goldstueck versprochen, wenn sie Taron pflegt, bis er wieder bei Bewusstsein ist.
 
-**Persoenlichkeit:** freundlich, langsam im Begreifen, leicht abzulenken, sehr fuersorglich. Marta stellt Fragen, die gleichzeitig dumm und genau richtig sein koennen.
+**Persoenlichkeit:** freundlich, langsam im Begreifen, leicht abzulenken, sehr fuersorglich. Marta denkt nicht schnell und formuliert oft umstaendlich, aber ihre einfachen Beobachtungen landen manchmal genau dort, wo kluegere Menschen vorbeireden.
 
 **Staerken:**
 
@@ -112,7 +112,7 @@ Nachdem Taron im Dungeon beinahe stirbt, wacht er in Martas Haus auf. Marta erkl
 - Laesst sich von selbstsicheren Fremden leicht ueberzeugen.
 - Kann wichtige Hinweise sehr ungenau wiedergeben.
 
-**Beziehung zu Taron:** Marta behandelt Taron nicht wie einen Auserwaehlten, sondern wie einen verletzten Jungen, der essen, schlafen und aufhoeren sollte, mit der Zimmerdecke zu streiten. Fuer Taron ist genau das irritierend troestlich.
+**Beziehung zu Taron:** Marta behandelt Taron nicht wie einen Auserwaehlten, sondern wie einen verletzten Jungen, der essen, schlafen und aufhoeren sollte, sich beim Reden mit unsichtbaren Dingen die Rippen weh zu tun. Fuer Taron ist genau das irritierend troestlich.
 
 **Hinweis auf den Erzaehler:** Martas Beschreibung des fremden Mannes erinnert Taron stark an den Erzaehler: kuehle Stimme, praezise Wortwahl, trockener Spott. Taron haelt das fuer unmoeglich, weil der Erzaehler schliesslich nur eine Stimme ist. Der Erzaehler widerspricht dieser Annahme nicht direkt, was Taron noch nervoeser macht.
 
