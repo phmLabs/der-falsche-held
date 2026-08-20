@@ -186,9 +186,21 @@ Damals hatte das gereicht.
 
 Später, viel später, würde Taron sich an diesen Satz erinnern und wütend darüber werden. Nicht weil er falsch gewesen war. Sondern weil er wahr gewesen war, und dann irgendwann nicht mehr.
 
-Die Schlacht endete bei Regen.
+Die Schlacht endete bei Regen und mit dem Kriegshorn der Zwerge.
 
-Der Regen löschte Feuer, verdünnte Blut und machte aus dem Hof einen braunen Brei aus Schlamm, Asche und zerbrochenen Dingen. Die Zwerge zogen sich zurück, aber sie verschwanden nicht. Sie gruben sich in die westlichen Täler. Sie nahmen zwei Nachbarländer, Graumark und Ellingen, und unterwarfen sie mit der Geduld von Menschen, die unter Bergen gelernt hatten, dass Stein nachgibt, wenn man nur lange genug Druck ausübt.
+Es klang anders als das Horn von Waldkirch. Tiefer. Kürzer. Nicht wie eine Warnung, sondern wie ein Befehl, der keinen Widerspruch erwartete. Der Ton rollte über den Hof, über die Mauern, über die nassen Felder im Westen.
+
+Dann zogen die Zwerge sich zurück.
+
+Die Menschen von Waldkirch glaubten, sie flöhen. Manche fielen auf die Knie. Manche weinten. Manche lachten, weil der Körper manchmal nicht weiß, wie Erleichterung klingen soll. Auf den Mauern hoben Ritter ihre Schwerter, und unter der Treppe hörte Taron zum ersten Mal an diesem Tag Menschen jubeln.
+
+Der Regen löschte Feuer, verdünnte Blut und machte aus dem Hof einen braunen Brei aus Schlamm, Asche und zerbrochenen Dingen. Die Zwerge verschwanden jedoch nicht. Sie gruben sich in die westlichen Täler. Sie nahmen zwei Nachbarländer, Graumark und Ellingen, und unterwarfen sie mit der Geduld von Menschen, die unter Bergen gelernt hatten, dass Stein nachgibt, wenn man nur lange genug Druck ausübt.
+
+Dass sie Waldkirch seitdem nicht wieder angegriffen hatten, galt im Reich als Beweis für die Stärke der Burg.
+
+Das war eine tröstliche Deutung.
+
+Sie war nicht unbedingt die richtige.
 
 Seitdem war die Gefahr nie wirklich verschwunden.
 

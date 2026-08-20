@@ -120,7 +120,9 @@ Zu dieser Zeit konnte Taron den Erzaehler noch hoeren. Die Stimme war fuer ihn n
 
 Die Katastrophe war der Einmarsch der Zwergenheere aus dem Westen. Die Geschichte nennt sie boese Zwerge; sie sind in dieser Welt eine reale Macht aus Stein, Eisen und alter Wut, nicht nur ein Kinderschreck.
 
-Burg Waldkirch und Lichtenhain konnten sich damals verteidigen, weil das Reich noch gut gefuehrt war und ueber erfahrene Ritter verfuegte. Die spaeter besungene epische Schlacht war in Wahrheit auch von Glueck, Panik, Zufall und schlechter Sicht gepraegt, aber nicht laecherlich: Damals traf Vorbereitung auf ihre Grenze. Zwei Nachbarlaender, Graumark und Ellingen, wurden jedoch von den Zwergen unterjocht, und die Bedrohung blieb bestehen.
+Burg Waldkirch und Lichtenhain konnten sich damals verteidigen, weil das Reich noch gut gefuehrt war und ueber erfahrene Ritter verfuegte. Die spaeter besungene epische Schlacht war in Wahrheit auch von Glueck, Panik, Zufall und schlechter Sicht gepraegt, aber nicht laecherlich: Damals traf Vorbereitung auf ihre Grenze. Am Ende der Schlacht erklingt das Kriegshorn der Zwerge, woraufhin sie sich zurueckziehen. Die Menschen deuten das als Flucht und Sieg.
+
+Spaeter soll sich herausstellen, dass der Rueckzug kein Zeichen von Niederlage war: Die Zwerge hatten gefunden, wonach sie gesucht hatten, und mussten Waldkirch deshalb nicht weiter angreifen. Darum blieb es zehn Jahre lang vergleichsweise ruhig. Zwei Nachbarlaender, Graumark und Ellingen, wurden dennoch von den Zwergen unterjocht, und die Bedrohung blieb bestehen.
 
 Nach der Schlacht wurde die alte Prophezeiung wieder wichtig: Einer solle kommen, der das Koenigreich durch die duestere Zeit leitet. Dass die Prophezeiung viel aelter ist als der Zwergenkrieg, stoert niemanden, weil verängstigte Reiche alte Worte gern passend machen.
 
