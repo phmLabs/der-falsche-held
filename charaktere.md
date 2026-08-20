@@ -152,7 +152,7 @@ Bruder Malchior ist ein alter Gelehrter, der sein Leben mit Prophezeiungen, Rand
 
 Sir Oswin ist ein tapferer, starker und auffallend schoener Ritter, der leider fast immer betrunken ist. Er war einmal ein vorbildlicher Kaempfer und ist es im Kern noch, aber irgendetwas hat ihn aus der Bahn geworfen. Im Gasthaus Zum Blauen Eber sagt er Taron im Rausch zu, ihn zu begleiten. Am Morgen erinnert er sich nicht daran und reagiert nur mit: "Nicht schon wieder."
 
-**Persoenlichkeit:** ehrenhaft, melancholisch, trocken, pflichtbewusst, selbstzerstoererisch. Oswin ist nicht dumm und nicht schwach; er ist nur ein Mann, der zu viel gesehen hat und sich angewöhnt hat, abends schlechtere Entscheidungen zu treffen als morgens.
+**Persoenlichkeit:** ehrenhaft, melancholisch, trocken, pflichtbewusst, selbstzerstoererisch, mit der laestigen Ausstrahlung eines Weiberhelden. Oswin ist nicht dumm und nicht schwach; er ist nur ein Mann, der zu viel gesehen hat und sich angewöhnt hat, abends schlechtere Entscheidungen zu treffen als morgens.
 
 **Staerken:**
 
@@ -170,6 +170,24 @@ Sir Oswin ist ein tapferer, starker und auffallend schoener Ritter, der leider f
 - Trinkt zu viel und verspricht im Rausch Dinge, die er nuechtern bereut.
 
 **Beziehung zu Taron:** Taron gewinnt Oswin als Begleiter, indem er ihm am Morgen sagt, er habe im Suff zugesagt. Oswin glaubt ihm sofort, weil ihm das offenbar nicht zum ersten Mal passiert. Zwischen beiden entsteht eine widerwillige Reisegemeinschaft: Taron braucht jemanden, der kaempfen kann; Oswin braucht vielleicht einen Grund, wieder nuetzlich zu sein.
+
+---
+
+## Merlan Graufinger
+
+**Rolle:** Zauberer in der Freien Burg Hohensteg  
+**Alter:** Unklar, vermutlich aelter, als seine Haltung zugibt  
+**Herkunft:** Kleines Haus am alten Brunnen von Hohensteg  
+
+Merlan Graufinger ist der oertliche Zauberer von Hohensteg. Fuer Taron klingt das unglaublich, fuer die Leute im Dorf ist es eine Selbstverstaendlichkeit, ungefaehr wie schlechtes Wetter oder ein Wirt, der alles weiss. Merlan wohnt in einem kleinen Haus mit schiefer Esse, aus der je nach Lage gruen, blau, schwarz oder gar kein Rauch kommt.
+
+**Persoenlichkeit:** noch offen. Er sollte nicht zu klassisch ehrwuerdig sein, sondern praktisch, seltsam und ein wenig gefaehrlich auf eine Weise, an die Hohensteg sich gewoehnt hat.
+
+**Moegliche Funktionen:**
+
+- Kann der Gruppe magische Grundkenntnisse, Warnungen oder ein nutzlos wirkendes Artefakt mitgeben.
+- Kann tatsaechlich nuetzlich sein, aber nie genau so, wie Taron es gern haette.
+- Kann Bohnen warm oder Bier kalt zaubern, falls alle anderen Qualifikationen versagen.
 
 ---
 
