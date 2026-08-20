@@ -2,25 +2,25 @@
 
 Das Horn von Burg Waldkirch klang dreimal.
 
-Es war kein besonders schönes Horn. Es hatte diesen heiseren, nassen Ton, den alte Warnhörner bekommen, wenn sie zu lange in Türmen hängen und zu selten jemand fragt, ob sie vielleicht einmal gereinigt werden sollten. Trotzdem tat es, was Warnhörner tun sollen: Es griff in Tarons Brust, fand dort eine alte Tür und stieß sie auf.
+Es war der gleiche Ton wie damals: tief, rau und so ernst, dass selbst die Luft für einen Augenblick stillzustehen schien. Das Horn griff in Tarons Brust, fand dort eine alte Tür und stieß sie auf.
 
 Taron saß am Straßenrand, das Brot noch in der Hand.
 
 Er war wieder sieben Jahre alt.
 
-Das ist ein unangenehmer Vorgang, wenn man gerade siebzehn ist, verletzt, schlecht gerüstet und fest entschlossen, nicht in eine Prophezeiung hineingezogen zu werden. Erinnerungen haben kein Benehmen. Sie warten nicht, bis man bereit ist. Sie kommen einfach herein, setzen sich auf den besten Stuhl und tun so, als gehörten sie zur Familie.
+Das ist ein unangenehmer Vorgang, wenn man gerade siebzehn ist, verletzt, schlecht gerüstet und fest entschlossen, nicht in eine Prophezeiung hineingezogen zu werden. Erinnerungen warten nicht, bis man bereit ist. Sie kommen, wenn sie gerufen werden.
 
 Taron kannte seine Familie nicht.
 
-Das sollte vielleicht früher erwähnt werden. Es gehört zu den Dingen, die Heldenbiografien gern mit großem Gewicht behandeln, vorzugsweise unter Regen, vor einem Grab oder mit einer Geige, die irgendwo unsichtbar leidet. In Tarons Fall war es weniger feierlich. Er wusste nicht, wer seine Eltern waren. Er wusste nicht, ob sie tot waren, verschollen, arm, wichtig, grausam, freundlich oder nur außerordentlich vergesslich.
+Das sollte vielleicht früher erwähnt werden. Es gehörte zu den stillen Tatsachen seines Lebens, nicht zu den Dingen, über die man auf Burg Waldkirch viel sprach. Er wusste nicht, wer seine Eltern waren. Er wusste nicht, ob sie tot waren, verschollen, arm, wichtig, grausam oder freundlich.
 
-Er war als kleines Kind nach Burg Waldkirch gekommen. Niemand hatte ihm viel darüber erzählt. Oder jemand hatte es erzählt, und er hatte es vergessen. Oder jemand hatte beschlossen, dass ein Kind mit großen Augen, dunklem Haar und einem Hang, Fragen in unpassenden Momenten zu stellen, nicht noch mehr Fragen brauchte.
+Er war als kleines Kind nach Burg Waldkirch gekommen. Niemand hatte ihm viel darüber erzählt. Oder jemand hatte es erzählt, und er hatte es vergessen. Oder jemand hatte beschlossen, dass ein Kind mit großen Augen, dunklem Haar und einem Hang, Fragen in unpassenden Momenten zu stellen, erst einmal Schutz brauchte und keine Antworten.
 
 Er war, das muss der Wahrheit halber gesagt werden, ein sehr süßes Kind gewesen.
 
 „Nein“, sagte Taron.
 
-Doch. Unerträglich süß. Runde Wangen, ernster Blick, Haare, die sich jeder Bürste widersetzten, und diese Art von vorsichtigem Lächeln, bei der erwachsene Menschen sofort Brot, Äpfel oder kleine Holztiere hervorholen.
+Doch. Runde Wangen, ernster Blick, Haare, die sich jeder Bürste widersetzten, und diese Art von vorsichtigem Lächeln, bei der erwachsene Menschen sofort sanfter wurden, selbst wenn sie es nicht vorhatten.
 
 „Hör auf.“
 
@@ -28,7 +28,7 @@ Er war noch immer nicht völlig frei davon.
 
 „Ich stehe auf und gehe.“
 
-Das ändert nichts an der Knochenstruktur deines Gesichts.
+Das ändert nichts daran, dass es wahr ist.
 
 „Ich hasse dich.“
 
@@ -36,7 +36,7 @@ Damals hatte er die Stimme noch nicht gehasst.
 
 Damals war sie einfach da gewesen.
 
-Sie sprach zu ihm, wenn er abends nicht schlafen konnte. Sie erzählte ihm, dass Dunkelheit nur ein Raum sei, in dem das Licht gerade eine Pause mache. Sie warnte ihn, wenn er zu hoch auf Mauern kletterte, erinnerte ihn daran, langsam zu essen, und sagte Dinge wie: „Der Ast sieht müde aus“, kurz bevor der Ast brach. Oder: „Die Suppe wartet nicht auf kleine Helden“, und Taron verbrannte sich nur leicht, weil er immerhin gewarnt worden war.
+Sie sprach zu ihm, wenn er abends nicht schlafen konnte. Sie erzählte ihm, dass Dunkelheit nur ein Raum sei, in dem das Licht gerade eine Pause mache. Sie warnte ihn, wenn er zu hoch auf Mauern kletterte, erinnerte ihn daran, langsam zu essen, und sagte Dinge wie: „Der Ast hält dich nicht“, kurz bevor der Ast brach. Oder: „Warte noch einen Atemzug“, wenn die Suppe zu heiß war.
 
 Taron hatte damals nicht darüber nachgedacht, ob sie ein Freund war.
 
@@ -58,7 +58,7 @@ Vielleicht hatte er sich später nur eine gebaut, weil Kinder Lücken nicht mög
 
 „Du warst kleiner“, sagte die Stimme damals.
 
-Taron saß auf der Mauer des inneren Hofes und ließ die Beine baumeln. Unter ihm trainierten Ritter mit Holzschwertern. Richtige Ritter. Gute Ritter. Männer und Frauen in blanken Rüstungen, mit sicheren Händen und lachenden Stimmen. Es hatte damals noch genug von ihnen gegeben, dass man sie im Hof üben lassen konnte, ohne dass jemand sofort eine Liste über Verluste, Kosten und Helmgrößen begann.
+Taron saß auf der Mauer des inneren Hofes und ließ die Beine baumeln. Unter ihm trainierten Ritter mit Holzschwertern. Richtige Ritter. Gute Ritter. Männer und Frauen in gepflegten Rüstungen, mit sicheren Händen und klaren Befehlen. Damals war Waldkirch ein Ort, an dem Dinge vorbereitet wurden, bevor sie zerbrachen.
 
 „Ich bin nicht klein“, sagte Taron.
 
@@ -70,9 +70,9 @@ Taron saß auf der Mauer des inneren Hofes und ließ die Beine baumeln. Unter ih
 
 Taron mochte den Klang. Die Stimme war ruhig, aber nicht kalt. Sie war nicht wie ein Erwachsener, der einem Kind erklärte, was es alles nicht durfte. Sie war eher wie jemand, der neben einem ging, ohne die Hand zu nehmen, aber nah genug blieb, falls man stolperte.
 
-Unten rief Sir Berold vom Eschenwall seinen Knappen etwas zu. Sir Berold war berühmt für drei Dinge: seine Tapferkeit, seinen Schnurrbart und die Tatsache, dass er einmal einen Räuberhauptmann durch bloßes Niesen aus dem Sattel erschreckt hatte. Damals lebte er noch. Viele Menschen lebten damals noch.
+Unten rief Sir Berold vom Eschenwall seinen Knappen etwas zu. Sir Berold war berühmt für seine Ruhe im Kampf und für die Art, wie selbst junge Ritter ihre Haltung strafften, wenn er an ihnen vorbeiging. Damals lebte er noch. Viele Menschen lebten damals noch.
 
-Bruder Malchior war jünger, wenn auch nicht jung. König Albrecht war weniger müde. Vogt Hademar hatte noch nicht den Blick eines Mannes, der jedes Jahr mit einer neuen Form von Unheil abrechnen musste.
+Bruder Malchior war jünger, wenn auch nicht jung. König Albrecht trug die Krone mit mehr Kraft als heute. Vogt Hademar führte seine Listen wie ein Mann, der glaubte, dass Ordnung die Welt tatsächlich zusammenhalten könne.
 
 Und Taron hatte geglaubt, dass Burgen sicher seien.
 
@@ -100,13 +100,13 @@ Das war nicht sehr genau. Aber es machte Taron weniger Angst, als die Wahrheit e
 
 Die Zwerge kamen aus dem Westen.
 
-Ja, die bösen Zwerge gab es wirklich. Dies ist so ein Buch. Man mag einwenden, dass es sich bei ihnen vielleicht nur um viele kleine, dicke Menschen mit schweren Äxten, dichten Bärten und einem sehr entschlossenen Verhältnis zu unterirdischer Architektur handelte. Dieser Einwand ist nicht völlig falsch. Er ist nur unpraktisch, wenn eine Armee solcher Wesen auf die Grenze zumarschiert und dabei Kriegstrommeln schlägt.
+Ja, die bösen Zwerge gab es wirklich. In dieser Geschichte sind sie keine Redensart und kein Kinderschreck, sondern eine Macht aus Stein, Eisen und alter Wut. Man mag einwenden, dass es sich bei ihnen vielleicht um viele kleine, breite Menschen mit schweren Äxten, dichten Bärten und einem sehr entschlossenen Verhältnis zu unterirdischer Architektur handelte. Dieser Einwand ist nicht völlig falsch. Er ist nur unpraktisch, wenn eine Armee solcher Wesen auf die Grenze zumarschiert und dabei Kriegstrommeln schlägt.
 
 Also nennen wir sie Zwerge.
 
-Sie nannten sich selbst anders. Der Name klang, als würde ein Stein in einem Fass voller Nägel die Treppe hinunterfallen. Niemand in Lichtenhain sprach ihn gern aus. Die wenigen, die es versuchten, wirkten danach, als bräuchten sie Wasser.
+Sie nannten sich selbst anders. Der Name war hart, alt und für die Zungen Lichtenhains schwer zu formen. Niemand sprach ihn gern aus.
 
-Die Zwergenheere waren nicht wie die Zwerge aus gemütlichen Geschichten, die Schmiedelieder sangen und in Hallen voller Gold saßen. Diese hier kamen aus den Schwarzen Stollen jenseits der Westmark. Sie trugen Eisenmasken, runde Schilde, kurze Speere und Äxte, deren Klingen aussahen, als seien sie für Türen, Knie und Hoffnungen gleichermaßen gemacht.
+Die Zwergenheere waren nicht wie die Zwerge aus gemütlichen Geschichten, die Schmiedelieder sangen und in Hallen voller Gold saßen. Diese hier kamen aus den Schwarzen Stollen jenseits der Westmark. Sie trugen Eisenmasken, runde Schilde, kurze Speere und schwere Äxte. Sie marschierten in engen Reihen, Schild an Schild, und hinter ihnen klangen Trommeln aus Stein und Leder.
 
 Sie marschierten nicht schnell.
 
@@ -114,7 +114,7 @@ Sie mussten nicht.
 
 Sie kamen wie eine Wand.
 
-Zuerst fielen die Grenzdörfer. Dann die Mühlen an der Finsterfurt. Dann Burg Rothang, deren Mauern seit zweihundert Jahren als uneinnehmbar galten, was ihren Fall besonders peinlich machte. Die Flüchtlinge kamen in Wagen, zu Fuß, auf Ochsen, auf den Rücken älterer Geschwister. Sie brachten Decken, Töpfe, Kinder, schlechte Nachrichten und diesen Blick mit, den Menschen bekommen, wenn sie zu viel gesehen haben und trotzdem weitergehen müssen.
+Zuerst fielen die Grenzdörfer. Dann die Mühlen an der Finsterfurt. Dann Burg Rothang, deren Mauern seit zweihundert Jahren als uneinnehmbar gegolten hatten. Die Flüchtlinge kamen in Wagen, zu Fuß, auf Ochsen, auf den Rücken älterer Geschwister. Sie brachten Decken, Töpfe, Kinder, schlechte Nachrichten und diesen Blick mit, den Menschen bekommen, wenn sie zu viel gesehen haben und trotzdem weitergehen müssen.
 
 Taron erinnerte sich an Gesichter im Hof.
 
@@ -138,31 +138,23 @@ Das machte die Erinnerung schlimmer.
 
 Die Stimme schwieg zu lange.
 
-Taron kletterte trotzdem von der Mauer. Kinder sind berüchtigt dafür, Warnungen als Wegbeschreibungen zu behandeln.
+Taron kletterte trotzdem von der Mauer. Er wollte wissen, warum die Erwachsenen plötzlich anders klangen.
 
-Er lief durch den Hof, vorbei an Knechten, die Kisten trugen, an Frauen, die Verbände rissen, an Novizen, die so hastig beteten, dass die Heiligen vermutlich Mühe hatten, mitzuschreiben. Überall wurden Waffen verteilt. Überall standen Ritter.
+Er lief durch den Hof, vorbei an Knechten, die Kisten trugen, an Frauen, die Verbände rissen, an Novizen, die mit bleichen Gesichtern beteten. Überall wurden Waffen verteilt. Überall standen Ritter.
 
-Die guten Ritter.
+Die Ritter, an die man sich später erinnern würde.
 
 Später würde man viel über die Schlacht von Waldkirch singen.
 
 Man sang von der Lanze Sir Berolds, die im Abendlicht glänzte. Von der Schildmauer am Westtor. Von König Albrecht, der auf der äußeren Treppe stand und mit fester Stimme die Verteidigung befahl. Von Bruder Malchior, der die alten Segensworte über die Kämpfenden sprach. Von den Bannern, die nicht fielen, obwohl der Wind voller Rauch war.
 
-Lieder sind ausgezeichnet darin, schlechte Gerüche wegzulassen.
+Lieder sind ausgezeichnet darin, Ordnung zu schaffen, wo in Wahrheit nur Augenblicke waren.
 
-In Wirklichkeit war die Schlacht weniger ordentlich.
-
-Ein Wagen kippte im Torhaus um und blockierte den Durchgang genau in dem Moment, in dem die erste Zwergenwelle eindringen wollte. Das rettete vermutlich die Burg. Offiziell hieß es später, der Wagen sei von einem listigen Hauptmann geopfert worden. In Wahrheit hatte ein erschrockener Maultierknecht die Zügel fallen lassen, weil ein Zwerg mit brennendem Bart auf ihn zugerannt war.
-
-Sir Berold traf den feindlichen Bannerträger nicht mit einer geworfenen Lanze, wie die Lieder behaupteten. Er rutschte auf verschüttetem Öl aus, verlor die Lanze, und sie flog in einem Winkel davon, den kein vernünftiger Kämpfer geplant hätte. Sie traf trotzdem.
-
-König Albrecht stand tatsächlich auf der äußeren Treppe. Das war mutig. Er stand dort allerdings, weil die Tür hinter ihm klemmte.
-
-Bruder Malchior sprach Segensworte. Mindestens die ersten drei waren richtig. Danach mischte er vor Aufregung ein Hochzeitsgebet hinein, was den Rittern vielleicht nicht half, aber einigen von ihnen immerhin eine sehr verbindliche Beziehung zum Tod gab.
+Die Schlacht war nicht weniger groß, weil sie unübersichtlich war. Ein Wagen brach im Torhaus zusammen und verengte den Durchgang genau in dem Moment, in dem die erste Zwergenwelle eindringen wollte. Das gab der Schildmauer Zeit, sich zu schließen. Sir Berold erreichte den feindlichen Bannerträger, weil ein Trupp junger Ritter den linken Flügel länger hielt, als irgendjemand von ihnen erwarten durfte. König Albrecht stand auf der äußeren Treppe und blieb dort, obwohl die Pfeile gegen den Stein schlugen. Bruder Malchior sprach die Segensworte mit einer Stimme, die selbst dann nicht zitterte, als Rauch durch den Hof zog.
 
 Die Schlacht war episch.
 
-Sie war auch Zufall, Panik, Schlamm, Lärm, schlechte Sicht, Glück und eine erstaunliche Menge fallender Eimer.
+Sie war auch Zufall, Panik, Schlamm, Lärm, schlechte Sicht und Glück. Doch damals war Glück nicht das Gegenteil von Können. Es war das, was übrig blieb, wenn Können bis an seine Grenze getrieben wurde.
 
 Das eine schließt das andere nicht aus.
 
@@ -170,7 +162,7 @@ Lichtenhain hielt stand.
 
 Burg Waldkirch hielt stand.
 
-Die Zwerge wurden zurückgeschlagen, nicht weit, aber weit genug. Das Königreich verteidigte sich, weil es damals noch Ritter hatte, weil die Mauern dick waren, weil das Wetter schlecht wurde, weil die Zwergenhauptleute einander misstrauten und weil ein siebenjähriger Junge unter einer Treppe saß und nicht begriff, warum die Welt plötzlich so laut war.
+Die Zwerge wurden zurückgeschlagen, nicht weit, aber weit genug. Das Königreich verteidigte sich, weil es damals noch Ritter hatte, weil die Mauern dick waren, weil die Befehle hielten und weil Menschen an ihren Plätzen blieben, obwohl sie jeden Grund gehabt hätten zu laufen. Unter einer Treppe saß ein siebenjähriger Junge und begriff nicht, warum die Welt plötzlich so laut war.
 
 „Atme“, sagte die Stimme.
 
@@ -178,11 +170,11 @@ Taron hatte die Knie an die Brust gezogen. Durch einen Spalt zwischen den Stufen
 
 „Ich kann nicht“, flüsterte Taron.
 
-„Doch. Ein. Aus. Das ist ein anspruchsloses System.“
+„Doch. Mit mir. Ein. Aus.“
 
 „Ich habe Angst.“
 
-„Das ist angemessen.“
+„Ich weiß.“
 
 „Hilf mir.“
 
@@ -202,17 +194,17 @@ Seitdem war die Gefahr nie wirklich verschwunden.
 
 Sie war nur weiter weg gewesen.
 
-Das ist ein Unterschied, den Könige gern mit Karten erklären und Bauern nicht besonders tröstlich finden.
+Das ist ein Unterschied, der auf Karten sauber aussieht und an Grenzen weniger tröstlich ist.
 
-Nach der Schlacht kamen die Propheten aus ihren Löchern.
+Nach der Schlacht kehrten die Propheten in die Hallen zurück.
 
-Das ist nicht freundlich formuliert, aber zutreffend. In Zeiten der Angst erscheinen Menschen mit alten Rollen, dunklen Augen und Sätzen, die niemand überprüfen kann. Bruder Malchior gehörte nicht zu den schlimmsten von ihnen. Er war ehrlich, was es gefährlicher machte.
+In Zeiten der Angst hören Menschen genauer hin, wenn jemand alte Worte trägt. Bruder Malchior gehörte nicht zu jenen, die Angst ausnutzten. Er glaubte an das, was er las. Das machte es nicht ungefährlicher.
 
 Er brachte die Prophezeiung zurück.
 
 Nicht neu. Zurück.
 
-Sie war viel älter als die Zwergenkriege. Viel älter als Burg Waldkirch. Vermutlich älter als die meisten Reiche, die nun behaupteten, sie seien selbstverständlich gemeint gewesen. Das störte niemanden besonders. Alte Prophezeiungen sind wie alte Mäntel: Mit genug Entschlossenheit passen sie jedem, der friert.
+Sie war viel älter als die Zwergenkriege. Viel älter als Burg Waldkirch. Vermutlich älter als die meisten Reiche, die nun behaupteten, sie seien selbstverständlich gemeint gewesen. Das störte niemanden besonders. Ein erschüttertes Reich fragt selten, ob ein Versprechen ursprünglich für jemand anderen gedacht war.
 
 „Wenn der schwarze Stern im Westen sinkt“, las Malchior damals im Hof, während Taron zwischen zwei Fässern saß und kaum über den Rand sehen konnte, „wird jener kommen, der kein König ist, kein Magier, kein Ritter, kein Weiser, doch dessen Schritt das Schicksal stolpern lässt.“
 
@@ -262,7 +254,7 @@ Sie sprach weniger. Sie warnte seltener. Manchmal fragte Taron etwas und bekam e
 
 Ein paar Wochen nach der Schlacht saß Taron wieder auf der Mauer des inneren Hofes.
 
-Der Hof war repariert worden. Nicht gut, aber sichtbar. Die schlimmsten Steine waren ersetzt, das Tor verstärkt, die Brandflecken überkalkt. Menschen sind erstaunlich gut darin, Dinge weiß zu streichen und zu behaupten, damit sei etwas vorbei.
+Der Hof war repariert worden. Die schlimmsten Steine waren ersetzt, das Tor verstärkt, die Brandflecken überkalkt. Menschen beginnen oft mit Mauern, wenn sie nicht wissen, wie man Erinnerungen ausbessert.
 
 Taron ließ die Beine baumeln.
 
@@ -284,7 +276,7 @@ Taron wartete lange.
 
 Kinder können lange warten, wenn sie glauben, dass Warten eine Form von Treue ist.
 
-Schließlich rutschte er von der Mauer, schlug sich das Knie auf, fluchte mit einem Wort, das er von Hademar gelernt hatte, und ging in den Stall.
+Schließlich rutschte er von der Mauer, schlug sich das Knie auf und ging in den Stall.
 
 Die Stimme kam nicht zurück.
 
@@ -296,11 +288,11 @@ Nicht in den Jahren danach.
 
 Irgendwann hörte Taron auf zu fragen. Dann hörte er auf, sich sicher zu sein, ob sie je wirklich da gewesen war. Danach tat er das, was Menschen mit Dingen tun, die zu weh tun und zu wenig Beweise hinterlassen: Er schob sie weg.
 
-Bis ein Eimer Ziegenmilch, eine alte Prophezeiung und ein sehr schlecht geplantes Monster alles wieder öffneten.
+Bis ein Eimer Ziegenmilch, eine alte Prophezeiung und das Monster unter Waldkirch alles wieder öffneten.
 
 Das Horn klang in der Gegenwart aus.
 
-Taron saß noch immer am Straßenrand. Kummer stand neben ihm und kaute Gras, als seien geschichtliche Rückblenden eine unnötige Belastung für die Verdauung.
+Taron saß noch immer am Straßenrand. Kummer stand neben ihm und kaute Gras, unberührt von allem, was ein Mensch aus einem Hornsignal heraushören konnte.
 
 Die Burg lag hinter dem Hügel.
 
@@ -314,7 +306,7 @@ Taron atmete langsam aus.
 
 „Als die Zwerge kamen.“
 
-„Eine treffende Zusammenfassung eines vielschichtigen geopolitischen Ereignisses.“
+„Eine kurze Zusammenfassung einer langen Wunde.“
 
 „Warum höre ich das Horn jetzt wieder?“
 
@@ -354,13 +346,13 @@ Taron stopfte das Brot zurück in den Beutel und griff nach Kummers Zügeln.
 
 Das Pferd sah ihn an.
 
-Es war kein vorwurfsvoller Blick. Pferde brauchen keine Vorwürfe. Sie besitzen von Natur aus ein Gesicht, das Menschen dazu bringt, sich selbst zu verurteilen.
+Es war kein vorwurfsvoller Blick. Es war nur ruhig genug, dass Taron sich selbst darin hören konnte.
 
 „Nur kurz“, sagte Taron.
 
 Kummer schnaubte.
 
-„Das sagen alle am Anfang“, sagte der Erzähler.
+„So beginnen Rückwege oft“, sagte der Erzähler.
 
 Taron stieg auf.
 
