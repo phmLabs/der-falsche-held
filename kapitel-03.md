@@ -298,6 +298,12 @@ Nicht im nächsten Winter.
 
 Nicht in den Jahren danach.
 
-Irgendwann hörte Taron auf zu fragen. Dann hörte er auf, sich sicher zu sein, ob sie je wirklich da gewesen war. Danach tat er das, was Menschen mit Dingen tun, die zu weh tun und zu wenig Beweise hinterlassen: Er schob sie weg.
+Irgendwann hörte Taron auf zu fragen. Dann hörte er auf, am Abend länger wach zu bleiben, nur für den Fall, dass sie doch noch etwas sagte. Dann hörte er auf, sich sicher zu sein, ob sie je wirklich da gewesen war.
 
-Und in der Stille, die blieb, wurde aus dem Kind, das einmal mit einer Stimme gesprochen hatte, nach und nach ein Junge, der niemandem mehr davon erzählte.
+Aber bevor er all das vergaß, bevor aus Erinnerung Zweifel wurde und aus Zweifel Schweigen, hatte er noch gewusst, was sie gewesen war.
+
+Nicht nur eine Stimme.
+
+Ein Freund.
+
+Und in der Stille, die blieb, wurde aus dem Kind, das einmal einen Freund gehabt hatte, den niemand sonst sehen konnte, nach und nach ein Junge, der niemandem mehr davon erzählte.
