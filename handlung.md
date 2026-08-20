@@ -109,3 +109,19 @@ Der Koenig laesst Taron mit dem Besten ausstatten, was noch uebrig ist. Das klin
 Bruder Malchior erklaert Tarons angebliche Aufgabe: Er soll nach Westen zum Turm von Abendriss reiten und dort den ersten Splitter der Nachtkrone bergen. Taron gibt auf, weil niemand ihm zuhoert. Er reitet los, haelt sich nur so lange heldenhaft aufrecht, bis die Burg ihn nicht mehr sehen kann, macht dann Pause und isst den Proviant.
 
 Das Kapitel endet mit einem Hornsignal aus Richtung Burg Waldkirch, das andeutet, dass die naechste Katastrophe bereits begonnen hat.
+
+---
+
+## Kapitel 3: Zehn Jahre frueher
+
+Das Hornsignal wirft Taron in eine Erinnerung an zehn Jahre zuvor zurueck. Damals war er sieben Jahre alt, kannte seine Eltern nicht und lebte auf Burg Waldkirch in einem warmen, unscharfen Gefuehl von Zugehoerigkeit. Wenn er an diese Zeit denkt, fuehlt es sich an, als habe er eine Familie gehabt, auch wenn er niemanden klar benennen kann.
+
+Zu dieser Zeit konnte Taron den Erzaehler noch hoeren. Die Stimme war fuer ihn normal, fast vertraut, und begleitete ihn durch die Kindheit. Kurz nach der damaligen Katastrophe verschwand sie.
+
+Die Katastrophe war der Einmarsch der Zwergenheere aus dem Westen. Die Geschichte nennt sie boese Zwerge; der Erzaehler merkt an, dass man sie vielleicht auch als viele kleine, breite Menschen mit Aexten beschreiben koennte, aber dass dies ein Fantasybuch ist und die praktische Bezeichnung daher Zwerge lautet.
+
+Burg Waldkirch und Lichtenhain konnten sich damals verteidigen, weil es noch die guten Ritter gab. Die spaeter besungene epische Schlacht war in Wahrheit auch viel Glueck, Panik, Zufall und schlechte Sicht. Zwei Nachbarlaender, Graumark und Ellingen, wurden jedoch von den Zwergen unterjocht, und die Bedrohung blieb bestehen.
+
+Nach der Schlacht wurde die alte Prophezeiung wieder wichtig: Einer solle kommen, der das Koenigreich durch die duestere Zeit leitet. Dass die Prophezeiung viel aelter ist als der Zwergenkrieg, stoert niemanden, weil verängstigte Reiche alte Worte gern passend machen.
+
+Am Ende der Rueckblende begreift Taron, dass das aktuelle Hornsignal mit dieser alten Gefahr zusammenhaengt. Statt weiter nach Westen zu reiten, kehrt er zur Burg zurueck.
