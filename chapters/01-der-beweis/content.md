@@ -1,5 +1,3 @@
-# Kapitel 1: Der Beweis
-
 Es gibt viele Arten, wie ein Abenteuer beginnen kann. Mit einem Schwert im Stein, zum Beispiel. Mit einem Drachen am Horizont. Mit einer alten Frau, die einem Kind im Regen ein Amulett überreicht und dann bedeutungsvoll stirbt. Diese Geschichte begann mit einem Eimer Ziegenmilch.
 
 Genauer gesagt begann sie mit einem Eimer Ziegenmilch, der über den Kopf von Taron Falkenried gegossen wurde, siebzehn Jahre alt, Stallbursche auf Burg Waldkirch, mäßiger Schwertkämpfer, ausgezeichneter Wegläufer und, wie sich später herausstellen sollte, die größte Hoffnung des Königreichs.
