@@ -1,5 +1,3 @@
-# Kapitel 5: Ein Ritter und ein Vorschlag
-
 Sir Oswin von Hohenklamm sah am Morgen weniger aus wie ein Mann, der eine Reise begann, und mehr wie ein Mann, der mit seinem eigenen Kopf in Verhandlungen stand.
 
 Er saß auf seinem Pferd, das den unpassend stolzen Namen Sternfall trug, und hielt sich aufrecht, obwohl sein Gesicht eine andere Abstimmung verloren hatte. Die Sonne lag hell über den Mauern der Freien Burg Hohensteg. Händler beluden Karren. Ein Hund bellte jemanden an, der es vermutlich verdiente. Der Wirt vom Blauen Eber stand in der Tür und sah ihnen nach, als warte er darauf, dass einer von ihnen noch etwas bezahlen müsse.
