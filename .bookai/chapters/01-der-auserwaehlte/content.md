@@ -12,11 +12,11 @@ Das eine schließt das andere nicht aus. Tatsächlich ist es bei Helden erstaunl
 
 Taron stand im inneren Hof von Burg Waldkirch, während Milch aus seinen Haaren tropfte und sich in dünnen weißen Rinnsalen seinen Nacken hinabstahl. Vor ihm stand Elva Kesseldorn mit dem leeren Eimer in der Hand und einem Gesichtsausdruck, der irgendwo zwischen Reue, Genugtuung und der Überlegung lag, ob ein zweiter Eimer die Sache abrunden würde.
 
-„Du hast gesagt, die Ziege sei heimtückisch“, sagte Elva.
+„Du hast behauptet, die Ziege sei gut erzogen“, sagte Elva.
 
 „War sie auch.“
 
-Sie war es nicht.
+Sie war es nicht. Sie war eigensinnig, widerborstig und hat sich mit bewundernswerter Energie gegen jeden Vorschlag von Mitarbeit gewehrt.
 
 „Die Ziege hat mich angesehen, als wüsste sie etwas.“
 
@@ -28,13 +28,11 @@ Elva blinzelte. „Mit wem redest du?“
 
 „Mit niemandem.“
 
-Das war gelogen, wenn auch verständlich. Taron hatte den größten Teil seines Lebens damit verbracht, nicht mit der Stimme zu reden, die manchmal in seinem Kopf auftauchte. Als Kind hatte er sie für normal gehalten. Andere Kinder hatten eingebildete Freunde, Taron hatte einen eingebildeten Chronisten mit unangenehm genauer Beobachtungsgabe. Dann war sie verschwunden.
+Das war gelogen, wenn auch verständlich. Taron hatte den größten Teil seines Lebens damit verbracht, nicht mit der Stimme zu reden, die manchmal in seinem Kopf auftauchte. Als Kind hatte er sie für normal gehalten. Andere Kinder hatten eingebildete Freunde, Taron hatte einen eingebildeten Chronisten mit unangenehm genauer Beobachtungsgabe. 
 
-Bis heute.
+Dann war sie verschwunden. Bis heute.
 
-„Taron Falkenried“, rief Bruder Malchior Tintenfaust vom Rand des Hofes.
-
-Er war ein alter Priester mit einem Bart, der aussah, als hätte er wichtige Dokumente gegessen. In seinen Händen hielt er eine Pergamentrolle, die so brüchig war, dass sie vermutlich schon beleidigt gewesen wäre, wenn man sie nur ansah. Hinter ihm standen zwei Ritter, drei Novizen, der Burgvogt, mehrere Dienstmägde, ein Bäckerjunge, der eigentlich nur auf dem Weg zur Küche gewesen war, und König Albrecht der Ausreichende, der bei politischen Unannehmlichkeiten die bemerkenswerte Fähigkeit besaß, wie ein Möbelstück zu wirken.
+„Taron Falkenried“, rief Bruder Malchior Tintenfaust vom Rand des Hofes. Er war ein alter Priester mit einem Bart, der eher zu einem Tintenfass gehörte: dunkel verfleckt, an den Enden verfilzt, als sammelte er Randnotizen. In seinen Händen hielt er eine Pergamentrolle, so trocken und brüchig, dass ein falscher Atemzug sie zu Staub hätte machen können. Hinter ihm standen zwei Ritter, drei Novizen, der Burgvogt, mehrere Dienstmägde, ein Bäckerjunge, der eigentlich nur auf dem Weg zur Küche gewesen war, und König Albrecht der Standhafte, der bei politischen Unannehmlichkeiten die bemerkenswerte Fähigkeit besaß, wie ein Möbelstück zu wirken.
 
 Bruder Malchior hob die Rolle. Das war selten ein gutes Zeichen.
 

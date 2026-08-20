@@ -15,3 +15,60 @@
   end_offset: 95
   note: Der "verzaubert“ gefällt mir nicht. Können wir da was anderes finden?
   author: author
+- id: c-mt1misv0
+  created_at: '2026-08-20T14:36:32.796Z'
+  status: resolved
+  quote: >+
+    weiter Eimer die Sache abrunden würde.
+
+
+    „Du hast gesagt, die Ziege sei heimtückisch“, sagte Elva.
+
+
+    „War sie auch.“
+
+
+    Sie war es nicht.
+
+
+    „Die Ziege hat mich angesehen, als wüsste sie etwas.“
+
+
+    Das tat die Ziege. Ziegen sehen grundsätzlich aus, als wüssten sie etwas. Meistens wissen sie, wo der nächste
+    Stiefel steht, den man essen könnte.
+
+
+    „Halt dich da raus“, murmelte Taron.
+
+  start_offset: 40
+  end_offset: 336
+  note: Sowas wie gut erzogen und dann hat sie sich extrem gewehrt? Das würde besser reinpassen.
+  author: author
+- id: c-mt1mkzfq
+  created_at: '2026-08-20T14:38:14.630Z'
+  status: resolved
+  quote: >-
+    alchior Tintenfaust vom Rand des Hofes. Er war ein alter Priester mit einem Bart, der aussah, als hätte er wichtige
+    Dokumente gegessen. In seinen Händen hielt er eine Pergamen
+  start_offset: 40
+  end_offset: 135
+  note: Was soll das heißen? Dokumente gegessen? Anders formulieren.
+  author: author
+- id: c-mt1mlxuw
+  created_at: '2026-08-20T14:38:59.240Z'
+  status: resolved
+  quote: >-
+    en Händen hielt er eine Pergamentrolle, die so brüchig war, dass sie vermutlich schon beleidigt gewesen wäre, wenn
+    man sie nur ansah. Hinter ihm standen zwei Ritter, drei No
+  start_offset: 40
+  end_offset: 133
+  note: Brüchig und beleidigt bekomme ich nicht zusammen
+  author: author
+- id: c-mt1mmt8t
+  created_at: '2026-08-20T14:39:39.917Z'
+  status: resolved
+  quote: che gewesen war, und König Albrecht der Ausreichende, der bei politischen Unannehmlichkeiten
+  start_offset: 40
+  end_offset: 52
+  note: Gib ihm einen nicht so lustigen Namen. Er war ja mal ein großer König im Zwergenkrieg.
+  author: author
