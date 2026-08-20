@@ -142,13 +142,13 @@ Auf dem Ritt fragt Taron den Erzaehler, warum er ihn damals verlassen hat und wo
 
 Der Weg zum Turm von Abendriss dauert etwa zwei Tagesritte. Am ersten Abend erreicht Taron die Freie Burg Hohensteg und das Gasthaus Zum Blauen Eber. Er versucht, als Auserwaehlter kostenlos ein Zimmer zu bekommen, scheitert aber an einem sehr praktischen Wirt.
 
-An der Bar trifft Taron Sir Oswin von Hohenklamm: stark, schoen, ein echter Ritter, aber fast immer betrunken. Im Rausch sagt Oswin zu, Taron zu begleiten. Am Morgen behauptet Taron, Oswin habe im Suff zugesagt. Oswin reagiert nur mit: "Nicht schon wieder", begleitet ihn aber.
+An der Bar trifft Taron Sir Oswin von Hohenklamm: stark, gutaussehend, ein echter Ritter, aber fast immer betrunken. Im Rausch sagt Oswin zu, Taron zu begleiten. Am Morgen behauptet Taron, Oswin habe im Suff zugesagt. Oswin reagiert nur mit: "Nicht schon wieder", begleitet ihn aber.
 
 ---
 
 ## Kapitel 5: Ein Ritter und ein Vorschlag
 
-Oswin wird genauer vorgestellt: Er ist ein Weiberheld-Typ, schoen, stark und im Kern ein echter Ritter, aber vom Alkohol und den Zwergenkriegen gezeichnet. Er hat keine Stimme im Kopf und findet Tarons Gespraeche mit "Niemandem" zwar seltsam, aber nicht seltsamer als vieles andere.
+Oswin wird genauer vorgestellt: Er ist ein Weiberheld-Typ, gutaussehend, stark und im Kern ein echter Ritter, aber vom Alkohol und den Zwergenkriegen gezeichnet. Er hat keine Stimme im Kopf und findet Tarons Gespraeche mit "Niemandem" zwar seltsam, aber nicht seltsamer als vieles andere.
 
 Auf der Strasse zeigt Oswin, dass er wirklich gut im Rittern ist: Er liest Spuren, erkennt Gefahr und erledigt Wegelagerer schnell und kontrolliert, ohne sie zu toeten. Danach erfahren wir, dass er in den Zwergenkriegen gekaempft hat und mitzählt, wie viele Boese er getoetet hat. Es sind viele. Er zaehlt, weil er nicht vergessen will, dass es einzelne waren.
 

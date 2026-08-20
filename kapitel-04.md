@@ -336,17 +336,17 @@ Nicht groß demütigend, wie öffentlich in einen Dungeon geworfen zu werden. Eh
 
 Am anderen Ende der Bar lachte jemand.
 
-Es war kein fröhliches Lachen. Es war laut, schön und ruinös, als habe ein Mensch beschlossen, seinen eigenen Untergang mit guter Haltung zu begleiten. Taron sah hin.
+Es war kein fröhliches Lachen. Es war laut, hell und ruinös, als habe ein Mensch beschlossen, seinen eigenen Untergang mit guter Haltung zu begleiten. Taron sah hin.
 
 Der Mann dort war ein Ritter.
 
 Das erkannte man trotz des Biers, oder vielleicht gerade daran, wie teuer sein Verderben aussah. Er war groß, stark gebaut, mit dunklem Haar, scharfen Wangenknochen und einer Rüstung, die abgenutzt, aber gepflegt war. Sein Wappenrock hing über der Stuhllehne. Ein Schwert lag neben ihm auf dem Tisch, ordentlich, respektvoll, als sei es der einzige von beiden, der noch Dienst tat.
 
-Er war schön.
+Er war gutaussehend.
 
 Das war ärgerlich.
 
-Nicht für Taron persönlich. Nur allgemein. Schöne Menschen sollten wenigstens weniger Gelegenheit bekommen, betrunken eindrucksvoll zu wirken.
+Nicht für Taron persönlich. Nur allgemein. Gutaussehende Menschen sollten wenigstens weniger Gelegenheit bekommen, betrunken eindrucksvoll zu wirken.
 
 Der Ritter hob seinen Krug.
 
@@ -582,7 +582,7 @@ Oswin sah in dieselbe Richtung.
 
 Sein Gesicht wurde ernst.
 
-Für einen Atemzug war der schöne, betrunkene Ritter verschwunden. Übrig blieb der Mann, der wusste, was dieser Name bedeutete.
+Für einen Atemzug war der gutaussehende, betrunkene Ritter verschwunden. Übrig blieb der Mann, der wusste, was dieser Name bedeutete.
 
 „Dann reiten wir“, sagte er.
 

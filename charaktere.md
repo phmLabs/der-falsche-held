@@ -150,7 +150,7 @@ Bruder Malchior ist ein alter Gelehrter, der sein Leben mit Prophezeiungen, Rand
 **Alter:** 34  
 **Herkunft:** Niederer Adel aus dem Grenzland  
 
-Sir Oswin ist ein tapferer, starker und auffallend schoener Ritter, der leider fast immer betrunken ist. Er war einmal ein vorbildlicher Kaempfer und ist es im Kern noch, aber irgendetwas hat ihn aus der Bahn geworfen. Im Gasthaus Zum Blauen Eber sagt er Taron im Rausch zu, ihn zu begleiten. Am Morgen erinnert er sich nicht daran und reagiert nur mit: "Nicht schon wieder."
+Sir Oswin ist ein tapferer, starker und auffallend gutaussehender Ritter, der leider fast immer betrunken ist. Er war einmal ein vorbildlicher Kaempfer und ist es im Kern noch, aber irgendetwas hat ihn aus der Bahn geworfen. Im Gasthaus Zum Blauen Eber sagt er Taron im Rausch zu, ihn zu begleiten. Am Morgen erinnert er sich nicht daran und reagiert nur mit: "Nicht schon wieder."
 
 **Persoenlichkeit:** ehrenhaft, melancholisch, trocken, pflichtbewusst, selbstzerstoererisch, mit der laestigen Ausstrahlung eines Weiberhelden. Oswin ist nicht dumm und nicht schwach; er ist nur ein Mann, der zu viel gesehen hat und sich angewöhnt hat, abends schlechtere Entscheidungen zu treffen als morgens.
 

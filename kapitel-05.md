@@ -64,7 +64,7 @@ Sie ritten durch das Tor von Hohensteg und auf die westliche Straße hinaus. Fü
 
 Taron musterte ihn von der Seite.
 
-Nüchtern sah Oswin anders aus. Nicht weniger schön, was Taron ungerecht fand, aber schärfer. Die Müdigkeit blieb, doch darunter lag etwas Geübtes. Sein Rücken war gerade. Seine Hände lagen ruhig an den Zügeln. Das Schwert an seiner Seite war nicht Schmuck, sondern Verlängerung eines Körpers, der wusste, wofür es gemacht war.
+Nüchtern sah Oswin anders aus. Nicht weniger gutaussehend, was Taron ungerecht fand, aber schärfer. Die Müdigkeit blieb, doch darunter lag etwas Geübtes. Sein Rücken war gerade. Seine Hände lagen ruhig an den Zügeln. Das Schwert an seiner Seite war nicht Schmuck, sondern Verlängerung eines Körpers, der wusste, wofür es gemacht war.
 
 Leider wusste Oswin das ebenfalls.
 
@@ -216,13 +216,13 @@ Oswin zog sein Schwert nicht sofort. Er trat zuerst einen Stein hoch, fing ihn m
 
 Taron sah, wie Oswin sich bewegte.
 
-Nicht schön.
+Nicht elegant.
 
 Nein, das war falsch.
 
-Sehr schön.
+Sehr präzise.
 
-Aber nicht, weil er hübsch dabei aussah, obwohl er das auf ärgerliche Weise tat. Es war die Schönheit von etwas, das keinen überflüssigen Teil besaß. Ein Schritt. Eine Drehung. Der Griff eines Handgelenks. Ein Knauf gegen einen Kiefer. Die flache Seite der Klinge an einen Hals.
+Aber nicht, weil er gut dabei aussah, obwohl er das auf ärgerliche Weise tat. Es war die Präzision von etwas, das keinen überflüssigen Teil besaß. Ein Schritt. Eine Drehung. Der Griff eines Handgelenks. Ein Knauf gegen einen Kiefer. Die flache Seite der Klinge an einen Hals.
 
 Keiner der Wegelagerer starb.
 
