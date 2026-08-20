@@ -146,13 +146,13 @@ Bruder Malchior ist ein alter Gelehrter, der sein Leben mit Prophezeiungen, Rand
 
 ## Sir Oswin von Hohenklamm
 
-**Rolle:** Ritter, offizieller Beschuetzer des vermeintlichen Helden  
+**Rolle:** Ritter, widerwilliger Begleiter des vermeintlichen Helden  
 **Alter:** 34  
 **Herkunft:** Niederer Adel aus dem Grenzland  
 
-Sir Oswin ist ein tapferer, ordentlicher und leicht ueberforderter Ritter, der Taron auf seiner Reise beschuetzen soll. Er glaubt an Pflicht, saubere Ruestungen und daran, dass jeder Mensch mit genuegend Haltung wuerdevoll sterben kann. Taron findet besonders den letzten Punkt wenig ueberzeugend.
+Sir Oswin ist ein tapferer, starker und auffallend schoener Ritter, der leider fast immer betrunken ist. Er war einmal ein vorbildlicher Kaempfer und ist es im Kern noch, aber irgendetwas hat ihn aus der Bahn geworfen. Im Gasthaus Zum Blauen Eber sagt er Taron im Rausch zu, ihn zu begleiten. Am Morgen erinnert er sich nicht daran und reagiert nur mit: "Nicht schon wieder."
 
-**Persoenlichkeit:** ehrenhaft, ernst, trocken, pflichtbewusst, sozial unbeholfen. Oswin ist nicht dumm, aber sehr geuebt darin, unbequeme Realitaeten mit Disziplin zu erschlagen.
+**Persoenlichkeit:** ehrenhaft, melancholisch, trocken, pflichtbewusst, selbstzerstoererisch. Oswin ist nicht dumm und nicht schwach; er ist nur ein Mann, der zu viel gesehen hat und sich angewöhnt hat, abends schlechtere Entscheidungen zu treffen als morgens.
 
 **Staerken:**
 
@@ -160,14 +160,16 @@ Sir Oswin ist ein tapferer, ordentlicher und leicht ueberforderter Ritter, der T
 - Loyal bis zur Schmerzgrenze.
 - Kennt Strassen, Burgen und militaerische Gefahren.
 - Bleibt ruhig, wenn andere panisch werden.
+- Hat betrunken offenbar einen besseren moralischen Kompass als viele Menschen nuechtern.
 
 **Schwaechen:**
 
 - Versteht Ironie oft zu spaet.
 - Haelt Regeln fuer tragfaehiger, als sie sind.
 - Hat Schwierigkeiten, Taron ernst zu nehmen, solange Taron sich selbst nicht ernst nimmt.
+- Trinkt zu viel und verspricht im Rausch Dinge, die er nuechtern bereut.
 
-**Beziehung zu Taron:** Oswin soll Taron beschuetzen und fuer den grossen Auftrag vorbereiten. Taron versucht, Oswin davon zu ueberzeugen, dass es keinen grossen Auftrag gibt. Beide scheitern.
+**Beziehung zu Taron:** Taron gewinnt Oswin als Begleiter, indem er ihm am Morgen sagt, er habe im Suff zugesagt. Oswin glaubt ihm sofort, weil ihm das offenbar nicht zum ersten Mal passiert. Zwischen beiden entsteht eine widerwillige Reisegemeinschaft: Taron braucht jemanden, der kaempfen kann; Oswin braucht vielleicht einen Grund, wieder nuetzlich zu sein.
 
 ---
 

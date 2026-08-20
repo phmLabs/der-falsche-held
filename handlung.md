@@ -127,3 +127,19 @@ Spaeter soll sich herausstellen, dass der Rueckzug kein Zeichen von Niederlage w
 Nach der Schlacht wurde die alte Prophezeiung wieder wichtig: Einer solle kommen, der das Koenigreich durch die duestere Zeit leitet. Dass die Prophezeiung viel aelter ist als der Zwergenkrieg, stoert niemanden, weil verängstigte Reiche alte Worte gern passend machen.
 
 Das Kapitel endet in der Vergangenheit mit dem Verschwinden der Stimme. Die Rueckkehr in die Gegenwart und Tarons Entscheidung, auf das aktuelle Hornsignal zu reagieren, gehoeren in Kapitel 4.
+
+---
+
+## Kapitel 4: Der Plan
+
+Taron kehrt aus der Erinnerung in die Gegenwart zurueck. Das Gefuehl aus der Vergangenheit, besonders die Erinnerung an die Stimme als Freund und an Waldkirch als sicheren Ort, ueberzeugt ihn, der Aufgabe zumindest eine Chance zu geben.
+
+Er spielt den Auftrag im Kopf durch und macht ihn sich laecherlich einfach: hinreiten, Turm finden, Splitter nehmen, rausgehen. Vielleicht gibt es ein kleines Hindernis, aber sicher nichts Grosses. Dabei stellt er sich vor, dass Kinder spaeter einmal so warm auf diese Zeit zurueckblicken koennten wie er auf die Zeit vor den Zwergen.
+
+Dieser Gedanke fuehrt ihn zu Elva. Er gesteht sich selbst ein, dass er sie liebt, will aber sofort nicht weiter daran denken.
+
+Auf dem Ritt fragt Taron den Erzaehler, warum er ihn damals verlassen hat und wo er war. Die Antwort ist kurz und trauriger als sonst. Taron merkt, dass die letzten zehn Jahre auch fuer die Stimme schmerzhaft waren, und fragt nicht weiter.
+
+Der Weg zum Turm von Abendriss dauert etwa zwei Tagesritte. Am ersten Abend erreicht Taron die Freie Burg Hohensteg und das Gasthaus Zum Blauen Eber. Er versucht, als Auserwaehlter kostenlos ein Zimmer zu bekommen, scheitert aber an einem sehr praktischen Wirt.
+
+An der Bar trifft Taron Sir Oswin von Hohenklamm: stark, schoen, ein echter Ritter, aber fast immer betrunken. Im Rausch sagt Oswin zu, Taron zu begleiten. Am Morgen behauptet Taron, Oswin habe im Suff zugesagt. Oswin reagiert nur mit: "Nicht schon wieder", begleitet ihn aber.
