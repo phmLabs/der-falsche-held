@@ -1,587 +1,857 @@
-Taron brauchte fast zwei Stunden zurück nach Burg Waldkirch.
+Es gibt viele Arten, wie ein Abenteuer beginnen kann. Mit einem Schwert im Stein, zum Beispiel. Mit einem Drachen am Horizont. Mit einer alten Frau, die einem Kind im Regen ein Amulett überreicht und dann bedeutungsvoll stirbt. Diese Geschichte begann mit einem Eimer Ziegenmilch.
 
-Das war bemerkenswert, weil Martas Haus kaum eine halbe Stunde entfernt lag. Allerdings gilt eine halbe Stunde nur für Menschen mit zwei passenden Stiefeln, gesunden Rippen und dem festen Glauben, dass der eigene Körper eine zusammenhängende Einrichtung sei.
+Genauer gesagt begann sie mit einem Eimer Ziegenmilch, der über den Kopf von Taron Falkenried gegossen wurde, siebzehn Jahre alt, Stallbursche auf Burg Waldkirch, mäßiger Schwertkämpfer, ausgezeichneter Wegläufer und, wie sich später herausstellen sollte, die größte Hoffnung des Königreichs.
 
-Taron besaß an diesem Morgen keines dieser Dinge.
+„Das stimmt nicht“, sagte Taron.
 
-Er humpelte durch den Wald, Martas alten Mantel um die Schultern, ein Stück Brot in der Tasche und Schmerzen an Stellen, von denen er bisher angenommen hatte, sie seien nur für das Sitzen zuständig. Der Nebel lag noch zwischen den Bäumen. Vögel riefen. Irgendwo tropfte Wasser von Blättern.
+Doch. Leider.
 
-Es hätte friedlich sein können.
+„Ich bin keine Hoffnung. Ich bin nicht mal zuverlässig beim Aufstehen.“
 
-Leider war Taron anwesend.
+Das eine schließt das andere nicht aus. Tatsächlich ist es bei Helden erstaunlich oft der Fall.
 
-„Du gehst zu langsam“, sagte der Erzähler.
+Taron stand im inneren Hof von Burg Waldkirch, während Milch aus seinen Haaren tropfte und sich in dünnen weißen Rinnsalen seinen Nacken hinabstahl. Vor ihm stand Elva Kesseldorn mit dem leeren Eimer in der Hand und einem Gesichtsausdruck, der irgendwo zwischen Reue, Genugtuung und der Überlegung lag, ob ein zweiter Eimer die Sache abrunden würde.
 
-„Ich wurde gestern fast gefressen.“
+„Du hast gesagt, die Ziege sei verzaubert“, sagte sie.
 
-„Fast ist ein sehr leistungsfähiges Wort.“
+„War sie auch.“
 
-„Ich hasse dich.“
+Sie war es nicht.
 
-„Das sagtest du bereits. Ich habe es in der Sammlung.“
+„Sie hat mich angesehen, als wüsste sie etwas.“
 
-Taron blieb stehen, lehnte sich an einen Baum und atmete durch die Zähne ein. Jede Bewegung erinnerte ihn daran, dass der Dungeon keine Einbildung gewesen war. Der Hunger von Waldkirch, die blaue Flamme, der Schlag gegen den Altar, der offene Rachen. Alles war noch da, nicht in der Welt vor ihm, aber in seinen Knochen.
+Das tat die Ziege. Ziegen sehen grundsätzlich aus, als wüssten sie etwas. Meistens wissen sie, wo der nächste Stiefel steht, auf den man koten kann.
 
-Trotzdem fühlte es sich unwirklich an.
+„Halt dich da raus“, murmelte Taron.
 
-Vielleicht, dachte Taron, war er nie wirklich zurückgekehrt. Vielleicht lag er noch in Martas Bett und träumte diesen Weg. Vielleicht lag er sogar noch im Dungeon, und dies war nur das seltsame, unhöfliche Jenseits, das Menschen bekamen, die zu oft mit Ziegen stritten.
+Elva blinzelte. „Mit wem redest du?“
 
-„Eine beruhigende Theorie“, sagte der Erzähler.
+„Mit niemandem.“
 
-„Findest du?“
+Das war gelogen, wenn auch verständlich. Taron hatte den größten Teil seines Lebens damit verbracht, nicht mit der Stimme zu reden, die manchmal in seinem Kopf auftauchte. Als Kind hatte er sie für normal gehalten. Andere Kinder hatten eingebildete Freunde, Taron hatte einen eingebildeten Chronisten mit unangenehm genauer Beobachtungsgabe.
 
-„Nein. Aber sie beschäftigt dich, und Beschäftigung ist für den Geist des Verletzten wichtig.“
+Dann hatte er begriffen, dass niemand sonst die Stimme hörte.
 
-„Kannst du aufhören, meine Gedanken zu kommentieren?“
+Danach hatte er gelernt, sie zu verdrängen. Und irgendwann war sie verschwunden.
 
-„Kannst du aufhören, welche zu haben?“
+Bis heute.
 
-Taron ging weiter.
+„Taron Falkenried“, rief Bruder Malchior Tintenfaust vom Rand des Hofes.
 
-Als die Burg zwischen den Bäumen auftauchte, grau und kantig gegen den hellen Himmel, blieb er wieder stehen. Aus der Entfernung sah Burg Waldkirch aus wie etwas, das Ordnung versprach. Mauern, Türme, Banner, ein Tor, Wachgänge. Menschen sahen Burgen gern an und dachten: Schutz.
+Er war ein alter Priester mit einem Bart, der aussah, als hätte er wichtige Dokumente gegessen. In seinen Händen hielt er eine Pergamentrolle, die so brüchig war, dass sie vermutlich schon beleidigt gewesen wäre, wenn man sie nur ansah.
 
-Taron sah dieselbe Burg an und dachte: Dort unten ist ein Monster, und gestern hat man mich hineingeworfen.
+Hinter ihm standen zwei Ritter, drei Novizen, der Burgvogt, mehrere Dienstmägde, ein Bäckerjunge, der eigentlich nur auf dem Weg zur Küche gewesen war, und König Albrecht der Ausreichende, der bei politischen Unannehmlichkeiten die bemerkenswerte Fähigkeit besaß, wie ein Möbelstück zu wirken.
 
-Beides war wahr. Architektur ist oft vieldeutig.
+„Was?“, fragte Taron.
 
-„Was jetzt?“, fragte der Erzähler.
+Bruder Malchior hob die Rolle.
 
-„Ich gehe arbeiten.“
+Das war selten ein gutes Zeichen. In alten Reichen bedeuten erhobene Pergamente meistens, dass jemand anderes gleich sterben muss.
 
-Eine Pause entstand.
+„Wenn der schwarze Stern im Westen sinkt“, las Malchior, „und Milch das Haupt des Namenlosen tränkt, wird jener kommen, der kein König ist, kein Magier, kein Ritter, kein Weiser, doch dessen Schritt das Schicksal stolpern lässt.“
 
-„Das ist dein Plan?“
+Alle sahen Taron an. Taron wischte sich Milch aus dem Auge.
 
-„Ja.“
+„Ich heiße Taron.“
 
-„Du wurdest in ein altes Gewölbe gestoßen, hast ein übermächtiges Monster überlebt, bist auf unerklärliche Weise aus seinem Rachen verschwunden, in einem fremden Haus erwacht, von einer Frau gepflegt worden, die möglicherweise mit einem körperlich vorhandenen Aspekt meiner Person verhandelt hat, und dein Plan ist, Mist zu schaufeln?“
+„Der Namenlose“, sagte Malchior mit ehrfürchtigem Nicken, „leugnet seinen Namen.“
 
-„Genau.“
+„Nein, ich nenne ihn gerade.“
 
-„Erfrischend bodenständig.“
+„Dreifache Demut“, flüsterte einer der Novizen.
 
-„Ich habe das Monster nicht getötet“, sagte Taron und ging auf das Burgtor zu. „Ich bin nicht als Held zurückgekommen. Ich bin entkommen. Irgendwie. Das beweist, dass ich es nicht bin.“
+„Das war einmal.“
 
-„Das wird bestimmt alle überzeugen.“
+„Schon zweimal“, sagte der Novize.
 
-„Diesmal schon.“
+„Hör auf zu zählen.“
 
-Der Erzähler sagte nichts.
+„Dreimal“, hauchte Bruder Malchior.
 
-Das war seine grausamste Form der Zustimmung.
+Taron starrte ihn an.
 
-Am Tor hielt ihn niemand auf. Die Wachen waren damit beschäftigt, gelangweilt zu wirken, was eine wichtige militärische Aufgabe ist, wenn keine unmittelbare Belagerung stattfindet. Einer von ihnen sah kurz auf Tarons zerrissene Kleidung, den falschen Stiefel und die blauen Flecken an seinem Gesicht.
+Es war in diesem Moment, dass die Geschichte eine Richtung einschlug, die jeder vernünftige Mensch hätte vermeiden wollen. Leider waren nicht genug vernünftige Menschen anwesend, und die wenigen, die es waren, arbeiteten in der Küche und wurden selten nach Prophezeiungen gefragt. Elva senkte den Eimer.
 
-„Schwerer Abend?“, fragte er.
+„Oh“, sagte sie.
 
-„Du hast keine Ahnung.“
+„Nein“, sagte Taron.
 
-„Hab ich meistens nicht.“
+„Ich glaube, ich habe gerade Geschichte gemacht.“
 
-Taron nickte. Das war die ehrlichste Begegnung, die er seit gestern gehabt hatte.
+„Du hast gerade Milch verschwendet.“
 
-Er ging durch den Hof. Niemand rief seinen Namen. Niemand fiel auf die Knie. Niemand deutete mit bebender Hand auf ihn und verkündete ein Wunder. Eine Magd trug einen Korb Wäsche vorbei. Ein Schmied schimpfte über Kohlepreise. Zwei Kinder jagten ein Holzrad über die Steine.
+Beides war richtig, wobei das eine später in Liedern vorkam und das andere nur in der Abrechnung der Küche.
 
-Für einen fast ganzen Atemzug glaubte Taron, die Welt habe beschlossen, wieder vernünftig zu werden.
+Bruder Malchior trat vor. Seine Augen glänzten.
 
-Dann tat seine Rippe weh.
+„Taron Falkenried. Träger des Falkennamens. Haupt der Milch. Leugner in dreifacher Demut. Die Zeichen sind erfüllt.“
 
-Es war eine kleine Erinnerung daran, dass Vernunft in dieser Geschichte nur zu Besuch war.
+„Das sind keine Zeichen. Das ist ein Unfall mit einer Ziege.“
 
-Taron erreichte den Stall, stellte fest, dass seine alte Mistgabel noch an der Wand hing, und empfand darüber eine Erleichterung, die einem schlechteren Menschen peinlich gewesen wäre. Ihm war sie nur halb peinlich. Er nahm die Gabel, ging in die erste Box und begann auszumisten.
+„Das Schicksal arbeitet durch einfache Gefäße.“
 
-Der Geruch war vertraut. Das Gewicht der Gabel war vertraut. Das feuchte Stroh, die warmen Pferdeleiber, das Schnauben, das Klopfen von Hufen gegen Holz. Alles an diesem Ort sagte: Hier bist du niemand Besonderes.
+„Der Eimer war nicht einfach, der hatte ein Loch.“
 
-Taron hätte den Stall in diesem Augenblick küssen können, wenn er nicht vernünftigerweise dagegen gewesen wäre, Dinge zu küssen, die seit Jahren Pferde beherbergten.
+„Auch das“, sagte Malchior, „ist bedeutsam.“
 
-„Ein bewegender Moment“, sagte der Erzähler.
+Taron öffnete den Mund. Dann schloss er ihn wieder.
 
-„Sag nichts.“
+Es gibt Niederlagen, die entstehen nicht durch Schwerter, Feuer oder Verrat, sondern durch das plötzliche Verständnis, dass der Gegner aus jedem Satz, den man sagt, Munition herstellen kann.
 
-„Ich bewundere nur, wie schnell ein Mensch nach einer Begegnung mit dem Tod wieder zur Abfallwirtschaft zurückfinden kann.“
+König Albrecht räusperte sich.
 
-„Das nennt man Arbeit.“
+„Bruder Malchior, seid Ihr sicher?“
 
-„Manche nennen es Verdrängung.“
+„So sicher, wie man bei einer Abschrift aus dem Zeitalter der Tränen sein kann, Majestät.“
 
-„Manche können den Mund halten.“
+Das war eine ehrliche Antwort und deshalb in königlichen Angelegenheiten völlig unbrauchbar.
 
-„Ich kenne solche Menschen. Du gehörst nicht dazu.“
+„Und wie sicher ist das?“
 
-Taron stach die Gabel ins Stroh. Sein Körper protestierte sofort. Er ignorierte ihn, weil Körper bei jeder Gelegenheit übertreiben, besonders wenn sie recht haben.
+Malchior sah auf die Rolle. „Die ursprüngliche Fassung wurde bei einem Brand beschädigt, von einem blinden Mönch rekonstruiert, später ins Altwestliche übertragen und dann vermutlich von jemandem kommentiert, der Wein über die dritte Strophe verschüttet hatte.“
 
-Er hatte gerade die zweite Schubkarre gefüllt, als der Burgvogt in den Stall trat.
+„Also sehr sicher“, sagte der König.
 
-Vogt Hademar von Prunkel war ein Mann mit spitzem Bart, breitem Gürtel und dem ständigen Ausdruck eines Menschen, der seit Jahren versucht, eine schlecht geführte Welt durch Listen zu besiegen. Er kam mit schnellen Schritten herein, blieb stehen und sah Taron an.
+„Im geistlichen Sinne, ja.“
 
-Taron sah zurück.
+Taron hob die Hand. „Entschuldigung. Ich möchte im ungeistlichen Sinne widersprechen.“
 
-Für einen Moment sagte keiner von beiden etwas.
+„Der Auserwählte widerspricht“, flüsterte ein Novize.
 
-Ein Pferd schnaubte.
+„Natürlich widerspricht er“, sagte Malchior. „Ein wahrer Held erkennt seine Last nicht sofort.“
 
-Dann wurde Hademar sehr blass.
+„Ich erkenne sie sehr gut. Sie ist wahnsinnig und tropft mir in den Kragen.“
 
-„Bei Sankt Modrins wundem Sitzfleisch“, sagte er langsam, „so soll mich doch der Donner in die Latrine setzen.“
+Der Erzähler schwieg.
 
-Taron lehnte sich auf die Mistgabel. „Guten Morgen.“
+Das war ungewöhnlich.
 
-„Du bist tot.“
+Taron hatte die Stimme seit Jahren nicht gehört, und nun war sie zurückgekehrt, gerade rechtzeitig, um ihn öffentlich zu ruinieren. Er wartete auf eine spitze Bemerkung. Auf ein kühles Urteil. Auf irgendetwas.
 
-„Offensichtlich nicht.“
+Nichts.
 
-„Du solltest tot sein.“
+Er fand das beinahe schlimmer.
 
-„Das ist unfreundlich.“
+„Es muss einen Beweis geben“, sagte der Burgvogt.
 
-„Das ist Verwaltung.“ Hademar machte einen Schritt näher und kniff die Augen zusammen, als könne Taron bei genauerer Betrachtung doch noch verschwinden. „Wir haben dein Ableben bereits vorläufig vermerkt.“
+Taron drehte sich zu ihm. „Ja. Genau. Einen Beweis. Einen ordentlichen Beweis. Einen Beweis, dass ich es nicht bin.“
 
-„Dann streicht es vorläufig wieder.“
+„Ein Beweis“, sagte Bruder Malchior langsam, „dass Ihr es seid.“
 
-„Man streicht Ableben nicht einfach wieder.“
+„Nein, das Gegenteil davon.“
 
-„Ich helfe gern mit.“
+„Das Gegenteil eines göttlichen Zeichens ist oft nur ein tieferes göttliches Zeichen.“
 
-Hademar öffnete den Mund. Schloss ihn. Öffnete ihn wieder. Dies war bei ihm ein Zeichen schwerer geistiger Überlastung. Normalerweise ließ er Worte in geordneten Reihen antreten, bevor sie seinen Mund verließen. Nun drängelten sie.
+„Das ist kein Satz. Das ist Nebel mit Schuhen.“
 
-„Du bist aus dem Gewölbe zurückgekehrt.“
+Der König hob eine Hand. „Genug. Wenn der Junge der Auserwählte ist, wird er die Prüfung bestehen.“
+
+„Welche Prüfung?“, fragte Taron.
+
+Der König sah zum Burgvogt. Der Burgvogt sah zu Bruder Malchior. Bruder Malchior sah zum Boden.
+
+Das war der Moment, in dem Taron verstand, dass bereits eine Prüfung existierte und dass niemand, der sie kannte, Lust hatte, sie zuerst auszusprechen.
+
+„Unter Burg Waldkirch“, sagte Malchior schließlich, „liegt ein altes Gewölbe.“
 
 „Nein.“
 
-„Doch.“
-
-„Ich bin aus einem Haus zurückgekehrt.“
-
-„Aber vorher warst du im Gewölbe.“
-
-„Unfreiwillig.“
-
-„Und jetzt bist du hier.“
-
-„Auch unfreiwillig, je nach Länge dieses Gesprächs.“
-
-Hademar griff nach Tarons Ärmel.
-
-„Du kommst mit.“
-
-„Ich arbeite.“
-
-„Du bist ein Wunder.“
-
-„Ich bin Stallbursche.“
-
-„Seit heute“, sagte Hademar mit wachsender Panik, „bist du ein politisches Problem mit Beinen.“
-
-Das war unfair.
-
-Es war aber nicht ungenau.
-
-Der Vogt zog Taron aus dem Stall. Taron ließ die Mistgabel fallen. Ein Teil von ihm wollte sich daran festklammern. Ein anderer Teil wusste, dass selbst eine Mistgabel in dieser Burg vermutlich binnen Minuten zu einem heiligen Zeichen erklärt worden wäre.
-
-„Das ist nicht nötig“, sagte Taron, während Hademar ihn über den Hof zerrte.
-
-„Doch.“
-
-„Ich habe das Monster nicht getötet.“
-
-„Du lebst.“
-
-„Das ist nicht dasselbe.“
-
-„Für Prophezeiungen ist es nah genug.“
-
-„Das ist genau das Problem mit Prophezeiungen.“
-
-„Nein“, sagte Hademar. „Das Problem mit Prophezeiungen ist, dass sie immer zu Zeiten auftreten, in denen der Haushalt ohnehin angespannt ist.“
-
-Damit hatte er einen Punkt.
-
-Das Königreich Lichtenhain war nicht arm, wenn man es mit wirklich armen Reichen verglich. Es besaß Felder, Wälder, eine Münzstätte, drei brauchbare Brücken und eine königliche Schatzkammer, in der früher tatsächlich Schätze gelegen hatten.
-
-Das Problem war, dass König Albrecht der Ausreichende in den letzten Jahren erhebliche Mittel in die Lösung des Monsterproblems investiert hatte.
-
-Mit „Lösung“ war gemeint: Ritter in den Dungeon schicken.
-
-Mit „investiert“ war gemeint: verlieren.
-
-Die besten Ritter waren zuerst gegangen, in polierten Rüstungen und mit gesegneten Schwertern. Danach kamen die zweitbesten. Dann die ehrgeizigen. Dann die überschätzten. Dann ein Grafensohn, den niemand mochte, was die allgemeine Trauer deutlich vereinfachte. Schließlich waren nur noch Ritter übrig geblieben, die entweder zu alt, zu teuer oder zu ehrlich über ihre Überlebenschancen waren.
-
-Nun gab es im Reich viele leere Rüstungsständer, viele Witwen, sehr wenig Heldenglanz und einen überraschend großen Bestand an feierlichen Helmen ohne Besitzer.
-
-„Das erwähnst du jetzt?“, zischte Taron.
-
-„Ich hielt es für atmosphärisch passend“, sagte der Erzähler.
-
-„Sie haben die guten Ritter an das Monster verfüttert?“
-
-„Verfüttert ist ein hartes Wort.“
-
-„Welches Wort würdest du nehmen?“
-
-„Ressourcenfehlleitung.“
-
-„Ich hasse euch wirklich alle.“
-
-Hademar stieß die Tür zum kleinen Thronsaal auf.
-
-König Albrecht stand gerade vor einem Tisch, auf dem mehrere Karten, zwei Kerzenstummel, ein angebissener Apfel und ein königlicher Siegelstempel lagen. Bruder Malchior war ebenfalls da. Er hielt bereits eine Pergamentrolle in den Händen, was bedeutete, dass entweder eine wichtige Entscheidung bevorstand oder ein großes Unglück schon begonnen hatte.
-
-Als der König Taron sah, hellte sich sein Gesicht auf.
-
-Es war kein vorsichtiges Aufhellen. Es war die Art von Freude, die ein Mensch zeigt, wenn ein Problem von selbst zur Tür hereinkommt und noch atmet.
-
-„Er lebt!“, rief König Albrecht.
-
-„Ja“, sagte Taron. „Darüber wollte ich sprechen.“
-
-„Der Auserwählte lebt!“
-
-„Nicht deswegen.“
-
-Bruder Malchior sank auf die Knie. „Die Prüfung ist bestanden.“
+„Darin haust eine Kreatur.“
 
 „Nein.“
 
-„Er leugnet es noch immer“, sagte Malchior ergriffen.
+„Der Hunger von Waldkirch.“
 
-„Weil es falsch ist.“
+„Sehr nein.“
 
-„Treue zur Demut bis nach dem Wunder.“
+„Seit Generationen wird erzählt, dass nur der Auserwählte ihm gegenübertreten und lebend zurückkehren kann.“
 
-„Ich habe kein Wunder vollbracht.“
+Taron sah in die Gesichter um sich herum. Einige waren feierlich. Einige verängstigt. Einige neugierig. Der Bäckerjunge wirkte, als hoffe er, dass alles schnell vorbei wäre, weil der Teig wartete.
 
-Der König trat zu Taron und fasste ihn an den Schultern. Taron gab ein Geräusch von sich, das in besseren Zeiten ein Schrei gewesen wäre, aber aus Rücksicht auf seine Rippen nur als sehr angespannte Silbe herauskam.
+„Und wie viele sind bisher lebend zurückgekehrt?“, fragte Taron.
 
-„Mein Junge“, sagte Albrecht. „Du hast dem Reich Hoffnung gebracht.“
+Niemand antwortete.
 
-„Ich habe eine Schubkarre halb voll Mist stehen lassen.“
+„Das ist eine Zahl, die ich gern hören würde.“
 
-„So beginnen viele große Wege.“
+„Zahlen“, sagte Bruder Malchior, „können den Glauben verwirren.“
 
-„Nein. Tun sie nicht.“
+„Null, oder?“
 
-„Doch“, sagte der Erzähler.
+„Nicht im geistlichen Sinne.“
 
-„Du bist nicht gefragt.“
+„Im körperlichen.“
 
-Der König blinzelte. „Wie bitte?“
+Malchior schwieg.
 
-„Nicht Ihr.“
+„Da haben wir sie“, sagte Taron. „Die körperliche Null.“
 
-Albrecht nickte verständnisvoll. „Die Stimme der Bestimmung spricht bereits durch ihn.“
+Der König machte ein unglückliches Gesicht. Er war kein grausamer Mann. Das machte es für Taron nicht besser. Grausame Männer konnte man hassen. Bequeme Männer musste man überleben.
 
-Taron sah Bruder Malchior an. „Sagt ihm, dass das Unsinn ist.“
+„Taron Falkenried“, sagte König Albrecht, „wenn du wirklich der bist, den die Prophezeiung nennt, wird dich das Schicksal schützen.“
 
-Malchior hatte Tränen in den Augen.
+„Und wenn nicht?“
 
-Taron schloss den Mund.
+„Dann“, sagte der König nach einer Pause, „hat sich die Sache geklärt.“
 
-Manche Schlachten sind verloren, bevor sie anfangen. Manche sind verloren, weil ein alter Priester weint.
+Eine elegante Formulierung für ein hässliches Vorhaben. Könige beherrschen so etwas früh. Zwei Ritter traten neben Taron.
 
-„Ich habe das Monster nicht getötet“, sagte Taron langsam. Er sprach jedes Wort einzeln aus, als lege er Steine auf einen Tisch. „Ich bin weggerannt. Dann bin ich fast gestorben. Dann war ich plötzlich woanders. Das beweist, dass ich nicht der Held bin.“
+„Ich möchte festhalten“, sagte Taron, „dass ich dagegen bin.“
 
-Der König hörte aufmerksam zu.
+„Festgehalten“, sagte der Erzähler.
 
-Zumindest machte er das Gesicht dafür.
+Taron zuckte zusammen.
 
-„Er wurde entrückt“, sagte Malchior.
+Die Stimme war wieder da. Kühl. Nah. Trocken wie alter Staub.
 
-„Ich wurde was?“
+„Wo warst du?“, zischte Taron.
 
-„Entrückt. Dem Tod entzogen. Herausgenommen aus der Prüfung, weil seine Aufgabe nicht dort enden durfte.“
-
-„Oder“, sagte Taron, „jemand hat mich gerettet.“
-
-„Ein Bote des Schicksals.“
-
-„Ein Mann mit Mantel.“
-
-Malchior sog die Luft ein.
-
-„Der Mantelbote.“
-
-„Nein.“
-
-„Majestät“, sagte Malchior, „wir stehen vor einer Erweiterung der Zeichen.“
-
-„Wir stehen vor einem Missverständnis mit Beinen“, sagte Taron.
-
-„Ich sagte doch“, murmelte Hademar.
-
-König Albrecht hob beide Hände. „Genug. Ob durch Wunder, Mantel, Bote oder andere verwaltungstechnisch schwer erfassbare Mittel: Taron Falkenried hat die Prüfung überlebt. Das Volk braucht Hoffnung. Das Reich braucht einen Auserwählten. Und offenbar haben wir einen.“
-
-„Ihr hört mir absolut nicht zu“, sagte Taron.
-
-„Doch“, sagte der König milde. „Ich höre einen bescheidenen jungen Mann, der die Größe seines Auftrags noch nicht begreifen möchte.“
-
-Taron sah ihn an.
-
-Dann sah er Malchior an.
-
-Dann Hademar.
-
-Dann den Siegelstempel, den Apfel, die Karten, die Pergamentrolle und den kleinen Riss in der Wand hinter dem Thron, der ihm plötzlich vernünftiger erschien als alle Menschen im Raum.
-
-„Ich gebe auf“, sagte Taron.
-
-„Ein weiser erster Schritt“, sagte der Erzähler.
+Elva sah ihn an. „Taron?“
 
 „Nicht du.“
 
-„Auch das“, sagte Malchior leise, „ist ein Zeichen.“
+Die Ritter packten ihn an den Armen.
 
-Es dauerte nicht lange, Taron neu einzukleiden.
+„Ich hatte zu tun“, sagte der Erzähler.
 
-Das lag nicht daran, dass die Burg gut vorbereitet war. Sie war im Gegenteil schlecht vorbereitet, wie Burgen oft sind, wenn etwas wirklich geschieht. Es lag daran, dass nicht mehr viel Auswahl vorhanden war.
+„Womit?“
 
-„Das Beste, was wir übrig haben“, sagte König Albrecht.
+„Mit Beobachten. Das ist eine anspruchsvolle Tätigkeit, wenn jemand so konsequent schlechte Entscheidungen trifft.“
 
-Taron betrachtete den Haufen auf dem Tisch.
+„Das sind nicht meine Entscheidungen!“
 
-Es war ein grüner Waffenrock, dessen Wappen entfernt worden war, allerdings nicht vollständig. Darunter schimmerte noch der Umriss eines springenden Hirsches, der nun aussah, als habe er in einem Streit mit einer Waschfrau verloren. Dazu kamen eine Lederrüstung mit einer Delle über dem Bauch, ein Paar Handschuhe in leicht verschiedenen Brauntönen, ein Gürtel mit zu vielen Löchern und ein Helm, der vermutlich einmal sehr teuer gewesen war, bevor jemand mit einem Streitkolben anderer Meinung gewesen war.
+„Das ist eine großzügige Auslegung.“
 
-„Das ist das Beste?“, fragte Taron.
+„Mit wem redet er?“, fragte der Burgvogt.
 
-Hademar richtete sich auf. „Das Reich hat schwierige Jahre hinter sich.“
+Bruder Malchior faltete die Hände. „Mit dem Schicksal.“
 
-„Wegen der Ritter, die Ihr ins Monster geworfen habt?“
+„Mit niemandem!“, rief Taron.
 
-„Das war eine militärisch-geistliche Initiative.“
+„Der Auserwählte spricht bescheiden“, sagte Malchior.
 
-„Hat sie funktioniert?“
+„Ich hasse euch alle.“
 
-Hademar sah zum König.
+„Vor allem bescheiden“, sagte der Erzähler.
 
-Der König sah zu Malchior.
+Die Ritter führten Taron durch den Hof, vorbei an Elva. Sie war blass geworden.
 
-Malchior sah zur Decke.
+„Taron“, sagte sie leise.
 
-„Wir haben viel gelernt“, sagte der Priester.
+„Es ist nicht deine Schuld“, sagte er.
 
-„Wie viele Menschen in ein Monster passen?“
+Das war freundlich von ihm. Es war auch falsch, aber Freundlichkeit und Wahrheit sind nicht immer zur selben Stunde verfügbar. Elva öffnete den Mund, als wolle sie etwas sagen. Eine Entschuldigung vielleicht. Oder einen Plan. Oder irgendeinen Satz, der die Welt wieder in eine vernünftige Form drückte. Aber die Welt blieb unvernünftig.
 
-„Zum Beispiel“, sagte der Erzähler.
+Die Ritter brachten Taron durch einen Seitengang in den ältesten Teil der Burg. Die Mauern wurden dicker, die Luft kälter, die Fackeln seltener. Unter Burg Waldkirch lagen Keller, unter den Kellern lagen Gewölbe, und unter den Gewölben lagen Orte, die man nicht mehr reparierte, weil niemand lange genug dort blieb, um sich über Feuchtigkeit zu beschweren. Vor einer schwarzen Eisentür blieben sie stehen.
 
-Taron zog den Waffenrock über. Er war zu weit an den Schultern und zu eng an der Stelle, wo seine Rippen sich daran erinnerten, gestern gegen Stein geschlagen zu sein. Die Lederrüstung roch nach altem Schweiß, Weihrauch und Enttäuschung.
+Auf der Tür waren Zeichen eingeritzt. Einige sahen aus wie Schutzrunen. Andere wie Warnungen. Eine sehr deutliche Kerbe erinnerte an einen Menschen, der versucht hatte, sich mit bloßen Fingern herauszugraben.
 
-Der Helm saß schief.
+„Erfreulich“, sagte der Erzähler.
 
-„Würdevoll“, sagte Malchior.
+„Was?“
 
-„Er sieht aus wie ein bestrafter Kleiderständer“, sagte der Erzähler.
+„Die Tür ist noch ganz.“
 
-„Ich weiß“, murmelte Taron.
+„Das ist erfreulich?“
 
-„Was wisst Ihr?“, fragte der König.
+„Für die Menschen auf dieser Seite, ja.“
 
-„Dass es würdevoll ist.“
+Einer der Ritter schloss auf. Der andere murmelte ein Gebet. Es war kein kurzes Gebet. Das beunruhigte Taron.
 
-Das war der Augenblick, in dem Taron begriff, wie schnell ein Mensch innerlich sterben konnte, ohne dadurch nennenswerte Vorteile zu erhalten.
+„Kann ich wenigstens ein Schwert haben?“, fragte er.
 
-Bruder Malchior entrollte die Prophezeiung auf dem Tisch. Diesmal lagen kleine Steine an den Ecken, damit das Pergament nicht zurückschnappte und jemanden verletzte. Auch das hatte es offenbar schon getan.
+Die Ritter sahen einander an.
 
-„Nun“, sagte Malchior. „Da die Prüfung bestanden ist, muss der Auserwählte den Weg des Falken antreten.“
+„Ein Messer?“
 
-„Ich würde lieber den Weg des Stalls antreten.“
+Schweigen.
 
-„Der Weg des Falken führt nach Westen.“
+„Einen spitzen Löffel?“
 
-„Der Stall liegt östlich.“
+Der Burgvogt, der mitgekommen war, reichte ihm schließlich eine rostige Kurzspeerstange, deren Spitze aussah, als hätte sie schon vor Jahren das Interesse an Gewalt verloren.
 
-„Dort, wo der schwarze Stern sank“, fuhr Malchior fort, „steht der Turm von Abendriss. In seinem Schatten ruht der erste Splitter der Nachtkrone. Der Auserwählte muss ihn bergen, bevor die dritte Glocke des Mondes schweigt.“
+„Danke“, sagte Taron. „Damit kann ich das Monster beleidigen, bevor es mich frisst.“
 
-Taron wartete.
+„Mutig“, sagte Bruder Malchior, der ebenfalls erschienen war und nun mit leuchtenden Augen neben der Tür stand.
 
-Malchior sah bedeutungsvoll in die Runde.
+„Das war kein Mut.“
 
-Der König nickte ernst.
+„Er benennt seine Tugend nicht.“
 
-Hademar schrieb etwas auf.
+„Weil sie nicht da ist.“
 
-„War das die Erklärung?“, fragte Taron.
+„Tiefste Demut.“
 
-„Ja.“
+Taron sah zum Himmel, der durch die Kellerdecke nicht zu sehen war. „Falls irgendjemand Göttliches zuhört: Ich bin gegen diese Auslegung.“
 
-„Das war keine Erklärung. Das waren Wörter, die sich in einer dunklen Gasse getroffen haben.“
+„Notiert“, sagte der Erzähler.
 
-Malchior lächelte geduldig. „Der Turm von Abendriss liegt drei Tagesritte westlich. Dort findet Ihr den Splitter.“
+Die Tür öffnete sich.
 
-„Was ist die Nachtkrone?“
+Der Geruch kam zuerst. Er war alt, feucht und sauer, mit etwas darunter, das nach Hunger roch. Nicht nach Fleisch, nicht nach Blut. Nach Hunger selbst, als hätte jemand ein Bedürfnis in einen Raum gesperrt und jahrzehntelang gefüttert, aber nie satt gemacht.
 
-„Ein altes Artefakt.“
+Taron trat nicht freiwillig hinein. Das sollte erwähnt werden, weil spätere Lieder diesen Teil ausließen.
 
-„Was macht sie?“
+Die Ritter stießen ihn. Er stolperte über die Schwelle, fing sich an der Speerstange, drehte sich um und sah gerade noch, wie die Tür wieder zufiel.
 
-„Sie krönt die Nacht.“
+Der Riegel schob sich von außen vor.
 
-„Das ist keine Antwort.“
+„Ich bin nicht der Auserwählte!“, schrie Taron.
 
-„Eine sehr wörtliche“, sagte der Erzähler.
+Von der anderen Seite kam Bruder Malchiors Stimme: „Dann beweist es, indem Ihr zurückkehrt!“
 
-„Und was passiert, wenn ich nicht gehe?“
+„Das ergibt keinen Sinn!“
 
-Der König wurde still.
+„Der Sinn göttlicher Prüfungen“, rief Malchior, „offenbart sich selten vor ihrem Ende!“
 
-Malchior senkte die Augen.
+„Weil alle vorher tot sind!“
 
-Hademar hörte auf zu schreiben.
+Stille.
 
-Für einen Moment spürte Taron etwas anderes im Raum. Nicht nur Unsinn. Nicht nur religiöse Aufregung und königliche Bequemlichkeit. Angst.
+Dann sagte der Erzähler: „Eine starke These.“ Taron atmete langsam aus.
 
-„Dann“, sagte König Albrecht leise, „wird das Volk erfahren, dass wir keinen Auserwählten haben.“
+Vor ihm lag Dunkelheit. Nicht vollständige Dunkelheit. Das wäre einfacher gewesen. Hier und da glommen alte Lichtsteine in den Wänden, schwach und grünlich, gerade hell genug, um Formen anzudeuten und die Vorstellungskraft mit Material zu versorgen. Der Gang führte abwärts. Etwas kratzte in der Ferne.
 
-„Das wäre wahr.“
+„Was ist das?“, flüsterte Taron.
 
-„Wahrheit“, sagte der König, „ist nicht immer nahrhaft.“
+„Vermutlich nichts.“
 
-Taron wollte widersprechen.
+„Wirklich?“
 
-Aber er dachte an die leeren Rüstungsständer. An die Wachen am Tor. An die Menschen im Hof, die einfach weitergearbeitet hatten, weil irgendjemand weiterarbeiten musste, auch wenn unter der Burg ein Hunger wohnte und über dem Reich alte Prophezeiungen wie nasse Wäsche hingen.
+„Nein.“
 
-Er dachte an Marta, die gesagt hatte, dass wichtige Dinge meistens nicht weglaufen, wenn man vorher kaut.
+Taron umklammerte die Speerstange.
 
-Das half nicht, aber es war immerhin ein Gedanke ohne Pergament.
+„Du bist allwissend“, sagte er. „Sag mir, wie ich hier rauskomme.“
 
-„Ich reite nach Westen“, sagte Taron.
+„Durch die Tür.“
 
-Malchior atmete aus, als hätte er seit Jahrhunderten darauf gewartet.
+„Die ist abgeschlossen.“
 
-„Der Auserwählte nimmt den Weg an.“
+„Dann nicht durch die Tür.“
 
-„Ich nehme gar nichts an. Ich reite ein Stück und sehe mir diesen Turm an. Dann komme ich zurück und erkläre, dass es ein weiterer Irrtum war.“
+„Hilfst du mir eigentlich?“
 
-„Natürlich“, sagte der König mit jener Milde, mit der Erwachsene Kindern zuhören, die erklären, wie sie das Wetter verbessern würden.
+„Ich kommentiere.“
 
-Taron hasste ihn dafür ein wenig.
+„Das ist keine Hilfe.“
 
-Eine Stunde später stand er vor dem Burgtor.
+„Für manche Leser schon.“
 
-Man hatte ihm ein Pferd gegeben. Es hieß Kummer, was Taron für ehrlich hielt. Kummer war alt, braun, geduldig und besaß den Gesichtsausdruck eines Pferdes, das schon viele menschliche Pläne überlebt hatte. Taron konnte reiten. Nicht herrschaftlich, nicht mit wehenden Bannern, aber ordentlich genug, um oben zu bleiben, solange niemand erwartete, dass Pferd und Reiter dabei inspiriert aussahen.
+„Welche Leser?“
 
-Elva stand am Rand des Hofes.
+Der Erzähler schwieg. Taron hasste es, wenn er das tat. Er hasste es besonders, weil er nicht wusste, ob die Stimme wirklich schwieg oder ob er sich nur weigerte, sie zu hören. Er ging weiter.
 
-Sie sagte nichts.
+Der Gang öffnete sich in eine Halle. Die Decke verschwand in der Dunkelheit. Säulen standen schief im Boden wie alte Zähne. Überall lagen Knochen. Manche von Tieren. Manche nicht. In der Mitte der Halle befand sich ein Kreis aus schwarzen Steinen, und darin etwas, das einmal eine Kette gewesen war. Die Kette war gerissen.
 
-Taron auch nicht.
+„Das ist schlecht“, sagte Taron.
 
-Manchmal passen Entschuldigungen nicht durch die Luft zwischen zwei Menschen. Dann bleiben sie stecken und werden schwer.
+„Eine erstaunlich präzise Zusammenfassung.“
 
-Schließlich hob Elva die Hand.
+Etwas bewegte sich hinter einer Säule. Taron hob die Speerstange.
 
-Taron nickte.
+„Ich möchte dich warnen“, sagte der Erzähler.
 
-Bruder Malchior trat vor und gab ihm einen Beutel.
+„Endlich.“
 
-„Proviant.“
+„Du hältst die stumpfe Seite nach vorn.“
 
-„Ist er gesegnet?“
+Taron drehte die Stange.
 
-„Selbstverständlich.“
+In diesem Augenblick sprang der Hunger von Waldkirch aus der Dunkelheit. Er war zu groß.
 
-„Schmeckt man das?“
+Das war Tarons erster Gedanke. Nicht hässlich, nicht schrecklich, nicht unheilig. Zu groß. Zu groß für den Raum, zu groß für die Welt unter der Burg, zu groß für irgendeinen Plan, der mit einem Stallburschen und einer rostigen Waffe begann.
 
-„Nur, wenn der Glaube stark ist.“
+Die Kreatur hatte lange Vorderarme, deren Gelenke falsch herum wirkten. Ihr Rücken war mit grauen Platten bedeckt, dazwischen klafften alte Narben. Ihr Kopf war schmal, die Augen milchig, der Mund viel zu breit. Aus ihm kam ein leises, feuchtes Klicken. Taron warf die Speerstange. Sie traf das Monster am Kopf, prallte ab und fiel zu Boden.
 
-„Also nein.“
+Eine kurze Pause entstand.
 
-„Außerdem“, sagte Hademar, „sind darin zwei Äpfel, ein Stück Hartkäse, drei Brote, ein gesalzener Fisch und eine Liste der Dinge, die Ihr auf keinen Fall verlieren solltet.“
+„Beeindruckend“, sagte der Erzähler.
 
-„Was steht auf der Liste?“
+„Wirklich?“
 
-„Die Liste.“
+„Nein.“
 
-Taron steckte den Beutel weg.
+Taron rannte.
 
-König Albrecht hob die Hand. „Reitet, Taron Falkenried. Reitet für Lichtenhain. Reitet für Waldkirch. Reitet für alle, die noch hoffen.“
+Das war die erste vernünftige Handlung dieses Kapitels. Er stürzte durch einen Seitengang, rutschte auf feuchtem Stein aus, schlug mit der Schulter gegen eine Wand und hörte hinter sich, wie das Monster in die Halle krachte. Die Säulen ächzten. Steine fielen. Etwas Großes zwängte sich in den Gang.
 
-„Und für jene“, ergänzte der Erzähler, „die keine bessere Personalplanung besitzen.“
+„Links“, sagte der Erzähler.
 
-Taron trieb Kummer an.
+Taron bog rechts ab.
 
-Das Burgtor öffnete sich. Die Menschen im Hof sahen ihm nach. Einige verneigten sich. Einer der Novizen weinte. Der Bäckerjunge kaute auf etwas und wirkte zufrieden, diesmal rechtzeitig am Geschehen beteiligt zu sein.
+Vor ihm endete der Gang in einer Mauer.
 
-Taron ritt hinaus.
+„Ich sagte links.“
 
-Die Straße führte nach Westen, zwischen Feldern hindurch, dann über einen kleinen Hügel. Er hielt sich gerade, solange er wusste, dass man ihn von der Burg aus sehen konnte. Der Helm drückte. Die Rippen schmerzten. Kummer ging in einem Tempo, das man wohlwollend als nachdenklich bezeichnen konnte.
+„Du lügst dauernd!“
 
-„Ein majestätischer Aufbruch“, sagte der Erzähler.
+„Das macht meine wahren Aussagen nicht automatisch falsch.“
 
-„Halt den Mund.“
+Taron wirbelte herum. Das Monster kam näher. Es kroch jetzt, weil der Gang zu niedrig war, aber das machte es nicht langsamer. Seine Krallen fanden Halt im Stein. Taron tastete an der Wand entlang. Nichts. Keine Tür, kein Hebel, kein heiliger Ausgang für fälschlich Beschuldigte.
 
-„Die Haltung ist gut. Der linke Fuß wirkt verzweifelt.“
+„Oben“, sagte der Erzähler.
 
-„Ich sagte: Halt den Mund.“
+Taron sah hoch. Ein Lüftungsschacht.
 
-Taron erreichte den Hügelkamm.
+„Da passe ich nicht rein!“
 
-Hinter ihm wurde Burg Waldkirch kleiner. Die Banner waren nur noch Farbflecken. Die Menschen im Hof konnten ihn nicht mehr sehen.
+„Nicht mit dieser Einstellung.“
 
-Taron ritt noch zwanzig Schritte weiter.
+Das Monster stieß ein Geräusch aus, das irgendwo zwischen Schrei und Lachen lag. Taron sprang, bekam den Rand des Schachts zu fassen und zog sich hoch. Für einen Augenblick hing er dort, die Füße strampelnd, während unter ihm Klauen durch die Luft schnitten. Eine erwischte seinen Stiefel und riss ihn ab.
 
-Dann hielt er an.
+„Das war mein guter Stiefel!“
 
-Er stieg ab, was mehr einem kontrollierten Herunterfallen glich, setzte sich an den Rand der Straße und öffnete den Proviantbeutel.
+„Du hattest keinen guten Stiefel.“
 
-„Du machst Pause“, sagte der Erzähler.
+Taron trat mit dem freien Fuß nach unten. Das Monster schnappte. Seine Zähne schlossen sich dort, wo gerade noch Tarons Ferse gewesen war. Mit einem heiseren Laut zog Taron sich in den Schacht. Er kroch. Der Schacht war eng, staubig und voller Spinnweben. Er roch nach kaltem Stein und etwas, das schon lange tot war und darüber nicht hinwegkam. Hinter ihm scharrte das Monster an der Wand. Der Stein bebte. Taron kroch schneller.
 
-„Ich bin losgeritten.“
+„Wohin führt das?“, keuchte er.
 
-„Seit ungefähr sieben Minuten.“
+„In Sicherheit.“
 
-„Ein sehr schwerer Teil der Reise.“
+„Wirklich?“
 
-„Du bist außer Sichtweite geritten und hast dich hingesetzt.“
+„Für eine sehr großzügige Definition von Sicherheit.“
 
-Taron biss in eines der Brote.
+Der Schacht brach unter ihm weg. Taron fiel. Er landete in Wasser, das so kalt war, dass seine Seele kurz überlegte, den Körper zu verlassen und bessere Bedingungen auszuhandeln. Er tauchte prustend auf, schlug um sich und fand Boden unter den Füßen. Das Wasser reichte ihm bis zur Brust. Über ihm krachte etwas. Das Monster hatte den Schacht erreicht.
 
-Es war trocken, aber nicht beleidigend trocken. Das war für königlichen Proviant mehr, als man erwarten durfte.
+Taron watete durch den unterirdischen Kanal. Jeder Schritt zog an seinen Beinen. Seine Schulter brannte. Sein Atem ging stoßweise. Er hatte einen Stiefel, keine Waffe und eine Stimme im Kopf, die gelegentlich hilfreich war, aber nur, wenn man bereit war, dafür gedemütigt zu werden.
 
-„Ich plane“, sagte Taron mit vollem Mund.
+„Ich werde sterben“, sagte Taron.
 
-„Du isst.“
+„Irgendwann.“
 
-„Planend.“
+„Heute!“
 
-Kummer rupfte Gras am Straßenrand. Der Wind strich über die Felder. In der Ferne lag der Westen, wo angeblich ein Turm namens Abendriss stand und ein Splitter der Nachtkrone auf ihn wartete.
+„Das ist noch offen.“
 
-Taron kaute langsam.
+„Das klingt besser.“
 
-„Ich werde nicht sterben für eine Prophezeiung, die von einem blinden Mönch und einem Weinfleck zusammengestellt wurde“, sagte er.
+„Nicht viel.“
 
-„Ein vernünftiger Entschluss.“
+Vor ihm teilte sich der Kanal.
 
-Taron sah misstrauisch auf. „Du stimmst mir zu?“
+„Links oder rechts?“, fragte Taron.
 
-„Gelegentlich geschieht auch mir ein Unglück.“
+„Rechts.“
 
-Taron nahm noch einen Bissen.
+Taron blieb stehen.
 
-Für einen Moment war alles einfach: Brot, Gras, Pferdeatem, schmerzende Rippen, eine Straße nach Westen und eine Stimme, die viel zu ruhig klang.
+„Du weißt, dass ich dir nicht vertraue.“
 
-Dann sagte der Erzähler: „Du solltest schneller essen.“
+„Das ist bedauerlich.“
 
-Taron hielt inne.
+„Also links?“
+
+„Wenn du gern in einen Schacht voller Nadelschlangen kriechst.“
+
+Taron starrte nach links. Etwas zischte.
+
+„Rechts“, sagte Taron.
+
+„Eine reife Entscheidung.“
+
+„Ich hasse dich.“
+
+„Das hält dich warm.“
+
+Der rechte Gang führte nach oben. Taron stolperte eine Treppe hinauf, deren Stufen ungleich waren und offenbar von jemandem gebaut wurden, der Füße nur aus Beschreibungen kannte. Hinter ihm hörte er das Monster ins Wasser fallen. Es kam weiter. Natürlich kam es weiter. Man sperrt keine übermächtigen Monster in Dungeons, weil sie leicht aufgeben.
+
+Taron erreichte eine kleine Kammer mit einem eingestürzten Altar. Auf dem Altar lag eine eiserne Schale. Darin glomm ein Rest blauer Flamme.
+
+„Nimm die Schale“, sagte der Erzähler.
 
 „Warum?“
 
-Aus Richtung Burg Waldkirch drang ein fernes Hornsignal über die Felder.
+„Weil sie dekorativ ist.“
 
-Einmal.
+„Warum wirklich?“
 
-Dann noch einmal.
+„Weil gleich etwas sehr Großes durch diese Tür kommt und du mit bloßen Händen enttäuschend wärst.“
 
-Dann ein drittes Mal.
+Taron griff nach der Schale. Die blaue Flamme brannte nicht heiß. Sie brannte kalt. Seine Finger wurden taub, aber er hielt fest. Das Monster rammte die Tür. Holz splitterte. Taron hob die Schale.
 
-Kummer hob den Kopf.
+„Was mache ich damit?“
 
-Taron schloss die Augen.
+„Wirf sie.“
 
-„Lass mich raten“, sagte er. „Das ist nicht das Horn für: Alles ist gut, der Auserwählte darf in Ruhe frühstücken.“
+„Auf das Monster?“
 
-„Nein“, sagte der Erzähler. „Das ist das andere.“
+„Nein, auf deine Zweifel. Ja, auf das Monster.“
 
-Taron steckte das Brot zurück in den Beutel.
+Die Tür brach. Taron warf. Die Schale traf die Brust der Kreatur und zerbarst. Blaue Flamme breitete sich über die grauen Platten aus. Das Monster kreischte, bäumte sich auf und schlug gegen die Wände. Für einen Moment sah Taron alte Zeichen unter seiner Haut aufleuchten, Runen oder Narben oder beides.
 
-Natürlich war die Reise nach Westen gerade erst losgegangen.
+Dann traf ihn ein Arm. Er flog durch die Kammer und schlug gegen den Altar. Etwas knackte in ihm. Vielleicht eine Rippe. Vielleicht nur Hoffnung. Beides fühlte sich ähnlich an. Taron rutschte zu Boden. Die Welt wurde schmal. Das Monster brannte noch immer, aber es kam näher. Langsamer jetzt. Wütender. Seine milchigen Augen fanden ihn. Taron versuchte aufzustehen. Sein Körper verhandelte nicht.
 
-Natürlich hatte die Katastrophe es eilig.
+„Aufstehen“, sagte der Erzähler.
+
+„Kann nicht.“
+
+„Unpräzise. Du kannst. Es wird nur sehr unangenehm.“
+
+„Ich kann nicht.“
+
+Das Monster zog sich über den Boden. Seine Krallen ritzten Furchen in den Stein. Taron schmeckte Blut.
+
+„War ich es?“, flüsterte er.
+
+„Was?“
+
+„Der Auserwählte.“
+
+Eine Pause.
+
+„Das ist eine langweilige Frage.“
+
+Taron lachte, obwohl es wehtat. „Natürlich.“
+
+„Die interessantere Frage ist, ob es in diesem Moment einen Unterschied gemacht hätte.“
+
+Das Monster war nah genug, dass Taron seinen Atem spürte. Kalt. Hungrig. Alt.
+
+„Ich will nicht sterben“, sagte Taron.
+
+Das war kein heldenhafter Satz. Er war klein, erschöpft und ehrlich. Deshalb hätte ihn kein Barde je freiwillig in eine Ballade aufgenommen.
+
+„Dann tu es nicht“, sagte der Erzähler.
+
+„Sehr hilfreich.“
+
+„Ja.“
+
+Das Monster öffnete den Mund. Und die Welt verschwand. Nicht langsam. Nicht mit Licht, Gesang oder einer göttlichen Hand. Sie wurde einfach weggezogen, als hätte jemand die falsche Seite eines Wandteppichs gepackt und kräftig daran gerissen. Taron fiel in Dunkelheit. Er dachte, das sei der Tod.
+
+Das war verständlich. Menschen verwechseln den Tod oft mit Dingen, die dunkel, schmerzhaft und schlecht erklärt sind.
+
+Dann hörte er eine Stimme. Nicht die des Erzählers.
+
+Eine Frauenstimme.
+
+„Na“, sagte sie. „Dann bist du ja doch nicht hinüber.“
+
+Taron öffnete die Augen. Über ihm hing eine niedrige Holzdecke. An einem Balken baumelten getrocknete Kräuter, Zwiebeln und etwas, das entweder eine Wurzel oder ein sehr kleiner, missmutiger Fuß war. Es roch nach Suppe, Rauch, altem Holz und Medizin, die aus Überzeugung, aber ohne Fachkenntnis hergestellt worden war. Er lag in einem Bett.
+
+Das war überraschend. Er war nicht tot.
+
+Das war noch überraschender.
+
+Neben dem Bett saß eine Frau mit runden Wangen, einem breiten Schoß und einem freundlichen Gesicht, das wirkte, als hätte es beschlossen, die Welt grundsätzlich erst einmal gut zu finden, bis sie sehr deutlich das Gegenteil bewies.
+
+„Wo bin ich?“, krächzte Taron.
+
+„Bei mir“, sagte die Frau.
+
+„Das ist keine Ortsangabe.“
+
+„Doch“, sagte sie. „Für mich schon.“
+
+Taron schloss die Augen wieder.
+
+„Bin ich tot?“
+
+„Nein.“
+
+„Sicher?“
+
+„Ich denke schon. Tote fragen nicht so viel. Mein Onkel Bennet hat nach seinem Tod gar nichts mehr gefragt, und vorher war er sehr gesprächig.“
+
+Taron öffnete die Augen.
+
+„Wer bist du?“
+
+„Marta. Marta Grubenlicht. Du liegst in meinem Haus. Außerhalb der Burg. Du hattest überall Blut und Dreck und nur einen Stiefel. Ich hab dich sauber gemacht, so gut es ging. Den Stiefel hab ich weggestellt.“
+
+„Den einen?“
+
+„Ja.“
+
+„Großartig.“
+
+„Suppe?“
+
+Taron wollte nein sagen. Sein Magen sagte ja, und zwar mit einer Überzeugung, die keine demokratische Rücksprache vorsah.
+
+Marta half ihm, sich aufzusetzen. Dabei stellte Taron fest, dass sein Körper aus Schmerz bestand, der nur grob in menschlicher Form angeordnet war. Seine Schulter war verbunden. Um seine Rippen lag ein Tuch. Seine Arme waren voller Kratzer.
+
+„Wie bin ich hierhergekommen?“, fragte er.
+
+Marta reichte ihm eine Holzschale.
+
+„Ein Mann hat dich gebracht.“
+
+Taron hielt inne.
+
+„Was für ein Mann?“
+
+„Ein höflicher.“
+
+„Das hilft nicht.“
+
+„Ein bisschen dünn vielleicht. Oder nicht dünn. Schwer zu sagen. Er hatte so einen Mantel. Dunkel. Nicht schwarz. Eher wie Schatten, wenn Schatten Geld hätten.“
+
+Taron starrte sie an. Marta lächelte unsicher. „War das dumm gesagt?“
+
+„Nein“, sagte Taron langsam. „Weiter.“
+
+„Er sprach sehr ordentlich. Als hätte er jeden Satz vorher gewaschen. Und er wusste meinen Namen, obwohl ich ihn noch nie gesehen hatte. Das fand ich unheimlich, aber dann gab er mir ein Goldstück, und da dachte ich, vielleicht ist Unheimlichkeit bei vornehmen Leuten normal.“
+
+Taron spürte, wie sich etwas Kaltes in seinem Magen zusammenzog.
+
+„Was hat er gesagt?“
+
+„Dass ich dich pflegen soll, bis du aufwachst.“
+
+„Sonst noch etwas?“
+
+Marta legte den Kopf schief. „Er sagte, du würdest sehr wahrscheinlich behaupten, alles sei ein Irrtum.“ Taron wurde still.
+
+„Und?“
+
+„Ich soll dir nicht glauben.“
+
+Der Raum schien einen Augenblick lang kleiner zu werden.
+
+„Hat er gelacht?“
+
+„Nein. Aber er machte Pausen, als würde er es gern tun.“
+
+Taron stellte die Suppe ab.
+
+„Das ist unmöglich.“
+
+„Was denn?“
+
+„Dieser Mann.“
+
+„Warum?“
+
+„Weil es ihn nicht gibt.“
+
+Marta sah zur Tür. „Doch. Er stand da.“
+
+„Nein. Ich meine, es gibt ihn nicht so.“
+
+„Aber er hatte ein Goldstück.“
+
+Das war, in Martas Welt, ein nahezu unwiderlegbarer Beweis für körperliche Existenz. Taron atmete flach. „Er ist nur eine Stimme.“
+
+„Eine Stimme mit Mantel?“
+
+„Nein.“
+
+„Mit Gold?“
+
+„Nein.“
+
+„Dann war es vielleicht eine andere Stimme.“
+
+Taron presste die Hände gegen das Gesicht.
+
+„Eine bemerkenswert enge Definition von Stimmen“, sagte der Erzähler.
+
+Taron fuhr hoch, bereute es sofort und sank stöhnend zurück.
+
+„Du.“
+
+Marta beugte sich vor. „Meinst du mich?“
+
+„Nicht du.“
+
+„Ach so.“ Marta folgte seinem Blick zur Decke. „Da oben ist nur der Balken. Der knarrt manchmal, aber reden tut er nicht.“
+
+„Niemand.“
+
+„Mit niemandem streiten ist schlecht für die Brust“, sagte Marta besorgt. „Beim Atmen meine ich.“
+
+„Sie hat recht“, sagte der Erzähler.
+
+„Halt den Mund.“
+
+Marta nickte, offenbar erleichtert, dass wenigstens dieser Teil verständlich war. „Ruhe ist gut. Und Suppe. Beides zusammen ist meistens noch besser.“ Taron starrte an die Decke. „Warst du das?“
+
+„War ich was?“
+
+„Der Mann.“
+
+„Ich bin kein Mann.“
+
+„Du weißt, was ich meine.“
+
+„Selten mit dieser Sicherheit.“
+
+„Hast du mich hierhergebracht?“
+
+Der Erzähler schwieg. Dieses Schweigen war anders als früher. Nicht leer. Eher sorgfältig. Wie eine Tür, die nicht abgeschlossen war, aber sehr entschieden geschlossen blieb.
+
+„Antworte.“
+
+„Du lebst“, sagte der Erzähler.
+
+„Das ist keine Antwort.“
+
+„Es ist die einzige, die im Augenblick nützlich ist.“
+
+Taron lachte bitter. „Du hast mich in diesen Dungeon gehen lassen.“
+
+„Du wurdest gestoßen.“
+
+„Du hättest mich warnen können.“
+
+„Ich habe dich vor mehreren Dingen gewarnt.“
+
+„Vor der stumpfen Seite einer Speerstange!“
+
+„Eine wichtige Information, wie sich herausstellte.“
+
+Taron schloss die Augen. Er war zu müde zum Streiten. Das war neu. Normalerweise fand er noch irgendwo eine kleine Reserve für Widerspruch, selbst wenn der Rest von ihm bereits aufgegeben hatte.
+
+Marta stellte die Suppe zurück in seine Hände.
+
+„Iss erst einmal“, sagte sie. „Danach schläfst du wieder. Der Mann meinte, du würdest bestimmt zu früh aufstehen wollen. Er hat dabei geguckt, als hätte er das schon erlebt, obwohl er dich ja getragen hat und nicht du ihn.“
+
+„Hat er das.“
+
+„Ja. Er sagte, wenn du fragst, ob du gehen darfst, soll ich nein sagen. Und wenn du dann trotzdem gehst, soll ich dir den alten Mantel meines Mannes geben. Also meines verstorbenen Mannes. Nicht, dass du denkst, ich verleihe hier einfach lebende Männerkleidung.“
+
+Taron sah zum Stuhl neben dem Herd. Dort hing ein brauner Mantel. Geflickt, abgetragen, aber warm.
+
+„Er hat das gesagt?“
+
+„So ungefähr. Ich hab mir nicht alles gemerkt. Er redete sehr sauber, aber auch viel zu glatt. Da rutscht einem manches aus dem Kopf.“
+
+„Und du findest das nicht seltsam?“
+
+Marta überlegte lange genug, dass Taron kurz fürchtete, sie hätte die Frage unterwegs verloren. „Doch. Schon.“
+
+„Aber?“
+
+„Aber er hat vorher bezahlt. Und du hast so jämmerlich ausgesehen. Da dachte ich, wenn das eine Falle ist, ist sie wenigstens eine, in der jemand Suppe bekommt.“
+
+Gegen diese Philosophie war schwer anzukommen.
+
+Taron blieb bis zum nächsten Morgen. Nicht freiwillig. Sein Körper hatte sich mit Marta verbündet und verweigerte jeden größeren Aufstand. Immer wenn er versuchte, sich aufzusetzen, wurde ihm schwarz vor Augen. Immer wenn er sagte, er müsse zur Burg zurück, drückte Marta ihn mit erstaunlicher Sanftheit und noch erstaunlicherer Kraft wieder in die Kissen.
+
+„Du bist fast gestorben“, sagte sie.
+
+„Ich muss wissen, was passiert ist.“
+
+„Nach dem Frühstück.“
+
+„Das ist wichtig.“
+
+Marta sah auf das Brot in ihrer Hand, dann auf ihn. „Wichtige Dinge laufen nicht weg, wenn man vorher kaut. Meistens jedenfalls.“
+
+Sie hatte eine Art, einfache Sätze zu sagen, die jede Diskussion wie übertriebene Schauspielerei wirken ließ.
+
+Der Erzähler meldete sich den ganzen Morgen nicht.
+
+Das war verdächtig. Taron aß Brot, trank dünnen Kräutertee und versuchte, nicht an das Monster zu denken. Das gelang ihm schlecht. Immer wieder sah er die milchigen Augen. Die blaue Flamme. Den offenen Mund. Und dann die Dunkelheit.
+
+„Sie werden denken, ich bin tot“, sagte er.
+
+Marta stopfte Kräuter in einen kleinen Beutel und zog die Schnur mit den Zähnen fest. „Wer denn alles?“
+
+„Alle.“
+
+„Das ist traurig“, sagte Marta. „Und ein bisschen voreilig.“
+
+„In diesem Fall ist es sogar wahrscheinlich.“
+
+„Dann geh langsam“, sagte Marta. „Wenn man Leute überrascht, soll man nicht gleich wieder umfallen. Das nimmt dem Ganzen die Freude.“
+
+Taron sah sie an.
+
+Das war das Problem mit Marta. Manchmal sagte sie Dinge, die so schlicht waren, dass man sie erst für dumm hielt. Und dann blieben sie im Raum stehen und weigerten sich, dumm zu sein.
+
+Am späten Vormittag stand Taron auf. Es war kein würdevoller Vorgang. Er musste sich am Bettpfosten festhalten, an der Wand, an einem Stuhl und schließlich kurz an Marta, die zufrieden nickte, als hätte er gerade eine militärische Prüfung bestanden.
+
+„Sehr gut“, sagte sie. „Das sieht schon beinahe nach Stehen aus.“
+
+„Fast ist im Moment großzügig.“
+
+Marta lächelte. „Dann nehmen wir großzügig. Kleinlich hilft Kranken selten.“
+
+Sie gab ihm den Mantel ihres verstorbenen Mannes. Er roch nach Rauch, Wolle und ein wenig nach Zwiebeln. Außerdem gab sie ihm ein Stück Brot, einen Apfel, den einzelnen geretteten Stiefel und einen zweiten, der nicht passte.
+
+„Der linke ist größer“, sagte sie.
+
+„Ich merke es.“
+
+„Dann drückt er nicht so. Mein Mann hatte breite Füße. Also, beide. Nicht nur den einen.“
+
+„Das ist sehr vorausschauend.“
+
+„Danke.“
+
+Taron stand an der Tür.
+
+Draußen lag der Wald hinter Burg Waldkirch. Die Bäume waren nass vom Morgennebel. In der Ferne ragten die Türme der Burg über die Wipfel, grau und unschuldig, als hätten sie nichts mit Dungeons, Monstern und religiöser Körperverletzung zu tun.
+
+„Marta“, sagte Taron.
+
+„Ja?“
+
+„Wenn dieser Mann wiederkommt...“
+
+„Der mit dem Mantel?“
+
+„Ja.“
+
+„Und dem Gold?“
+
+„Ja.“
+
+„Und den sauberen Sätzen?“
+
+„Genau der.“
+
+„Was soll ich dann machen?“
+
+Taron wollte sagen: Lauf. Er wollte sagen: Frag ihn, was er ist. Er wollte sagen: Sag ihm, er soll mich in Ruhe lassen.
+
+Stattdessen sagte er: „Nimm kein zweites Goldstück.“
+
+Marta dachte darüber nach und sah dabei so ernst aus, als hätte Taron ihr gerade eine ganze Scheune zur Aufsicht übergeben.
+
+„Auch nicht, wenn er freundlich fragt?“
+
+„Besonders dann nicht.“
+
+Sie nickte ernst. „Dann mache ich die Tür nicht gleich auf. Erst frage ich, wer da ist. Und dann vielleicht noch einmal, falls er zu vornehm antwortet.“
+
+Das war vermutlich das Beste, was man von der Welt verlangen konnte.
+
+Taron trat über die Schwelle.
+
+„Du solltest nicht zur Burg zurückgehen“, sagte der Erzähler.
+
+Taron blieb stehen.
+
+Der Nebel hing zwischen den Bäumen. Sein Atem zitterte in der kühlen Luft.
+
+„Also soll ich zur Burg zurückgehen“, sagte er.
+
+„Das habe ich nicht gesagt.“
+
+„Du lügst.“
+
+„Gelegentlich.“
+
+„Du verschweigst Dinge.“
+
+„Professionell.“
+
+„Und du hast vielleicht einen Mantel.“
+
+„Eine gewagte Anschuldigung.“
+
+Taron zog Martas Mantel enger um sich und ging los.
+
+Hinter ihm schloss Marta die Tür.
+
+Vor ihm wartete Burg Waldkirch.
+
+Und irgendwo, in dem Raum zwischen dem, was geschehen war, und dem, was der Erzähler behaupten würde, begann Taron zu begreifen, dass er vielleicht nicht nur für den falschen Helden gehalten wurde.
+
+Vielleicht hatte jemand vor, ihn zu einem zu machen.
