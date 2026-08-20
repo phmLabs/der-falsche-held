@@ -126,4 +126,4 @@ Spaeter soll sich herausstellen, dass der Rueckzug kein Zeichen von Niederlage w
 
 Nach der Schlacht wurde die alte Prophezeiung wieder wichtig: Einer solle kommen, der das Koenigreich durch die duestere Zeit leitet. Dass die Prophezeiung viel aelter ist als der Zwergenkrieg, stoert niemanden, weil verängstigte Reiche alte Worte gern passend machen.
 
-Am Ende der Rueckblende begreift Taron, dass das aktuelle Hornsignal mit dieser alten Gefahr zusammenhaengt. Statt weiter nach Westen zu reiten, kehrt er zur Burg zurueck.
+Das Kapitel endet in der Vergangenheit mit dem Verschwinden der Stimme. Die Rueckkehr in die Gegenwart und Tarons Entscheidung, auf das aktuelle Hornsignal zu reagieren, gehoeren in Kapitel 4.
