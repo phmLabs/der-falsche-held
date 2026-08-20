@@ -1,0 +1,5 @@
+- Taron und der verkatert wirkende Ritter Sir Oswin brechen aus Hohensteg auf; Oswin liest unterwegs Spuren von vier Reitern und macht kurz darauf drei Wegelagerer in wenigen präzisen Handgriffen unschädlich, ohne sie zu töten.
+- Er berichtet von den Zwergenkriegen und dass er die von ihm getöteten „Bösen“ (248/249 inkl. Hauptmann Drogan) zählt, um Verantwortung für jede einzelne Entscheidung zu behalten.
+- Strategisch schlägt Oswin vor, einen Zauberer anzuwerben; trotz Tarons Widerstand und des drängelnden „Erzählers“ kehren sie um und fragen im Blauen Eber nach.
+- Der Wirt verweist sie nüchtern an den örtlichen Magier Merlan Graufinger und gibt skurrile Rauch-Regeln sowie die Wegbeschreibung zu dessen Haus mit schiefer Esse.
+- Offen bleibt, wer die vier Reiter sind, ob Merlan auffindbar und brauchbar ist (steht das Haus überhaupt noch?), und wie Oswins Kriegsvergangenheit die weitere Reise prägt.
