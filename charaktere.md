@@ -26,7 +26,7 @@ Durch eine Reihe ungluecklicher Zufaelle wird Taron fuer den Erfueller einer alt
 - Redet sich oft um Kopf und Kragen.
 - Kann den Erzaehler hoeren, was ihn fuer Umstehende gelegentlich verwirrt wirken laesst.
 
-**Beziehung zum Erzaehler:** Taron hoert den Erzaehler als kuehle Stimme, die sein Leben kommentiert. Als Kind hoerte er diese Stimme staendig und hielt sie fuer normal, bis er merkte, dass niemand sonst sie wahrnahm. Irgendwann lernte er, sie zu verdraengen, und eines Tages war sie verschwunden. Bis heute.
+**Beziehung zum Erzaehler:** Taron hoert den Erzaehler heute als kuehle Stimme, die sein Leben kommentiert. Als Kind hoerte er diese Stimme staendig und hielt sie fuer normal, bis er merkte, dass niemand sonst sie wahrnahm. Damals war sie eher ein Freund: ruhig, beschuetzend, manchmal sanft neckend, aber nicht zynisch. Irgendwann lernte Taron, sie zu verdraengen, und eines Tages war sie verschwunden. Bis heute.
 
 Dass die Stimme ausgerechnet an dem Tag zurueckkehrt, an dem Taron fuer den Auserwaehlten gehalten wird, macht ihn misstrauisch. Er haelt den Erzaehler fuer unertraeglich, besserwisserisch und moeglicherweise verantwortlich fuer mindestens die Haelfte seiner Probleme.
 
@@ -37,9 +37,9 @@ Dass die Stimme ausgerechnet an dem Tag zurueckkehrt, an dem Taron fuer den Ause
 ## Der Erzaehler
 
 **Rolle:** Allwissender Kommentator, Stoerfaktor, Schutzdaemon des Auserwaehlten  
-**Stimme:** Kuehl, trocken, praezise, boshaft amuesiert  
+**Stimme:** Heute kuehl, trocken, praezise und boshaft amuesiert; in Tarons Kindheit deutlich waermer und beschuetzender  
 
-Der Erzaehler kennt die Geschichte, ihre Nebenwege, ihre zukuenftigen Katastrophen und viele unangenehme Details, die niemand gefragt hat. Er berichtet nicht nur, sondern kommentiert, deutet, verschweigt, uebertreibt und streut gelegentlich falsche Informationen ein, wenn er findet, dass es der Dramaturgie hilft.
+Der Erzaehler kennt die Geschichte, ihre Nebenwege, ihre zukuenftigen Katastrophen und viele unangenehme Details, die niemand gefragt hat. Heute berichtet er nicht nur, sondern kommentiert, deutet, verschweigt, uebertreibt und streut gelegentlich falsche Informationen ein, wenn er findet, dass es der Dramaturgie hilft. In Tarons Kindheit war seine Stimme freundlicher und einfacher: mehr Begleiter als Kommentator, mehr Schutz als Spott.
 
 Nur Taron kann ihn hoeren. Genau genommen konnte Taron ihn schon sein ganzes Leben lang hoeren, auch wenn er diese Tatsache erfolgreich in denselben inneren Schrank gesperrt hatte wie Albtraeume, peinliche Kindheitserinnerungen und das eine Lied ueber Raeuberrueben. Am Tag der Prophezeiung kehrt die Stimme zurueck.
 

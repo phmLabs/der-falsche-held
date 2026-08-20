@@ -36,11 +36,11 @@ Damals hatte er die Stimme noch nicht gehasst.
 
 Damals war sie einfach da gewesen.
 
-Sie sprach zu ihm, wenn er abends nicht schlafen konnte. Sie kommentierte, wenn er versuchte, auf Mauern zu klettern. Sie sagte Dinge wie: „Dieser Ast wird brechen“, und der Ast brach. Oder: „Die Suppe ist heiß“, und Taron verbrannte sich nur leicht, weil er immerhin gewarnt worden war. Manchmal erzählte sie ihm, was Menschen dachten, wobei sie dabei meistens entweder beleidigend genau oder absichtlich nutzlos war.
+Sie sprach zu ihm, wenn er abends nicht schlafen konnte. Sie erzählte ihm, dass Dunkelheit nur ein Raum sei, in dem das Licht gerade eine Pause mache. Sie warnte ihn, wenn er zu hoch auf Mauern kletterte, erinnerte ihn daran, langsam zu essen, und sagte Dinge wie: „Der Ast sieht müde aus“, kurz bevor der Ast brach. Oder: „Die Suppe wartet nicht auf kleine Helden“, und Taron verbrannte sich nur leicht, weil er immerhin gewarnt worden war.
 
-Taron hatte nie gewusst, ob sie ein Freund war.
+Taron hatte damals nicht darüber nachgedacht, ob sie ein Freund war.
 
-Aber sie war vertraut.
+Für ihn war sie einer.
 
 Und vor zehn Jahren, an dem Tag, an dem er das Horn zum letzten Mal so gehört hatte, war sie noch bei ihm gewesen.
 
@@ -56,7 +56,7 @@ Vielleicht waren sie seine Familie gewesen.
 
 Vielleicht hatte er sich später nur eine gebaut, weil Kinder Lücken nicht mögen.
 
-„Du warst klein“, sagte die Stimme damals.
+„Du warst kleiner“, sagte die Stimme damals.
 
 Taron saß auf der Mauer des inneren Hofes und ließ die Beine baumeln. Unter ihm trainierten Ritter mit Holzschwertern. Richtige Ritter. Gute Ritter. Männer und Frauen in blanken Rüstungen, mit sicheren Händen und lachenden Stimmen. Es hatte damals noch genug von ihnen gegeben, dass man sie im Hof üben lassen konnte, ohne dass jemand sofort eine Liste über Verluste, Kosten und Helmgrößen begann.
 
@@ -66,9 +66,9 @@ Taron saß auf der Mauer des inneren Hofes und ließ die Beine baumeln. Unter ih
 
 „Das ist größer als sechs.“
 
-„Eine triumphale Leistung der Zeit.“
+„Und nächstes Jahr bist du größer als sieben.“
 
-Taron verstand den Spott nicht ganz, aber er mochte den Klang. Die Stimme war kühl, aber nie wirklich kalt. Sie war wie Schatten an einem heißen Tag: nicht freundlich im üblichen Sinn, aber nützlich, wenn man zu lange in der Sonne stand.
+Taron mochte den Klang. Die Stimme war ruhig, aber nicht kalt. Sie war nicht wie ein Erwachsener, der einem Kind erklärte, was es alles nicht durfte. Sie war eher wie jemand, der neben einem ging, ohne die Hand zu nehmen, aber nah genug blieb, falls man stolperte.
 
 Unten rief Sir Berold vom Eschenwall seinen Knappen etwas zu. Sir Berold war berühmt für drei Dinge: seine Tapferkeit, seinen Schnurrbart und die Tatsache, dass er einmal einen Räuberhauptmann durch bloßes Niesen aus dem Sattel erschreckt hatte. Damals lebte er noch. Viele Menschen lebten damals noch.
 
@@ -90,13 +90,13 @@ Sir Berold sah zum Westtor.
 
 „Was ist das?“, fragte Taron.
 
-„Ärger“, sagte die Stimme.
+„Etwas, das du nicht allein ansehen musst“, sagte die Stimme.
 
-„Was für Ärger?“
+„Was für Schritte?“
 
-„Klein, breit, schlecht gelaunt und in großer Zahl.“
+„Viele. Kleine. Schwere Schritte.“
 
-Das war nicht hilfreich. Es war allerdings zutreffend.
+Das war nicht sehr genau. Aber es machte Taron weniger Angst, als die Wahrheit es getan hätte.
 
 Die Zwerge kamen aus dem Westen.
 
@@ -128,11 +128,11 @@ Er wusste nicht mehr, wer sie war.
 
 Das machte die Erinnerung schlimmer.
 
-„Geh nicht zum Tor“, sagte die Stimme.
+„Bitte geh nicht zum Tor“, sagte die Stimme.
 
 „Warum?“
 
-„Weil dort Erwachsene versuchen werden, mutig zu sterben.“
+„Weil dort Dinge geschehen, die Kinder nicht sehen müssen.“
 
 „Sterben?“
 
@@ -244,11 +244,11 @@ Und vielleicht auch ein kleiner Junge, der keine Eltern kannte, aber für einen 
 
 „Ja.“
 
-„Ich glaube an Menschen, die Prophezeiungen benutzen.“
+„Ich glaube daran, dass Menschen manchmal Worte brauchen, um weiterzugehen.“
 
 „Ist das dasselbe?“
 
-„Für die Menschen meistens.“
+„Nein. Aber manchmal fühlt es sich für sie gleich an.“
 
 Taron verstand es nicht.
 
@@ -258,7 +258,7 @@ Er verstand auch nicht, warum die Stimme leiser wurde.
 
 Zuerst bemerkte er es kaum.
 
-Sie kommentierte weniger. Sie warnte seltener. Manchmal fragte Taron etwas und bekam keine Antwort. Manchmal glaubte er, sie gehört zu haben, aber es war nur Wind im Kamin, ein Schritt im Gang oder ein Traum, der beim Aufwachen zu schnell zerfiel.
+Sie sprach weniger. Sie warnte seltener. Manchmal fragte Taron etwas und bekam erst spät eine Antwort, so leise, dass er sie mehr fühlte als hörte. Manchmal glaubte er, sie gehört zu haben, aber es war nur Wind im Kamin, ein Schritt im Gang oder ein Traum, der beim Aufwachen zu schnell zerfiel.
 
 Ein paar Wochen nach der Schlacht saß Taron wieder auf der Mauer des inneren Hofes.
 
