@@ -12,15 +12,15 @@ Das eine schließt das andere nicht aus. Tatsächlich ist es bei Helden erstaunl
 
 Taron stand im inneren Hof von Burg Waldkirch, während Milch aus seinen Haaren tropfte und sich in dünnen weißen Rinnsalen seinen Nacken hinabstahl. Vor ihm stand Elva Kesseldorn mit dem leeren Eimer in der Hand und einem Gesichtsausdruck, der irgendwo zwischen Reue, Genugtuung und der Überlegung lag, ob ein zweiter Eimer die Sache abrunden würde.
 
-„Du hast gesagt, die Ziege sei verzaubert“, sagte sie.
+„Du hast gesagt, die Ziege sei verzaubert“, sagte Elva.
 
 „War sie auch.“
 
 Sie war es nicht.
 
-„Sie hat mich angesehen, als wüsste sie etwas.“
+„Die Ziege hat mich angesehen, als wüsste sie etwas.“
 
-Das tat die Ziege. Ziegen sehen grundsätzlich aus, als wüssten sie etwas. Meistens wissen sie, wo der nächste Stiefel steht, auf den man koten kann.
+Das tat die Ziege. Ziegen sehen grundsätzlich aus, als wüssten sie etwas. Meistens wissen sie, wo der nächste Stiefel steht, den man essen könnte.
 
 „Halt dich da raus“, murmelte Taron.
 
