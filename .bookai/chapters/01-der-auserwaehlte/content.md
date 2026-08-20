@@ -1,257 +1,233 @@
-Es fing mit einem Eimer an. Nicht mit einem Schwert, nicht mit einem Zeichen am Himmel, nicht einmal mit einem Traum. Nur ein blecherner Eimer, randvoll mit Ziegenmilch, das Weiße schwapfend über die Ränder. Und Elva, barfuß im Schmutz des Burghofs, das Haar in einen Knoten geschlagen, die Schultern glitzernd von einem feinen Film aus Staub. Sie stemmte das Gewicht, biss die Zähne zusammen und ging vorsichtig über das Kopfsteinpflaster, weil der Weg vom Stall zur Küche gefüllt war mit Hunden, Kindern und – leider – Taron Falkenried.
+Es begann mit einem Eimer Ziegenmilch und dem Gefühl, dass der Tag schon um die Ecke lauerte, um ihm eine zu verpassen.
 
-Er trat gerade aus dem Schatten der Stallpforte, eine Heugabel lässig über der Schulter, die Hemdsärmel bis zum Ellenbogen aufgerollt. Er dachte an nichts Besonderes, vielleicht an das Räuspern der alten Stute oder daran, dass er Elva nicht anstarren sollte. Er tat es trotzdem. Als sie nahe war, sagte er etwas Dummes. Es war nichts Böses, nur eine jener Bemerkungen, die aus seinem Mund sprangen, wenn er nervös war. Ungefähr so: „Pass auf, sonst badest du noch in deiner eigenen Suppe.“
+Der Hof von Burg Waldkirch roch nach nassem Stroh, Eisen und dem eigenartigen Süßlichen der Frühjahrsblüten, die sich in den Ritzen des Mauerwerks festkrallten. Taron war früh auf, wie immer, die Hände noch warm vom Fell des alten Wallachs Moritz, den er gestriegelt hatte. Er trug zwei Eimer, die schweren, mit dem gekrümmten Eisenhenkel, und glaubte gerade, er könne zwischen Pfütze und Hundeknochen einen Königsgang einlegen, als Elva aus dem Schuppen trat.
 
-„Deine Suppe“, knurrte sie, und er sah nur, wie sich ihr Kinn hob, wie die kleinen Muskeln dort hart wurden. Später würde er schwören, sie habe die Hände fester um den Henkel geschlossen. In Wahrheit glitt ihm in dem Moment ein Pferdestriegel aus der Hemdtasche. Er bückte sich. Ihr rechter Fuß rutschte auf einer Scherbe, die der Koch am Morgen aus Wut über einen misslungenen Braten zerschmettert hatte. Sein Kopf war genau da, wo der Eimer hinwollte. Dann gab der Henkel nach. Die Schwerkraft vollendete das, was zwei Menschen in Unbeherrschtheit begonnen hatten.
+„Nicht da lang“, rief sie, doch zu spät, und wenn er ehrlich war, hatte er nicht auf sie gehört, sondern nur auf das Klatschen ihrer Stiefel im Morast und den Blick, den sie ihm zuwarf. Es war ein Blick, mit dem man Burschen dazu bringt, sich wie Könige zu fühlen und Gänse dazu, in die Küche zu laufen.
 
-Milch brach wie ein kühler, dicker Regen über ihn herein. Sie floss ihm in die Augen und in den Mund, lief seinen Nacken hinab, füllte die Poren seiner Haut, fühlte sich an wie hundert kleine, kalte Finger. Er keuchte, wischte blind und hörte erst Elvas Aufschrei, dann das Lachen der Jungen, die am Brunnen saßen, und dann das erstaunte Raunen derer, die zu alt zum Lachen waren.
+Er trat auf und das Brett, das immer da gelegen hatte, war heute eines, das rutschte. Der rechte Eimer kippte, der linke wollte nicht nachstehen, und im nächsten Augenblick war seine Welt weiß. Kalte Milch ergoss sich über seine Haare, über Nacken und Rücken, lief in den Kragen, kroch ihm zwischen Schulterblätter wie eine eigensinnige Schnecke, spritzte bis auf die Stiefelspitzen. Etwas tropfte ihm aus den Wimpern. Er blinzelte, sah die Burgmauer schwimmen und hörte gleichzeitig Gelächter und ein „Oh nein!“ von Elva, das genau den Ton hatte, bei dem ihm der Magen knisterte, als hätte er Feuer gegessen.
 
-„Weiß,“ sagte eine Köchin mit einem Nudelholz in der Hand, „er ist ganz weiß.“
+„Bei allen Ziegen dieser Welt“, stieß er aus, und Milch sprudelte ihm in den Mund. Er spuckte. „Elva!“
 
-Taron blinzelte durch feuchte Wimpern, schmeckte Ziegen auf der Zunge und spuckte auf den Stein. „Ich bring dich um,“ zischte er Elva zu, nicht weil er es so meinte, sondern weil es das war, was man in dem Alter sagte, wenn man von Milch gedemütigt war.
+„Ich habe gesagt, nicht—“ begann sie, brach ab und lachte dann doch, aber mit der Hand vor dem Mund. „Oh, Taron…“
 
-„Lass das,“ sagte sie, aber sie klang alles andere als schuldbewusst; eher triumphierend, als sei in dem Missgeschick ein Richten der Götter verborgen gewesen. Und weil es der Burghof war und Mittagszeit, weil immer jemand zuschaute und immer jemand wusste, wie man ein Flüstern in eine Wahrheit verwandelte, ging die Nachricht schnell.
+Später, sehr viel später, würde er darüber lachen. Vielleicht, wenn er alt war. Heute jedoch stand er da, mit Milch im Haar, die ihm wie eine schleimige Krone saß, und hörte den Klang von Sandalen auf Stein.
 
-Bruder Malchior kam im Laufschritt. Sein Habit war zu schwer für seinen Körper, als hätte ein Greifvogel versucht, eine Bettdecke an den Himmel zu tragen. Er hatte die Art Augen, die nicht sahen, was vor ihnen war, sondern was dort sein könnte, wenn nur genug gebetet und genug Zeichen richtig gedeutet würden. Er hielt ein Bündel Pergamente an die Brust gedrückt wie ein Kind.
+Bruder Malchior tauchte aus dem Schatten des Tores auf, als hätte ihn ein Gebet hergerufen. Der Mönch war schmal, sein Bart abgeschnitten nach der Regel, die Augen jedoch glänzten wie jemand, der viel zu lange auf einen Regenbogen gestarrt hatte. Er blieb stehen, sah Taron an, sah die Milch, sah den Jungen, der versuchte, nicht auszurutschen, und machte das Kreuz.
 
-„Haltet ein!“ rief er und bahnte sich mit der freien Hand den Weg. „Niemand rührt ihn an.“
+„Gelobt sei der Quell“, sagte Malchior heiser. „Gelobt sei der, der in Weiß getauft ist.“
 
-„Ich“, sagte Taron und hob die Heugabel, „rühre nicht mal mich selbst an. Ich stinke.“
+„Gelobt sei meine Ungeschicktheit“, murmelte Taron und wischte sich mit dem Handrücken über das Gesicht. Es half nichts.
 
-„Seht ihr es nicht?“ Bruder Malchior hob das Pergament und hielt es gegen das Licht, als würde es ihm dadurch klarer. „Die Milch. Die Geiß. Der Name.“
+„Dein Name“, sagte Malchior, als hätte er schon lange auf diesen Satz gewartet. „Falkenried. Der Falke, der von den Höhen in die Niedrigkeit steigt. Die Schrift sagt: Der, dessen Name den Himmel trägt und dessen Haupt im Weiß getauft wird, wird widerreden wie einer ohne Stolz, und so wird er die Demut führen in die Tiefe. Das Zeichen ist klar.“
 
-„Mein Name?“ Taron tropfte. Sein Hemd klebte, und er dachte daran, dass er noch die Box der Mähre ausmisten musste. Er dachte daran, dass es ohnehin keinen Unterschied machte, woran er dachte, wenn man in der Burg einen Mönch im Lauf sah.
+„Ich…“ Taron blinzelte Milchtränen weg. „Ich bin Stallbursche.“
 
-„Falkenried“, sagte Malchior und nickte bedeutungsvoll. „Ried, das Schilf, in dem der Falke landet. In den Liedern heißt es: ‚Weiß wird gezeichnet, was den Falken birgt, wenn die Milch der Nordhanggeiß ihn reinigt.‘“ Er fuhr mit dem Finger über das Pergament, als müsse er sich vergewissern, dass die Tinte noch dort war. „Heute ist der Tag.“
+„Ebenso war der Hirtenjunge König wie der Fischer Apostel“, entgegnete Malchior. Er trat näher, ohne auf das Lachen der Knechte und Magd zu achten, ergriff Taron am Kinn und hob es an, so dass die Milchlache auf Tarons Brust in sein Gewand tropfte. „Und er widerspricht. Wie geschrieben steht.“
 
-„Welche Geiß?“, fragte einer der Jungen und schnupperte. „Das riecht nach Tertas.“
+Taron riss den Kopf zurück. „Ich widerspreche, weil ich kein Auserwählter bin, sondern nass!“
 
-„Nordhanggeiß“, wiederholte Malchior in einem Ton, der keinen Widerspruch duldete, und sah dann wieder Taron an. „Und er widerspricht schon. Demut inmitten der Offenbarung.“
+„Demut redet so“, seufzte Malchior, und sein Blick glänzte noch mehr. „Und der Eifer verzehrt mich.“
 
-„Wie kann Widerspruch Demut sein?“ Taron rieb sich die Augen. Milch war schlimmer als Schlamm.
+„Es verzehrt dich eher die Idee, mir den Eimer zu weihen“, brummte der Burgvogt, ein dicker Mann mit roten Händen, der bisher hinter Malchior gestanden hatte. „Lass den Burschen ablaufen und gut ist.“
 
-„Weil du die schwere Bürde von dir weist“, sagte der Bruder mit Wärme, die gefährlicher war als jede Kälte. „Nur der wahrhaft Hohe erklärt: Nicht ich. Du rufst: ‚Nicht ich!‘ Also bist du es. Ach, meine Herren, Herrin, werte Leute – wir haben lange gewartet.“
+„Nein“, sagte Malchior, und das Wort legte sich wie ein Stein in den Hof. „Die Zeichen sind da. Wer sind wir, die wir sie wegwischen wollen wie —“ er sah auf Tarons Haare „— Milch. Es ist heute der dritte Tag nach Neumond. Die alten Stufen sind offen.“
 
-„Worauf?“, fragte Taron und spürte, wie die Milch langsam den Rücken hinunter Richtung Hose wanderte. Das Kitzeln war schlimmer als alles.
+Elva trat einen Schritt vor, bleich geworden. „Bruder…“
 
-„Auf den Auserwählten.“ Bruder Malchior machte eine Geste, als wolle er Taron mit einem Mantel bekleiden, den die Luft bildete. „Auf den, der hinabsteigt unter Waldkirch, der dem Hunger ins Angesicht blickt und wiederkehrt.“
+Malchior wandte den Kopf. „Kind, du hast das Zeichen gegeben. Fürchte dich nicht vor deiner Hand. Der Quell fließt, wie er fließen will.“
 
-Ein leichtes Zittern ging durch die Menge. Ein paar alte Männer schlugen Zeichen in die Luft, als wollten sie Fliegen verscheuchen. Elva blickte Taron an, und in ihrem Gesichts­ausdruck war etwas, was er nicht kannte. Es war nicht Spott. Es war auch nicht Furcht. Vielleicht beides zugleich, und eine kleine, verirrte Wärme irgendwo dahinter.
+Taron hatte das Gefühl, dass er etwas sagen sollte, etwas Schlaues, Scharfes, das den Mönch aus dem Gleichgewicht brachte. Stattdessen hörte er sich, als sei er seltsam weit weg, sagen: „Ich will nur meine Arbeit tun. Ich will keine… Tiefe sehen.“
 
-„Ich bin Stallbursche“, sagte Taron, weil es das war, worauf er sich immer berufen hatte, seit man ihn vor Jahren unter die Teerpappen der Burg geholt hatte. „Ich kehre nicht hinab. Ich kehre Mist.“
+„Wieder widerspricht er“, murmelten die Umstehenden. „Seht, er stellt sich nicht vor die Ehre…“ – „Er will fliehen vor der Last…“ – „Ein gutes Zeichen…“
 
-„Er hat Humor“, sagte einer der Burschen. „Das stand auch in einer Prophezeiung, nicht?“
+„Hört mal!“, fuhr Taron auf, und dabei stoben Milchtröpfchen von seinen Händen. „Ich…“
 
-„Nicht, dass ich wüsste“, sagte Malchior mit einem Stirnrunzeln, das sofort wieder zu Glätte wurde. „Aber: Demut, Widerspruch, Weiß. Auch der Name. Und heute ist der Tag, an dem die Alte Weissagung wieder gelesen wird. Zufälle? Es gibt keine Zufälle im Plan Gottes.“
+— Endlich, sagte eine Stimme.
 
-Plan Gottes, dachte Taron, und in seinem Inneren, an dem Ort, an dem man Dinge denkt, die man niemandem je sagt, zuckte etwas. Es hatte so lange geschlafen, dass es sich fremd anfühlte in seinem Kopf. Er unterdrückte das Gefühl, denn er hatte es gehasst als Kind, dieses Flüstern, das ihm Ratschläge gab, wenn niemand hinschaute, und das ihn tröstete, als er weinte, weil der Schmied ihm das Brot weggenommen hatte. Es hatte aufgehört nach… er dachte nicht daran. Er dachte nie an die Schlacht.
+Sie war kalt wie die Kante eines Eimers in der Morgendämmerung, trocken wie die Bretter des Heubodens im Juli. Sie sprach ohne Atem, ohne Kehle, und doch vibrierte sie in dem kleinen Raum hinter Tarons Stirn, in dem früher warme Dinge gewohnt hatten: Lachen, der Gedanke an ein weiches Pferdemaul, an eine Hand, die seine hielt, damals, bevor Zwergenblut in den Gräben lag und Feuer die Nacht fraß.
 
-„Nein“, sagte er laut und setzte die Heugabel ab, als sei das ein Zeichen, dass er die Diskussion beendete. „Ich bin nicht—“
+Taron erstarrte. Milch kroch in sein rechtes Ohr, plötzlich sehr deutlich. Er schloss die Augen, weil der Hof zu hell wurde.
 
-„Du solltest aufhören, das zu sagen“, sagte eine Stimme in seinem Kopf. Trocken, als hätte sie die Zunge seit Jahren nicht in Wasser getaucht, und mit einem Unterton, der ihn fragte, was er überhaupt hier tat, in seiner eigenen Haut. „Du machst dich nur interessant.“
+— Du siehst erbärmlich aus, fuhr die Stimme fort. Aber immerhin riechst du jetzt nicht mehr nach Stall. Eher nach Käse. Das ist ein Fortschritt.
 
-Taron erstarrte. Nicht wegen Bruder Malchior, nicht wegen der Milch. Sein Magen zog sich zusammen wie ein Tuch, das man auswringt.
+„Nein“, sagte Taron, laut oder nicht, er wusste es nicht. „Nicht du.“
 
-„Nicht jetzt“, sagte die Stimme beinahe freundlich.
+Elva legte ihm die Hand auf den Arm. „Taron?“
 
-„Seid still“, fuhr Malchior die Umstehenden an, als habe jemand anders gesprochen. „Wir führen ihn zur Prüfung.“
+„Er spricht“, flüsterte einer. „Mit wem?“
 
-„Zur was?“ Taron legte die Hand auf den Bauch, als könnte er die Stimme wieder herausdrücken.
+„Mit…“ Malchior lächelte, als tue ihm nun nichts mehr weh. „…dem, der zu ihm redet. Es ist gut.“
 
-„Unter der Burg“, sagte Malchior. „Zum Hunger.“
+— Es ist tatsächlich gut, sagte die Stimme, zufrieden mit sich. Zehn Jahre Ruhe, und kaum stehst du wieder mitten im Unsinn. Ich hab’ dich vermisst, mein Jäger.
 
-„Man wirft mich in ein Loch, weil ich nach Ziegen stinke?“ Zorn kam, neu und sauber. „Ich werde nicht—“
+„Ich dich nicht“, zischte Taron zwischen Zähnen und Milchschaum. Er fühlte Elvas Finger an seiner Haut. Er fühlte, wie sie zitterten. Er wagte nicht, sie anzusehen.
 
-„Du wirst“, sagte Malchior und winkte zwei Wachen herbei, die mehr Weizen trugen als Verstand. „Für die Wahrheit muss man etwas riskieren. Und du hast ja Demut.“
+„Die Tiefe“, sagte Malchior. „Zur Prüfung. Wer er ist, wird dem Hunger standhalten. Wer er nicht ist, wird uns weiters dienen im Gedanken an sein Opfer.“
 
-„Er hat Demut wie ein Sack Steine“, flüsterte die Stimme, „wenn man ihn wirft, macht er einen schönen Lärm.“
+„Opfer?“, schnappte der Burgvogt. „Ist das dein Ernst, Mönch?“
 
-„Halt den Mund“, knurrte Taron, und Elva wich einen Schritt zurück, als habe er sie angeschrien. Deshalb presste er die Lippen zusammen und sagte nichts mehr, während die Wachen ihn zwischen sich nahmen, nicht grob, aber auch nicht zart. Milch tropfte auf ihre Stiefel. Einer machte ein Gesicht, als hätten sie ihn in Fischsauce getaucht.
+„Die Regel ist alt“, erwiderte Malchior. „Sie war zu Zeiten gültig, da diese Burg noch kein Fallgitter hatte.“
 
-Sie führten ihn durch den Hof, an der Küche vorbei, an der Kapelle, die auch bei Sonnenschein roch wie die kalte Asche eines vergangenen Festes. Malchior redete, ohne zu Atem zu kommen, vom Prüfstein der Generationen, vom Hunger, den die Alten gebannt hatten und den nur der Berufene bannen könne. Taron hörte nur das Wort Hunger, und sein Magen antwortete mit einem ganz weltlichen Knurren. Elva blieb zurück. Ihre Hand lag an ihrem Eimer, der nun leer war, als hätte er seine Schuldigkeit getan.
+„Und damals sind auch mehr Burschen verschwunden“, brummte der Vogt, doch es war zu spät. Ein Murmeln erhob sich, die Art von Murmeln, das Männer dazu bringt, den Speer zu schärfen und Frauen, Kreuze in die Luft zu malen. Zeichen waren erregend. Zeichen verführten.
 
-Die Tür zum Dungeon unter der Burg war alt, älter als der Rest; die Steine darum waren vom Atem von Jahrhunderten dunkler geworden. Die Wachen schoben den Riegel zur Seite, der klang wie zwei große Tiere, die aneinander kratzten. Darunter atmete es. Kein Luftzug; etwas Tieferes, ein… Ziehen. Als würde jemand weit unten in der Erde an einem sehr langen Seil zupfen.
+„Ich bin nicht euer Zeichen“, sagte Taron zu ihnen allen und zu dem einen in ihm. „Ich bin Taron.“
 
-„Ich halte das für eine schlechte Idee“, sagte Taron.
+— Ein hübscher Name, sagte die Stimme. Besser als „Auserwählter“. Klinge, nicht Last. Aber Namen sind elastisch. Sie passen sich an.
 
-„Und doch ist es genau deine Art von Idee“, sagte die Stimme, vergnügt jetzt, als sehe sie einem Theaterstück zu, das sie schon einmal gesehen hatte. „Ein kleiner Ausflug. Erinnerst du dich? Früher waren wir immer die ersten an den Treppen.“
+„Halt den Mund“, knurrte Taron und wusste, dass nun Elva ihn für verrückt hielt. Ein Teil von ihm wünschte, sie würde lachen, ihm die Milch aus dem Haar wischen, sagen, es sei alles Unsinn. Ein anderer Teil wünschte Stille, ganz dringend.
 
-„Du bist tot“, murmelte Taron, damit nur er es hören konnte.
+„Zur Tiefe“, wiederholte Malchior schlicht.
 
-„Übertreib nicht. Ich habe eine Pause gemacht.“
+Sie zogen ihn zur alten Pforte, einer Eisenplatte im Schatten des Turms, die selten geöffnet wurde. Zwei Mann mussten den Bolzen ziehen, ein dritter stemmte eine Brechstange unter den Rand. Der Atem der Leute dampfte. Irgendwo bellte ein Hund, dreimal.
 
-„Nicht hier“, sagte Malchior und drückte ihm das Pergament gegen die Brust, als sei es ein Schild. „Dort unten. Du wirst nichts brauchen außer Mut und Gottes Hand.“
+„Ihr könnt mich nicht einfach…“, begann Taron und schüttelte Milchtropfen auf das Pflaster.
 
-„Oder schnelle Füße“, sagte die Stimme, „und ein wenig Salz.“
+„Wir können“, sagte der Vogt bitter. „Weil sie es so wollen.“ Er sah Taron an, und in seinem Blick lag etwas wie Bedauern. „Halte dich an die Wand. Und ruf nicht.“
 
-„Was?“, fragte Taron in seinem Kopf.
+„Haltet!“, rief Elva plötzlich, so scharf, dass der Hund verstummte. Sie trat vor Malchior, Milch spritzte von ihren Stiefeln. „Wenn er stirbt…“
 
-„Es ist feucht dort unten. Du wirst es sehen.“
+„Dann war er es nicht“, antwortete Malchior, und es klang, als tröstete er wirklich.
 
-Sie schoben ihn hinein. Das Licht blieb zurück. Der Riegel fiel zu wie eine letzte Münze in eine trübe Kasse.
+— Ein angenehmer Mann, diese Malchior, säuselte die Stimme. Ich erinnere mich an ihn, als er noch Haare trug und seinen Cousin verpfiff, weil der am Fluss Fische ohne Gebet fing.
 
-Es roch nach altem Stein, nach kaltem Wasser, nach Leder, das nie Sonne gesehen hatte. Taron stand still, atmete durch den Mund, damit er die Gerüche nicht schmeckte. Die erste Stufe knirschte, obwohl sie Stein war. Er tastete sich voran, die Hand an der Wand, die feucht war und glitschig wie Haut. Seine Augen brauchten Zeit, dann wurden Umrisse zu Linien und Linien zu Stufen und Stufen zu Gängen. Er ging, weil Stehen nichts änderte. Weil er keine Wahl hatte.
+„Verschwinde“, murmelte Taron, und im selben Atemzug packten ihn zwei Hände und ein dritter Stand trat ihm gegen Schienbein und Oberschenkel, und der schwarze Mund der Tiefe tat sich auf wie ein Maul, das schon alles gesehen hatte.
 
-„Warum jetzt?“ fragte er.
+Die Stufen waren schmal wie Gier. Kalte Luft stieg auf, die nicht roch, als wäre sie alt ohne jeden Duft. Licht strich ihm über den Rücken, dann fiel der Deckel zu, und das wenige Licht wurde zu einem Strich und dann zu gar nichts. Tarons Atem klang plötzlich viel zu laut.
 
-„Warum nicht?“, sagte die Stimme. „Du wirst nicht jünger.“
+— Atme leiser, schlug die Stimme vor. Am besten gar nicht. Aber das ist schwierig. Ich weiß.
 
-„Zehn Jahre Ruhe, und du wählst das hier?“
+Er tastete mit Händen und nackten Füßen auf dem kalten Stein. Milch klebte an der Haut wie eine Erinnerung, die man abschütteln würde, wenn sie nicht so heimtückisch wäre. Die Stufen führten nach unten in einen Gang, der nicht gebaut, sondern von der Erde getrunken schien.
 
-„Ich wähle gar nichts“, sagte sie. „Ich beobachte nur. Links.“
+Er erreichte den Boden. Etwas knackte. Er bewegte den Fuß und spürte unter der Sohle splitternde Schalen. Knochen. Nicht groß. Ratte. Oder Finger.
 
-Er bog nach links ab und hörte es zuerst nicht. Dann doch. Es war nicht Geräusch und nicht Stille, sondern ein Druck, der alles war, was zwischen Haut und Knochen passte. Es war Hunger. Aber kein Magen, der knurrt; eher etwas, das einmal ein Magen gewesen war, dann ein Mund, dann ein ganzes Land, das gelernt hatte, zu verlangen. Es zog an ihm auf eine Weise, die nichts mit Händen zu tun hatte. Sein Atem wurde flach.
+„Ich seh’ nichts“, flüsterte er.
 
-„Nicht so“, sagte die Stimme. „Länger. Flach spart nichts. Wenn du nichts atmest, gehörst du schneller ihm.“
+— Ein Segen. Wenn du sehen würdest, würdest du rennen. Und wenn du rennst, gewinnst du. Oder verlierst. Statistisch tendiere ich zu verlieren.
 
-„Ihm?“
+„Du hilfst mir so überhaupt nicht“, fauchte Taron in die Finsternis.
 
-„Ihr. Es ist eine Sie, wenn du sie bändigen willst. Klingt doch gleich weniger furchterregend.“
+— Das stimmt so nicht, sagte die Stimme leicht. Zwei Schritte nach links. Nein, deine anderen links.
 
-„Das ist unbeholfen“, murmelte Taron, und ein Lachen, klein und bitter, stieg ihm auf, während er schneller wurde. Der Gang führ­te in eine Weitung, wo Wasser von der Decke sickerte und eine Rinne im Boden füllte. Das Wasser roch nach Salz.
+Taron verhinderte knapp, mit dem Knie gegen etwas zu stoßen, das wie ein Eisenring aus der Wand ragte. Er hielt den Atem an und spürte, wie kühle Strömung an ihm vorbeistrich, als wäre die Dunkelheit lebendig.
 
-„Da“, sagte die Stimme zufrieden. „Die Alten waren nicht dumm.“
+Es hieß im Dorf, unter der Burg gebe es ein Ding, ein leises, das die Alten „den Hunger“ nannten. Kinder flüsterten Geschichten darüber, wie es Männern den Willen aß, bis sie vergaßen, zu essen, zu trinken, zu sprechen, und schließlich leise wurden wie eine Tür, die aufhört zu knarren, weil kein Haus mehr steht. Taron hatte dieses Gerede für die Sorte Dinge gehalten, die man sagt, um den Abend aufregender zu machen.
 
-„Ich dachte, es gibt keine Zufälle.“
+Jetzt, da das, was war, ihn mit den Wurzeln des Bauches packte, wusste er, dass er Unrecht gehabt hatte. Es war Hunger. Nicht wie Magenknurren. Wie das Fehlen von allem Warmen. Wie das Verschwinden der Namen.
 
-„Es gibt Menschen, die Dinge gegen das Unbenennbare bauen. Manches hält.“
+— Nicht an Brot denken, sagte die Stimme knapp. Nicht an Suppe, nicht an Elvas Zunge an deinen Lippen, nicht an—
 
-Taron kniete nieder, fuhr mit zwei Fingern durch das Rinnenwasser, leckte daran und verzog das Gesicht. Bitter. Salzig. Er tauchte sein Halstuch hinein, das einmal ein gutes Tuch gewesen war und nun roch wie die Ecke hinter dem Ziegenstall. Er band es sich vor Mund und Nase. Der Hunger zog näher. Es fühlte sich an, als träte etwas Schweres in einen Raum, den es nicht betreten durfte, und drückte trotzdem die Wände.
+„Halt den Mund!“, keuchte Taron, und das Echo nahm das „Mund“ und trug es in drei Richtungen, als gäbe es Abzweigungen, die auf verschiedene Arten fraßen.
 
-„Steh nicht mitten im Raum“, sagte die Stimme. „An die Wand. Nein, nicht die, die andere.“
+Der Gang wurde höher, dann enger. Er strich die Finger entlang der rechten Wand und spürte Kerben, als hätte jemand mit Geduld und Verzweiflung gezählt. Eins, zwei, drei… bei neun setzte sein Finger auf eine tiefe Rille, dann brach der Stein aus und seine Hand fuhr ins Leere. Er stolperte, fiel beinahe. Ein dünner Windstoß riss an seinem Ärmel.
 
-„Das ist hilfreich“, zischte Taron, doch er gehorchte, weil Gehorsam manchmal schneller war als Fragen. Etwas strich an ihm vorbei, eine Kälte, die nichts mit dem Wasser zu tun hatte. Er hielt den Rücken an den Stein, das Tuch vor dem Gesicht, und versuchte sich vorzustellen, er sei nur eine Unebenheit, kein Junge, keine Milch, kein Fehler. Etwas roch kurz an ihm, nicht durch die Nase, aber doch irgendwie. Ein Teil seines Herzens wollte in die Mitte der Weitung laufen und schreien. Der andere wollte sich in den Stein drücken, bis er ihn auf der anderen Seite wieder ausspuckte.
+— Stopp. Stopp! Nein. Weiter. Lauf.
 
-„So ist gut“, sagte die Stimme. „Sie mag kein Salz. Und keine Kanten, die sie nicht lesen kann.“
+„Was denn nun?“, fauchte Taron, aber seine Beine hatten bereits entschieden. Sie liefen. Er rannte, blind, die Hände vorgestreckt, hingeschleudert von der eigenen Furcht. Etwas neben ihm machte ein Geräusch wie Schieben von Sand. Sein Knöchel schlug gegen etwas Hartes, Schmerz explodierte, er fluchte, und das Wort schluckte die Dunkelheit und kaute, als schmecke sie daran.
 
-„Wie lange?“, fragte Taron, Worte knapp, Luft kostbar.
+„Ich sehe nichts…“, keuchte er wieder, und da war wieder diese Strömung, stärker jetzt, kalt wie Winterwasser an den Schienbeinen.
 
-„Länger.“
+— Den zweiten Vorsprung links, sagte die Stimme schnell. Nein, nicht den ersten, den zweiten. Rein da.
 
-Nicht hilfreich. Aber er blieb, wartete, bis der Druck nachließ, nicht ganz, aber soweit, dass man wieder denken konnte. Er tastete sich weiter, fand mit der Hand kalte Klammern in der Wand. Ein Gitter schloss einen tieferen Schacht ab. Dahinter ging es hinunter in die Finsternis, die nicht einfach Mangel an Licht war, sondern Dichte. Der Gitterrahmen war mit einem Keil festgesetzt, der alt und aus Holz war, das sich anfühlte wie Stein.
+Er prallte gegen Stein, tastete, fand eine Nische, die eigentlich nur ein Schatten im Schatten war, und drängte sich hinein, so tief er konnte. Der Hunger spürte ihn, roch ihn, roch all sein Weiches, sein kleines Herz aus Fleisch und Furcht, und strich an der Nische vorbei wie eine Katze, die so tut, als interessiere sie die Speisekammer nicht. Taron hielt den Atem an, so lange, bis sein Körper beschloss, doch wieder Luft zu nehmen, und dann zischte es in seinem Hals, und die Kälte wandte sich zu ihm.
 
-„Lass den“, sagte die Stimme.
+— Nicht jetzt, nicht jetzt nicht jetzt, kreischte die Stimme, und Taron fiel auf die Knie und kroch, presste sich an das Gestein, das kalt war und ihn kratzte wie unwillige Finger. Er hörte etwas anderes jetzt, etwas wie… Singen? Nein. Besseres. Brotkruste, warm, reißend. Elva lachte, ganz nah. „Taron, du Dummkopf“, hörte er, und er wusste, wenn er nur die Hand ausstreckte, wäre es da, warm, süß. Der Hunger war nicht nur Kälte. Er war List.
 
-„Warum?“
+„Nein“, würgte er und schlug den Kopf gegen die Wand. Es tat gut, etwas Schmerz eigenes zu haben, der nicht gezupft wurde wie eine Saite. Er rappelte sich auf in eine Hocke, tastete weiter, stieß auf eine Öffnung, tiefer, schmaler, und schob sich hindurch. Sein Hemd blieb an einem Nagel hängen, riss, etwas kratzte ihm den Rücken. Sein Atem ging schneller, obwohl die Stimme geknirscht hatte, langsamer, langsamer.
 
-„Weil er alt ist und dir auf die Füße fällt.“
+— Geradeaus, drei Schritte. Dann ein Abgrund.
 
-„Ich muss da durch.“ Er zerrte daran.
+„Eine Falle?“, fragte er und wusste nicht, ob er lachte oder schnappte.
 
-Der Keil löste sich mit einem Stöhnen wie von einem zufriedenen Mann. Das Gitter sprang ein Stück auf und fiel ihm prompt auf den Fuß. Schmerz. Er biss die Zähne zusammen und stieß ein Geräusch aus, das man für ein verunglücktes Lachen halten konnte. Die Stimme schwieg demonstrativ.
+— Nenn es, wie du willst. Es ist da. Besser nicht hineinfallen. Wenn du es vermeiden kannst.
 
-„Falscher Rat?“, keuchte er.
+Er nahm zwei Schritte. Beim dritten verlor sein rechter Fuß den Boden. Reflexe rissen ihn nach hinten, weg. Sein linker Stiefel schlug gegen etwas, das nachgab, er fiel, fing sich an einer Kante, die seine Finger versuchten, zu umklammern, die Hände nass von… Milch? Nein, Schweiß und Stein. Seine Füße strampelten und fanden nur Leere. Ein Hauch aus dem Loch stieg zu ihm herauf, kalt und so alt, dass er glaubte, sie habe sein Gesicht schon einmal gestreichelt, damals, als er sieben war und die Nacht brannte und das Brüllen der Zwerge wie Metall über die Hügel ging und die Stimme verschwieg, sich zusammenfaltete und verschwand.
 
-„Ich hab’ dich gewarnt“, sagte sie. „Weiter.“
+— Lass los, sagte die Stimme nüchtern.
 
-Er drückte sich durch den Spalt, schabte sich die Schultern auf, rieb das Tuch tiefer ins Gesicht. Dahinter wurde die Luft kälter, als wäre sie von einem anderen Wetter. Seine Finger waren bald taub. Er hörte das Ziehen wieder. Diesmal war es näher, um ihn, in ihm. Er begriff, dass der Hunger nicht etwas suchte, was er bei sich trug, keine Münze, kein Brot, sondern das, was ihn zusammensetzte: Wärme, Atem, Namen.
+„Was? nein!“, heulte Taron.
 
-„Geh schneller“, sagte die Stimme, und er tat es. Die Gänge machten undurchsichtige Knicke, als hätte jemand sie mit gebrochenen Händen gezeichnet. Einmal stolperte er über etwas, das wie ein Bündel Tücher im Dreck lag, und merkte erst beim nächsten Schritt, dass es Knochen gewesen waren, im Stoff vergangener Zeit. Er würgte. Er zwang sich weiter.
+— Ach, war ein Witz. Halte dich. Gleich links ist ein Vorsprung. Nein, nicht da. Da. Wenn du die Hand… da lang. Taron!
 
-Es kam zu einem Raum, dessen Wände glatt waren wie das Innere einer Muschel. In der Mitte stand eine Säule, so fein, dass sie nicht in den Raum passte, als hätte ein Künstler der Oberen sie vor Jahrhunderten hierher vergessen. Auf der Säule lag etwas, das wie ein Schwert aussehen sollte, aber nur die Andeutung eines Schwertes war: rostig, stumpf, die Spitze in nichts. Taron griff es trotzdem. Es war schwer wie die Entscheidung eines anderen.
+Er schob, zog, schabte die Haut von den Knöcheln. Seine Arme brannten, als hätten sie Kohlen unter der Haut. Etwas glitt an seinen Füßen vorbei, nicht Berührung, sondern Absenz, als zöge jemand die Wärme aus seinen Zehen. Er schrie etwas, das ein Gebet hätte sein sollen und als Fluch geboren wurde.
 
-„Wozu?“, fragte er.
+Und dann, an einem dieser allerletzten Kantenaugenblicke, weitete sich das Schwarz, nicht nach unten, sondern nach überall. Ein Riss ging durch die Welt, leise. Es roch nach Regen, der nach langer Trockenheit fällt, und nach Kreide, die auf eine Tafel geschrieben wird. Eine Hand berührte seinen Nacken. Nicht warm. Nicht kalt. Einfach da. Und das Loch, an dem er hing, war weg.
 
-„Gib ihr etwas zu beißen, wenn sie dich lieber hat als das hier.“
+Er fiel nicht. Er lag. Auf etwas Weichem, das nach altem Heu duftete und Kräutern, nach Suppe, die zu lange gekocht hatte, und nach dem süßen Rauch von Torf.
 
-Es war lachhaft. Mit einem stumpfen Schwert gegen ein Wort. Aber Lachen hielt ihn am Leben. Er hob es, spürte, wie das Metall in seinen Händen kälter wurde, als das durchgeht. Der Hunger trat ein. Nicht durch eine Tür; es war vielmehr, als hätte seine Anwesenheit einen Schatten zur Seite geschoben, und darunter stand etwas, was man mit Augen nicht sehen konnte, aber mit Knochen sehr wohl.
+„Nicht bewegen“, sagte eine Frauenstimme, die wie ein gutes Messer war: scharf, aber verlässlich. „Du bist so bleich, Junge, als hättest du die Sonne gefressen und vergessen zu kauen.“
 
-Taron hob das Schwert. „Nicht weglaufen“, sagte er laut, die Stimme im Kopf und seine eigene in einem Chor, den er nicht kannte. „Nicht—“
+Er blinzelte. Licht. Nicht das säuerliche der Burg, sondern weiches, das durch einen Flicken im Fenster fiel. Ein Dach aus Schilf über ihm. An den Wänden Bündel von Kräutern, aufgehängt an Fäden, die jemand mit Geduld gedreht hatte. Ein Kessel murmelte in einer Ecke. Sein Rücken schmerzte, sein Knöchel war umwickelt, sein Hemd roch fremd.
 
-Er rannte.
+Die Frau, die sich über ihn beugte, war klein und breitschultrig, das Haar zu einem Nest gebunden, in dem Nadeln steckten wie kleine Spieße. Ihre Hände waren sauberer, als man es in einem Haus erwartete, in dem die Decke schwarzer war als der Herd. Sie tupfte ihm die Stirn ab.
 
-Armselig. Aber guter Instinkt. Die Stimme klang amüsiert und jetzt ein wenig stolz. Er rannte in einen Gang, der plötzlich zu steil war, und glitt mehr, als dass er lief. Hinter ihm zog die Leere. Er war schnell, aber sie war schneller. Er merkte, wie ihm die Wärme aus der Haut floss, als hätte jemand alle seine Decken geraubt. Er stolperte wieder, und diesmal fiel er. Er rutschte auf die Knie und die Hände, schürfte sich die Haut auf, roch Blut. Etwas an seinem Rücken wurde so kalt, dass es brannte.
+„Marta Grubenlicht“, sagte sie, als er sein Gesicht verzog. „Ja, ich bin die. Und du bist der Junge aus dem Burgloch.“
 
-„Dreh dich nicht um“, sagte die Stimme scharf. „Sie ist größer, wenn du sie ansiehst.“
+„Ich bin Taron“, versuchte er, und es klang, als sei seine Zunge aus Holz.
 
-Er kroch, auf Ellenbogen und Knien, gehetzt wie ein Stück Vieh. Er sah vor sich eine schmale Öffnung, ein Spalt in der Wand, wo Wasser schmal zwischen zwei Steinen hinablief. Es roch nach Salz. Er warf sich dagegen, presste sich hindurch, fühlte die Wangenknochen gegen den Stein, den Gürtel reißen. Hinter ihm streifte ihn die Kälte ein letztes Mal, als würde jemand an seinem Schatten ziehen. Dann war er durch, und das Ziehen ließ nach, nicht viel, aber genug, dass er wieder fiel, diesmal nach vorn, auf etwas Weiches: Moos oder altes Holz, das zu Moos geworden war.
+„Taron denn“, gab sie zurück, und in ihrem Mund klang es, als stünde hinter dem Namen ein Punkt. „Der Fremde hat gesagt, ich soll mich um dich kümmern. Ich hab’s getan. Und nun trink.“ Sie hielt ihm einen Becher an die Lippen. Es schmeckte nach Bitterem, nach Wurzeln, nach Rettung.
 
-„Aufstehen“, sagte die Stimme.
+„Fremder?“, flüsterte er zwischen zwei Schlucken. Seine Kehle zitterte.
 
-„Ich kann nicht.“
+„Ja.“ Sie setzte sich auf den Stuhl neben dem Bett, als sei es ihrer und bleiben würde. „Kam gestern, als ich die Zwiebeln schnitt. Klopfte nicht, stand einfach da, wie einer, der immer schon im Raum war und man hat’s nur nicht gemerkt. Mantel wie die Nacht, Kanten ordentlich, als hätte seine Mutter sie selbst gesäumt. Er legte ein Goldstück auf den Tisch, so eines, bei dem einem die Finger jucken, es wieder anzufassen, weil es so schön schwer ist. Sagte, da käme ein Junge, ich solle den nicht sterben lassen. Ich habe gesagt, ich brauche keinen Rat, um Leuten das Sterben zu lassen oder nicht, ich weiß schon wie man’s verhindert. Da hat er gelächelt. Auf eine Art, die…“ Sie schnaubte. „…als hätte er die Welt im Sack und sie würde schimmern, wenn er ihn aufmacht. Mir gefiel das nicht. Aber sein Geld gefällt mir. Und die Tatsache, dass du so lebst, auch.“
 
-„Doch. Du bist nicht fertig.“
+Taron hörte nur halb. Sein Herz war noch in der Tiefe, sein Rücken an rauer Kante, seine Finger schmerzten vom Halten. Doch der Gedanke an eine Gestalt, die in Martas Küche stand und ein Goldstück auf ihren Tisch legte, legte sich über all das wie ein Tuch.
 
-„Ich bin fertig“, keuchte er. „Ich bin…“
+„Wie sprach er?“, fragte er, langsamer. „Seine… seine Stimme?“
 
-Die Welt machte einen kleinen Sprung. Nichts Großes: kein Donnerschlag, kein Licht. Nur der Eindruck, als wäre die Burg eine Decke, die jemand ausschüttelte, und er weniger fest darauf als er gedacht hatte. Etwas Kaltes glitt ihm unter die Haut, etwas anderes legte sich über ihn, warm wie eine Hand, die nicht zu einem Körper gehörte. Er dachte an Wasser, an die Oberfläche eines Teiches, an das Gefühl, wenn man die Schwelle einer Tür überschreitet und merkt, dass der Raum dahinter eine andere Temperatur hat. Jemand sprach, aber es war nicht die Stimme in ihm. Es war eine Männerstimme, verhalten und geduldig, und er hatte keine Zeit sich zu fragen, wo sie herkam oder ob sie die gleiche war, bevor er den Faden verlor, der ihn an das Hier band.
+Marta runzelte die Stirn, als überlege sie, welchen Geschmack man einem Geruch zuschreibt. „Trocken. Nicht rau, nicht glatt. Kein Dialekt. Er machte sich lustig, ohne die Lippen zu bewegen. Er sagte, ich solle mir keine Sorgen machen. So sagt nur jemand ohne Sorgen, dass man sich keine machen solle. Und er…“ Sie schüttelte den Kopf. „…seine Augen. Ich mochte sie nicht sehen. Als schaute er nicht dich an, sondern das, was mal aus dir wird, wenn man an dir zieht wie an einem Weidenzweig.“
 
-Als er die Augen öffnete, roch er zuerst Suppe. Zwiebeln, Lauch, etwas, das nach Erde schmeckte, und ein Hauch Speck, die Sorte, die man nur am Festtag bekam. Und er roch Seife, nicht die gute aus der Schenke, sondern die, die nach Asche roch und auf den Händen derer lag, die Sachen wirklich sauber machten. Ein kleines Fenster stand offen, und draußen stritten Spatzen. Die Decke über ihm war niedrig und schwarz von Rauch.
+Taron schloss die Augen. Sein Inneres fror und schwitzte zugleich.
 
-„Aha“, sagte jemand, „der Tote kann denken.“
+— Sieh mal an, sagte die Stimme beiläufig. Du hast Freunde, von denen du nichts weißt. Ich beneide dich fast.
 
-Taron blinzelte. Die Frau, die neben seinem Lager saß, löffelte Suppe aus einem Topf und ließ den Löffel dann wieder sinken, weil sie sich entschied, dass er noch nicht genug lebte, um füttern zu wollen. Sie hatte einen runden, sehr festen Mund, ein Kopftuch, das aussah, als habe es schon halbe Kriege gesehen, und Hände, die viel gearbeitet hatten. Eine Katze saß unter ihrem Schemel und tat so, als sei sie Luft.
+„Warst du das?“, flüsterte Taron. „Warst du da?“
 
-„Wo bin ich?“, krächzte Taron.
+— Ich bin immer da, sagte die Stimme. Manchmal mehr, manchmal weniger. Manchmal war ich zehn Jahre weg. Es war nötig. Manchmal stelle ich Münzen ab. Manchmal vergesse ich, zu bezahlen. Wir haben alle dunkle Seiten.
 
-„Bei Marta Grubenlicht. Wenn du ein Dieb bist, hättest du dir was Besseres suchen können.“ Sie tippte mit dem Finger gegen seinen Arm, als prüfe sie, ob er reif sei. „Du warst kalt wie ein Wintermorgen und nass wie ein Fisch im Eimer. Ein Mann hat dich gebracht.“
+„Warum bist du gegangen?“, fragte Taron, und das Wort schnitt ihm selbst. „Damals. Nach…“ Er stockte. Das Bild von Eisen, von rotem Schnee, von einem Zwerg, der mit gespreizten Fingern fiel, schob sich vor seine Augen. Er war sieben gewesen. Es hatte gestunken. Die Stimme hatte aufgehört.
 
-Taron versuchte, sich zu erinnern, ob man ihm die Arme ausgerissen hatte oder nur die Beine. Beides schmerzte. „Welcher Mann?“
+— Ach, guck, der Junge stellt Fragen, sagte die Stimme und klang plötzlich weit weg, als spräche sie in einen Schacht hinunter. Wir sollten uns über Ziegenmilch unterhalten. Die hat eine erstaunliche Kraft. Oder über den Hunger. Der hat dich fast gehabt. War dumm von dir, zu rennen. Aber ich verzeihe dir. Noch.
 
-Marta zog aus einer Schublade unter dem Tisch etwas hervor, das leise klirrte: ein Goldstück, alt genug, dass jemand den Kopf darauf schon zweimal nachgezeichnet hatte. „So einer, der nicht fragt, ob's dir passt. Dunkler Mantel, als wär’ es draußen Nacht, obwohl die Sonne hoch stand. Kein Bart. Augen wie…“ Sie überlegte. „Wie Glas, das zu lange im Regen lag. Er hat geredet, als hätte er's eilig, aber nicht mit den Füßen, nur im Kopf. Hat gesagt, ich soll dich wieder zusammenflicken, sonst würde die Burg aus den Fugen geraten, wie die Tür vom Keller, wenn man sie nicht recht schließt. Ich hab nicht gefragt. Ich frag selten, wenn Gold auf dem Tisch liegt.“
+Er öffnete die Augen und starrte auf die Decke. „Du… du hast mich geholt. Oder der Fremde.“
 
-„Und er hat… wie gesprochen?“ Taron versuchte aufzusetzen. Sein Rücken beschwerte sich. Er ließ es.
+— Möglich, sagte die Stimme leicht. Möglich auch, dass dich dein Schicksal herausgehoben hat wie eine Forelle aus dem Fluss. Möglich, dass du einfach in die richtige Richtung gefallen bist und Marta dich im Graben fand. Menschen lieben Geschichten. Such dir eine aus, die dich schlafen lässt.
 
-„Trocken“, sagte sie. „Du weißt schon. Als wär's ihm egal, aber nicht wirklich. Und ein bisschen spöttisch, aber so, dass man’s erst merkt, wenn man heimgeht und den Spruch drei Mal wiederholt hat. Als wär' er klüger als ich. Sind die meistens.“
+„Du redest wie immer: zu viel und doch nichts“, murmelte Taron.
 
-In seinem Kopf räusperte sich jemand unhörbar laut. „Sie hat Geschmack“, sagte die Stimme. „Wenn sie nur auch Talent hätte.“
+„Was?“, fragte Marta, die gerade seinen Knöchel prüfte und ihm dabei mehr wehtat, als sie vorgab. „Red nicht so, dein Fieber war höher als mein Kessel. Schon gut jetzt. Du bleibst heute. Morgen kannst du gehen und sie alle sollen sehen, dass du noch Beine hast.“
 
-„Warst du das?“, flüsterte Taron.
+„Ich kann nicht zurück“, sagte Taron, überraschend leise. „Nicht zu… ihnen.“
 
-Marta hob die Augenbrauen. „Ich? Ich hab jeden Tag was zu tun, Junge. Ich flüstere nicht. Ich sage, was gesagt werden muss, und koche, was gekocht werden kann. Trink.“
+„Zu wem?“, fragte sie. „Den Burgherren? Dem Mönch? Dem Mädchen, das dich wie Käse angemacht hat?“
 
-Er nahm den Becher, den sie ihm reichte, und trank. Es war Wasser, und es schmeckte nach Zinn, aber es war das Beste, was er je gehabt hatte, nach dem, was unter der Burg gewesen war. Dann bückte sich Marta, tastete seinen Ärmel entlang und nickte, zufrieden oder einfach nur, weil sie es gern tat.
+Er sah sie an. Sie sah zurück, unbeeindruckt. Er wusste, dass er lächelte, obwohl es wehtat. „Zu alledem.“
 
-„Wie lange?“, fragte er.
+— Lauf, flüsterte die Stimme. Weg. Hügel hinunter, Hain links, Bach, der graue Karrenweg. Lass Burg und Zeichen und Männer mit Augen wie Kerzen hinter dir. Du schuldest ihnen nichts. Und mir? Du schuldest mir Unterhaltung. Und das bekommst du nur, wenn du lebst.
 
-„Eine Nacht und den halben Tag. Ich dachte, du machst's nicht. Aber dann hast du dir plötzlich das Gesicht verzogen, als ob dich jemand am Ohr zog, und angefangen zu atmen wie ein Schmiedebalg. Gute Zeichen. Dieser Mann—“ sie tippte gegen das Gold, als sei es ein Symptom und nicht die Ursache, „—hat gesagt, ich soll dich nicht zur Burg bringen. Dass du mir gestohlen werden würdest, wenn die sehen, dass du noch atmest.“
+„Ich bin Stallbursche“, sagte er, mehr zu sich als zu ihr. „Ich weiß, wie man Hufe auskratzt. Mehr nicht.“
 
-„Er wusste, dass ich atme?“ Taron legte das Kinn auf die Brust und wünschte sich, den Kopf abnehmen zu können, um ihn ruhen zu lassen. „Wer war er?“
+„Manche von uns müssen lernen“, sagte Marta schlicht. „Und manche von uns müssen aufpassen, dass sie nicht lernen, was andere in sie hineinzwingen. Trink den Rest. Und dann geh, wenn du gehen willst.“
 
-„Ein Fremder. Die kenne ich alle. Er roch nach nassem Stein. Hatte die Stiefel von jemandem, der geht, ohne zu stolpern.“
+Er trank. Der Trank war jetzt weniger bitter. Vielleicht gewöhnte er sich daran. Vielleicht schmeckte er plötzlich die Spur Honig darin, die Marta hineingerührt hatte, ohne es zu sagen.
 
-„Das grenzt es ein“, sagte die Stimme. „Ungefähr auf jeden zweiten in dieser Stadt.“
+Der Nachmittag lag wie ein schlafender Hund vor der Tür. Das Licht war gelb und warm, der Wind trug Stimmen aus der Ferne, aber sie gehörten nicht ihm. Er stand, langsam, auf wackligen Beinen. Marta drückte ihm ein Bündel in die Hand: Brot, ein Stück hart gewordenes, Käse, der ihm einen Blick zuwarf, als sei er beleidigt von der Milch, die er verloren hatte, und ein Messer in einer alten Lederscheide.
 
-„Halt die Klappe“, sagte Taron innerlich. Zu Marta sagte er: „Danke.“
+„Für jemand, der sagt, er ist nur ein Stallbursche, riechst du jetzt besser“, sagte sie und sah ihn schief an. „Pass auf deine Zunge auf. Sie ist schneller als deine Füße.“
 
-„Hab’s begriffen“, meinte sie, und das Lächeln, das dabei kurz über ihr Gesicht lief, war das Lächeln einer Frau, die in ihrem Leben vielleicht drei Komplimente gesammelt hatte und jedem noch misstraute. „Isst du?“
+„Danke“, sagte er roh, weil weiche Worte ihm wehtaten.
 
-Er aß. Langsam. Die Suppe füllte etwas in ihm, das der Hunger berührt hatte, und jedes Mal, wenn der Löffel seine Lippen verfehlte, weil seine Hand zitterte, tat er so, als habe er das so gewollt. Die Katze sah ihm dabei zu, als sei er Unterhaltung. Als er fertig war, lehnte er sich zurück und schloss kurz die Augen. Als er sie öffnete, stand Marta schon mit seinem Hemd in der Hand da. Es war sauber. Er wusste nicht, wie sie das so schnell gemacht hatte.
+„Und du“, sagte sie, ohne den Blick zu heben, als spräche sie mit dem Kessel. „Wenn du wiederkommst und einen meiner wieder herausklaubst, bring mehr als ein Goldstück. Oder lern, zu klopfen.“
 
-„Du gehst da nicht wieder hinunter“, sagte sie, und es klang nicht wie ein Rat. Es klang wie eine Drohung.
+— Welch unverschämte Person, kommentierte die Stimme mit Zuneigung. Ich mag sie.
 
-„Ich hatte es nicht vor.“ Taron setzte die Füße auf den Boden. Holz. Warm. Ein kleines Feuer im Herd, das so tat, als könnten kleine Dinge die Welt zusammenhalten. Er stand, wankte und blieb stehen. „Ich sollte gehen, bevor…“
+Taron öffnete die Tür. Die Welt draußen war dieselbe. Der Weg vor Martas Haus lag im Staub, der Bach murmelte, die Bäume über ihm ließen Lichtflecken tanzen wie kleine Vögel. Aber in seinem Kopf saß eine Stimme, die gelacht hatte, während er hing. Und irgendwo hatte jemand, der sich anmaßte, seine Schritte mit Münzen zu lenken, in einer Küche gestanden und freundlich gelächelt.
 
-„Bevor sie dich finden“, beendete sie den Satz. „Ja. Wenn du hier zwei Stunden länger bleibst, klopfen sie, und ich bin zu alt, um glaubhaft zu lügen. Aber komm wieder. Nicht wegen des Goldes. Wegen meines Stolzes. Ich nähe gern zu Ende, was ich angefangen habe.“
+Er trat hinaus. Der Wind war kühl und roch nach Korn. Er atmete tief ein, spürte, wie die Luft die Milch aus seinen Haaren trocknete, wie sein Hemd an seinem Rücken klebte, wie seine Füße die Erde fanden. Waldkirch oben auf dem Hügel war eine Silhouette aus Zähnen gegen den Himmel. In ihm gruben Männer die alten Geschichten aus und malten sie den Jungen an die Stirn. In ihm lebte ein Hunger. Und in ihm, Taron, lebte etwas, das vielleicht nicht wichtig war, ob es „Auserwählt“ hieß oder nicht.
 
-Er nickte, nahm das Bündel, das sie ihm gab: das Hemd, das Tuch, das jetzt nach Seife roch wie eine Entscheidung. An der Tür hielt er kurz inne.
+— Nun denn, sagte die Stimme und klang, als hätte sie sich in einem Sessel zurückgelehnt, den nur sie besaß. Gehen wir. Ich habe viel geplant. Du wirst es lieben. Oder hassen. Am Ende wirst du sagen: Es war alles natürlich von Anfang an geplant. Und ich werde dir nicht widersprechen. Heute nicht.
 
-„Dieser Mann“, sagte er. „Hat er dir gesagt, wie er heißt?“
+„Du bist mehr als nur eine Stimme“, sagte Taron in das Licht hinein, und seine eigenen Worte überraschten ihn mit ihrer Sicherheit. Sie schmeckten nach Eisen. „Nicht wahr?“
 
-Marta lachte leise, ein Geräusch wie ein Messer, das man auf einen Tisch legt. „Die Sorte nennt keine Namen. Er hat nur gesagt: Er wird schon wissen, wohin seine Füße gehen.“ Dann hob sie die Hand. „Geh.“
+Die Stimme schwieg eine Sekunde, eine Minute, zehn Jahre. Dann sagte sie, gelangweilt: — Ach, endlich. Du fängst an zu hören.
 
-Die Luft draußen war hell und roch nach Frühling und Fischen. Die Burg Waldkirch lag über den Häusern wie eine Hand, die einen Käfig schloss. Taron stand einen Moment auf der Schwelle, spürte die Sonne auf seinem Gesicht und den Schatten in seinem Rücken. Die Stimme war still. Das war verdächtig.
-
-„Du hast mir das Leben gerettet“, sagte er schließlich, halblaut, in die Gasse, die nach altem Brot roch.
-
-„Ein großes Wort“, antwortete sie. „Ich hab dich nur davon abgehalten, etwas äußerst Dummes äußerst schnell zu tun. Das Leben retten ist mühsamer. Dafür bist du zuständig.“
-
-„Und dich gibt es… wirklich?“ Er sah nicht nach oben, nicht nach innen, sondern dahin, wo die Katzen über die Dächer wandelten, als gehörte ihnen die Stadt.
-
-Die Stimme seufzte, und das Seufzen klang, als rollte jemand eine Karte zusammen, auf der zu viele Wege aufgezeichnet waren. „Es gibt viele Dinge wirklich, Taron Falkenried. Die meisten davon sind nicht klug genug, darüber nachzudenken. Bewegung tut dir gut. Geh. Du willst Elva aus dem Weg gehen, deine Milch trocknet, und Bruder Malchior hat gewiss bereits darüber nachgedacht, an welche Tür er als Nächstes klopfen will.“
-
-„Und du?“
-
-„Ich laufe mit. Es wäre unhöflich, dich jetzt allein zu lassen, wo wir uns gerade wiedergefunden haben.“
-
-Er trat in die Gasse. Sein Schatten fiel schräg, lang und geteilt, als wüsste er noch nicht recht, wohin er mit sich sollte. Taron ging und merkte, dass er begann zu ahnen, dass die Stimme in seinem Kopf mehr war als nur Erinnerung an ein Kinderspiel. Dass jemand mit dunklem Mantel Münzen auf Tische legte, wenn er fiel. Dass Dinge mit Plan durch Zufall schlüpften. Er mochte das nicht. Aber er mochte es auch nicht, zu sterben. Zwischen diesen beiden Abneigungen wählte er die, die ihm das Gehen erlaubte.
-
-„Links jetzt“, sagte die Stimme.
-
-Er ging nach rechts.
-
-„Trotzkopf“, murmelte sie, ohne Verärgerung.
-
-„Demut“, murmelte er, ohne Lächeln, und war froh, dass niemand da war, der es hören konnte, bis auf den einen, der nie wirklich schwieg. Er zog die Schultern hoch, als der Wind durch die Gasse fuhr, und machte sich auf den Weg zur Burg, weil man zu den Orten zurückkehrt, an denen man hingeworfen wurde, wenn man keine Wahl hat. Und weil in seinen Ohren das leise Kratzen einer Wahrheit saß, das mehr klang wie das Anlaufen eines fernen Rades als wie die Stimme eines Freundes: Das ganze Chaos würde nicht aufhören, nur weil er es wollte. Er musste lernen, darin zu laufen, ohne jedes Mal hinzufallen. Oder jemanden dabei mitzureißen.
-
-Über ihm stand die Burg. Unter ihm die Schatten. In ihm ein Hunger, der nicht der ihre war: der nach einer Antwort auf Fragen, die nie wieder richtig schlafen würden. Und das Weiß der Milch war längst getrocknet, aber manche Flecken gehen schwerer aus einem Leben als aus einem Hemd. Er seufzte. Dann ging er schneller.
+Taron setzte den Fuß auf den Weg. Hinter ihm schloss sich Martas Tür. Vor ihm wartete eine Welt, die ihn nicht wollte und deshalb besonders darauf bestand, ihn zu behalten. Er ging los. Die Luft flatterte gegen sein nasses Haar, und irgendwo in ihm begann ein leises, hartnäckiges Lachen, das vielleicht seines war. Oder nicht. Er legte das Messer neben seine Haut und trat den ersten Schatten an, als träte er auf eine Bühne, von der er behauptet hatte, sie sei nicht seine.
