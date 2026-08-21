@@ -1,5 +1,4 @@
-- Sir Oswin von Hohenklamm und Taron brechen aus der Freien Burg Hohensteg auf; Oswin bleibt trotz Kater aufmerksam, liest Spuren und akzeptiert Tarons innere Stimme „Niemand“ als Gesprächspartner.
-- Drei Wegelagerer stellen sie auf der Straße; Oswin setzt sie in wenigen Atemzügen und ohne Tote außer Gefecht.
-- Oswin berichtet von den Zwergenkriegen und dass er 248 (vielleicht 249) Getötete zählt, um sie als Einzelne nicht zu vergessen.
-- Strategisch will er einen Zauberer anheuern; trotz Tarons Widerwillen kehren sie zurück, und der Wirt des Blauen Ebers verweist sie auf Merlan Graufinger beim alten Brunnen.
-- Offen bleibt, ob sie Merlan antreffen (Rauchsignale), wie fähig er ist und wofür sie ihn konkret brauchen.
+- Oswin und Taron brechen aus Hohensteg auf; Oswin ist trotz Katers extrem wachsam, liest Spuren von vier Reitern und schlägt in einem kurzen, präzisen Gefecht drei Wegelagerer kampfunfähig, ohne sie zu töten. 
+- Oswin spricht über die Zwergenkriege und seine 248 (vielleicht 249) getöteten „Bösen“ und erklärt, warum er sie zählt, was Tarons Bild von ihm vertieft. 
+- Strategisch fordert Oswin, einen Zauberer zu suchen; trotz Tarons Widerstand (und der drängelnden Erzählerstimme „Niemand“) kehren sie um und fragen im Blauen Eber nach. 
+- Der Wirt verweist sie auf Merlan Graufinger samt kryptischen Hinweisen zu Rauchfarben und dem möglichen Nicht-Existieren des Hauses; offen bleibt, wer die vier Reiter sind, ob Merlan auffindbar und nützlich ist und wohin diese Suche führt.

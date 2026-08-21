@@ -16,8 +16,6 @@ Sie ritten durch das Tor von Hohensteg und auf die westliche Straße hinaus. Fü
 
 Nüchtern sah Oswin anders aus. Nicht weniger gutaussehend, was Taron ungerecht fand, aber schärfer. Die Müdigkeit blieb, doch darunter lag etwas Geübtes. Sein Rücken war gerade. Seine Hände lagen ruhig an den Zügeln. Das Schwert an seiner Seite war nicht Schmuck, sondern Verlängerung eines Körpers, der wusste, wofür es gemacht war.
 
-Leider wusste Oswin das ebenfalls.
-
 Noch lästiger war, dass auch andere Menschen es wussten. Schon beim Aufbruch hatte die Tochter des Stallmeisters Oswin ein Tuch gereicht, das er nicht gebraucht hatte, und die Bäckerin von gegenüber hatte ihm ein zweites Frühstück angeboten, obwohl er so aussah, als würde ihn schon das erste persönlich verfolgen. Oswin hatte beides mit der müden Höflichkeit eines Mannes angenommen, dem Bewunderung vertrauter war als Vernunft.
 
 Ein Weiberheld, dachte Taron.
@@ -32,7 +30,7 @@ Taron hielt Kummer an.
 
 Oswin stieg ab, kniete am Straßenrand nieder und strich mit zwei Fingern über den Boden.
 
-„Vier Reiter“, sagte er. „Gestern Abend. Vielleicht kurz vor Regen.“
+„Vier Reiter“, sagte er. „Gestern Abend.“
 
 Taron sah Erde.
 
@@ -53,12 +51,6 @@ Oswin seufzte.
 Nicht dramatisch. Nicht wütend. Nur müde.
 
 „Bitte nicht“, sagte er.
-
-Der Bogenschütze nannte ihn alt.
-
-Oswin war vierunddreißig.
-
-Es war erstaunlich, wie sehr ein einziges falsches Wort die Luft verändern konnte.
 
 Danach geschah vieles sehr schnell. Oswin zog sein Schwert nicht sofort. Er trat zuerst einen Stein hoch, fing ihn mit der linken Hand und warf ihn dem Bogenschützen gegen die Stirn. Der Pfeil ging in die Äste. Dann war Oswins Schwert draußen, und der erste Mann mit Messer hatte plötzlich sehr viel weniger Messer und sehr viel mehr Angst.
 
