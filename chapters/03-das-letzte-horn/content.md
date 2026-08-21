@@ -26,7 +26,7 @@ Damals hatte er die Stimme noch nicht gehasst. Damals war sie einfach da gewesen
 
 Sie sprach zu ihm, wenn er abends nicht schlafen konnte. Sie erzählte ihm, dass Dunkelheit nur ein Raum sei, in dem das Licht gerade eine Pause mache. Sie warnte ihn, wenn er zu hoch auf Mauern kletterte, erinnerte ihn daran, langsam zu essen, und sagte Dinge wie: „Der Ast hält dich nicht“, kurz bevor der Ast brach. Oder: „Warte noch einen Atemzug“, wenn die Suppe zu heiß war.
 
-Taron hatte damals nicht darüber nachgedacht, ob sie ein Freund war. Für ihn war sie einer.
+Taron hatte damals nicht darüber nachgedacht, ob sie ein Freund war. Für ihn war sie einfach einer.
 
 Und vor zehn Jahren, an dem Tag, an dem er das Horn zum letzten Mal so gehört hatte, war sie noch bei ihm gewesen.
 
@@ -68,7 +68,9 @@ Das Training brach ab.
 
 Sir Berold sah zum Westtor.
 
-„Was ist das?“, fragte Taron. „Etwas, das du nicht allein ansehen musst“, sagte die Stimme.
+„Was ist das?“, fragte Taron. 
+
+„Etwas, das du nicht allein ansehen musst“, sagte die Stimme.
 
 „Was sind das für Schritte?“
 
@@ -77,10 +79,6 @@ Sir Berold sah zum Westtor.
 Das war nicht sehr genau. Aber es machte Taron weniger Angst, als die Wahrheit es getan hätte.
 
 Die Zwerge kamen aus dem Westen.
-
-Die bösen Zwerge gab es wirklich. In dieser Geschichte sind sie keine Redensart und kein Kinderschreck, sondern eine Macht aus Stein, Eisen und alter Wut. Man mag einwenden, dass es sich bei ihnen vielleicht um viele kleine, breite Menschen mit schweren Äxten, dichten Bärten und einem sehr entschlossenen Verhältnis zu unterirdischer Architektur handelte. Dieser Einwand ist nicht völlig falsch. Er ist nur unpraktisch, wenn eine Armee solcher Wesen auf die Grenze zumarschiert und dabei Kriegstrommeln schlägt.
-
-Also nennen wir sie Zwerge.
 
 Sie nannten sich selbst anders. Der Name war hart, alt und für die Zungen Lichtenhains schwer zu formen. Niemand sprach ihn gern aus.
 
