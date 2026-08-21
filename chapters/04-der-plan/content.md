@@ -82,9 +82,7 @@ Taron betrachtete seinen Plan. Er war so einfach, dass sogar er ihm misstraute. 
 
 Er stellte sich vor, wie er zurückkehrte. Nicht triumphal. Das wäre übertrieben. Vielleicht ein wenig staubig, mit dem Splitter in der Hand und einem Gesichtsausdruck, der sagte: Seht ihr, es war gar nicht so schwer, und jetzt lasst mich bitte wieder Pferde füttern.
 
-Dann dachte er an später.
-
-An sehr viel später.
+Dann dachte er an später. An sehr viel später.
 
 An Kinder, die im Hof von Waldkirch spielten und die Geschichte von der dunklen Zeit hörten, als sei sie weit weg und abgeschlossen. Kinder, die zu den Mauern aufsahen und glaubten, sie seien sicher. Kinder, die vielleicht eines Tages zurückdenken würden wie er jetzt und dabei Wärme spürten statt Angst.
 
@@ -92,7 +90,7 @@ Der Gedanke traf ihn unvorbereitet.
 
 Er sah plötzlich Elva vor sich.
 
-Nicht mit dem Eimer. Oder doch, ein bisschen mit dem Eimer. Es war schwer, Elva ohne Eimer zu denken, wenn der Eimer der Grund war, warum sein Leben derzeit in Flammen stand. Aber er sah auch ihr Gesicht im Hof, als die Ritter ihn zum Dungeon geführt hatten. Diese Blässe. Dieses ungesagte Wort zwischen ihnen.
+Nicht mit dem Eimer. Oder doch, ein bisschen mit dem Eimer. Es war schwer, Elva ohne Eimer zu denken, wenn der Eimer der Grund war, warum sein Leben derzeit in Flammen stand. Aber er sah auch ihr Gesicht im Hof, als die Ritter ihn zum Monster geführt hatten. Diese Blässe. Dieses ungesagte Wort zwischen ihnen.
 
 Er liebte sie.
 
@@ -102,37 +100,13 @@ Das war ein völlig unpraktischer Gedanke.
 
 Er liebte Elva Kesseldorn, die ihm Milch über den Kopf gegossen hatte, ihn besser durchschaute als jeder Priester und vermutlich sogar dann noch mit ihm schimpfen würde, wenn er als Geist vor ihr erschiene.
 
-Das war keine gute Zeit, um sich das einzugestehen.
-
-Es war, streng genommen, eine lächerlich schlechte Zeit.
+Das war keine gute Zeit, um sich das einzugestehen. Es war, streng genommen, eine lächerlich schlechte Zeit.
 
 „Interessant“, sagte der Erzähler leise.
 
 „Nein.“
 
-„Ich habe noch nichts gesagt.“
-
-„Dann fang gar nicht erst an.“
-
-„Ich wollte nur bemerken, dass Herzen oft bemerkenswert schlechte Kalender führen.“
-
-„Ich denke da jetzt nicht dran.“
-
-„Selbstverständlich nicht.“
-
-„Ich meine es ernst.“
-
-„Das macht es selten wirksamer.“
-
 Taron sprang auf, bereute es sofort, schnappte nach Luft und tat so, als sei das Teil des Aufbruchs gewesen.
-
-„Ich reite los.“
-
-„Eine Entscheidung.“
-
-„Ja.“
-
-„Eine Flucht vor einem Gedanken ist ebenfalls eine Richtung.“
 
 „Kummer“, sagte Taron, „wir reiten.“
 
