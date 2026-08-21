@@ -64,29 +64,19 @@ Am Tor hielt ihn niemand auf. Die Wachen waren damit beschäftigt, gelangweilt z
 
 „Du hast keine Ahnung.“
 
-„Hab ich meistens nicht.“
-
-Taron nickte. Das war die ehrlichste Begegnung, die er seit gestern gehabt hatte.
-
-Er ging durch den Hof. Niemand rief seinen Namen. Niemand fiel auf die Knie. Niemand deutete mit bebender Hand auf ihn und verkündete ein Wunder. Eine Magd trug einen Korb Wäsche vorbei. Ein Schmied schimpfte über Kohlepreise. Zwei Kinder jagten ein Holzrad über die Steine.
+Er ging durch den Hof. Niemand rief seinen Namen. Niemand fiel auf die Knie. Niemand deutete mit bebender Hand auf ihn und verkündete ein Wunder. Eine Magd trug einen Korb Wäsche vorbei. Ein Schmied schimpfte über die nasse Kohle. Zwei Kinder jagten ein Holzrad über die Steine.
 
 Für einen fast ganzen Atemzug glaubte Taron, die Welt habe beschlossen, wieder vernünftig zu werden.
 
-Dann tat seine Rippe weh.
+Dann tat seine Rippe weh. Es war eine kleine Erinnerung daran, dass Vernunft in dieser Geschichte nur zu Besuch war.
 
-Es war eine kleine Erinnerung daran, dass Vernunft in dieser Geschichte nur zu Besuch war.
-
-Taron erreichte den Stall, stellte fest, dass seine alte Mistgabel noch an der Wand hing, und empfand darüber eine Erleichterung, die einem schlechteren Menschen peinlich gewesen wäre. Ihm war sie nur halb peinlich. Er nahm die Gabel, ging in die erste Box und begann auszumisten.
+Taron erreichte den Stall, stellte fest, dass seine alte Mistgabel noch an der Wand hing, und empfand darüber eine Erleichterung, die einem schlechteren Menschen peinlich gewesen wäre. Ihm war sie nur halb peinlich. Er nahm die Gabel, ging in die erste Box und begann mit seiner Arbeit.
 
 Der Geruch war vertraut. Das Gewicht der Gabel war vertraut. Das feuchte Stroh, die warmen Pferdeleiber, das Schnauben, das Klopfen von Hufen gegen Holz. Alles an diesem Ort sagte: Hier bist du niemand Besonderes.
 
-Taron hätte den Stall in diesem Augenblick küssen können, wenn er nicht vernünftigerweise dagegen gewesen wäre, Dinge zu küssen, die seit Jahren Pferde beherbergten.
+Taron hätte den Stall in diesem Augenblick küssen können, wenn er nicht vernünftigerweise dagegen gewesen wäre, Dinge zu küssen, die seit Jahren Pferde und Mäuse beherbergten.
 
-„Ein bewegender Moment“, sagte der Erzähler.
-
-„Sag nichts.“
-
-„Ich bewundere nur, wie schnell ein Mensch nach einer Begegnung mit dem Tod wieder zur Abfallwirtschaft zurückfinden kann.“
+„Ich bewundere, wie schnell ein Mensch nach einer Begegnung mit dem Tod wieder zur Abfallwirtschaft zurückfinden kann.“
 
 „Das nennt man Arbeit.“
 
