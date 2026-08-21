@@ -220,24 +220,6 @@ Nicht groß demütigend, wie öffentlich in einen Dungeon geworfen zu werden. Eh
 
 „Ich finde“, sagte Taron, als er später mit einem Krug dünnem Bier an der Bar saß, „Auserwählte sollten wenigstens ein paar Grundrechte haben.“
 
-„Zum Beispiel?“
-
-„Kostenlose Zimmer.“
-
-„Eine kühne Verfassungsreform.“
-
-„Essen wäre auch gut.“
-
-„Noch kühner.“
-
-„Du bist keine Hilfe.“
-
-„Ich bin ein moralischer Spiegel.“
-
-„Du bist ein sprechender Riss in meiner Ruhe.“
-
-„Auch das.“
-
 Am anderen Ende der Bar lachte jemand.
 
 Es war kein fröhliches Lachen. Es war laut, hell und ruinös, als habe ein Mensch beschlossen, seinen eigenen Untergang mit guter Haltung zu begleiten. Taron sah hin.
