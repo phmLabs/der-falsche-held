@@ -8,25 +8,7 @@ Das dritte Horn war verklungen.
 
 Für einen Moment blieb Taron sitzen.
 
-Er dachte an den Hof von Waldkirch vor zehn Jahren. An die Ritter. An den Regen. An das Kriegshorn der Zwerge. An das Kind auf der Mauer, das nicht wusste, wer seine Eltern waren, aber wusste, dass es nicht ganz allein war.
-
-Nicht nur eine Stimme.
-
-Ein Freund.
-
-Taron sah auf die Straße nach Westen.
-
 „Ich sollte weiterreiten“, sagte er.
-
-„Ja“, sagte der Erzähler.
-
-„Also sollte ich zurück.“
-
-„Das habe ich nicht gesagt.“
-
-„Du musst es auch nicht.“
-
-Der Erzähler schwieg.
 
 Das war gut. Oder zumindest besser als alles, was er hätte sagen können.
 

@@ -1,0 +1,5 @@
+- Taron entschied nach dem dritten Horn, trotz Schmerzen nach Westen zum Turm von Abendriss aufzubrechen, zeichnete einen simplen Plan (rein – Splitter der Nachtkrone – raus) und gestand sich widerwillig seine Liebe zu Elva ein. 
+- Unterwegs sprach er mit dem Erzähler über dessen rätselhafte Abwesenheit nach der Schlacht. 
+- Abends erreichte er die Freie Burg Hohensteg, zahlte im „Blauen Eber“ zähneknirschend für ein Zimmer und traf den betrunkenen Ritter Sir Oswin von Hohenklamm, den er als Begleiter gewann. 
+- Am Morgen war Oswin nüchtern, gerüstet und ritt trotz Reue mit Taron los. 
+- Offen bleiben die Gefahren des Turms und des Splitters, Oswins Verlässlichkeit, das ungeklärte Schweigen/„Nicht-weit-genug“ des Erzählers und welche Rolle Elva noch spielen wird.
