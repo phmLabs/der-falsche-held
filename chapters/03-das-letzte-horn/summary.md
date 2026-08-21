@@ -1,5 +1,5 @@
-- Das dreifache Horn von Burg Waldkirch ertönt erneut und reißt den 17-jährigen, verletzten Taron in die Erinnerung an denselben Alarm vor zehn Jahren zurück, als er noch von einer helfenden inneren Stimme begleitet wurde und seine Herkunft unbekannt war.
-- Damals griffen Zwergenheere aus dem Westen an; Waldkirch hielt durch die Schildmauer, Sir Berold vom Eschenwall, König Albrecht und Bruder Malchior stand und die Zwerge zogen sich zurück, nahmen später jedoch Graumark und Ellingen, während Waldkirch unangetastet blieb.
-- Nach der Schlacht brachte Bruder Malchior eine uralte Prophezeiung zurück (einer, der weder König, Magier, Ritter noch Weiser ist, lässt das Schicksal stolpern), während Tarons Stimme immer seltener wurde und schließlich ganz verschwand.
-- Beteiligte: Taron (Kind, beobachtet und wird von der Stimme beruhigt), Sir Berold (Frontkämpfer, verliert später den Arm), König Albrecht (führt die Verteidigung), Bruder Malchior (Segnungen und Prophezeiung), Vogt Hademar (hält Ordnung).
-- Offene Fragen: Was war die Stimme und warum verstummte sie; ist Taron der in der Prophezeiung Gemeinte; weshalb griffen die Zwerge Waldkirch nie wieder an; was bedeutet das erneute Hornsignal jetzt?
+- Beim erneuten Erklingen des Horns wird der 17-jährige, verletzte Taron in die Zeit zurückgerissen, als er mit sieben als Waisenknabe auf Burg Waldkirch lebte und von einer schützenden Stimme begleitet wurde.
+- Aus dem Westen kamen Zwergenheere; unter König Albrecht, Sir Berold und Bruder Malchior hielt Waldkirch stand und schlug sie zurück, worauf sie sich in den westlichen Ländern eingruben.
+- Danach brachte Bruder Malchior eine uralte Prophezeiung zurück, die einen kommenden, weder König noch Magier, Ritter noch Weisen verheißt, dessen Schritt das Schicksal stolpern lässt.
+- In den Wochen nach der Schlacht verstummte Tarons innere Stimme und verschwand, was ihn fortan zweifeln ließ.
+- Offene Fragen: Warum verschwand die Stimme; ist Taron der Gemeinte; was bedeutet das jetzige Hornsignal (droht ein neuer Angriff); und wer sind Tarons Eltern?
