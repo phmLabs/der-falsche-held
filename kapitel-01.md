@@ -538,7 +538,7 @@ Das war überraschend. Er war nicht tot.
 
 Das war noch überraschender.
 
-Neben dem Bett saß eine Frau mit runden Wangen, einem breiten Schoß und einem freundlichen Gesicht, das wirkte, als hätte es beschlossen, die Welt grundsätzlich erst einmal gut zu finden, bis sie sehr deutlich das Gegenteil bewies.
+Neben dem Bett saß eine rundliche Frau mit hochgekrempelten Ärmeln und einem Gesicht, das nicht erschrak, nur weil jemand aussah, als hätte ihn etwas Großes angekaut und wieder ausgespuckt.
 
 „Wo bin ich?“, krächzte Taron.
 
