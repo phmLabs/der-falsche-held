@@ -354,7 +354,7 @@ Für einen Moment spürte Taron etwas anderes im Raum. Nicht nur Unsinn. Nicht n
 
 Aber er dachte an die leeren Rüstungsständer. An die Wachen am Tor. An die Menschen im Hof, die einfach weitergearbeitet hatten, weil irgendjemand weiterarbeiten musste, auch wenn unter der Burg ein Hunger wohnte und über dem Reich alte Prophezeiungen wie nasse Wäsche hingen.
 
-Er dachte an Marta, die gesagt hatte, dass wichtige Dinge meistens nicht weglaufen, wenn man vorher kaut.
+Er dachte an Marta, die gesagt hatte, dass wichtige Dinge meistens nicht weglaufen.
 
 Das half nicht, aber es war immerhin ein Gedanke ohne Pergament.
 
@@ -372,7 +372,7 @@ Taron hasste ihn dafür ein wenig.
 
 Eine Stunde später stand er vor dem Burgtor.
 
-Man hatte ihm ein Pferd gegeben. Es hieß Kummer, was Taron für ehrlich hielt. Kummer war alt, braun, geduldig und besaß den Gesichtsausdruck eines Pferdes, das schon viele menschliche Pläne überlebt hatte. Taron konnte reiten. Nicht herrschaftlich, nicht mit wehenden Bannern, aber ordentlich genug, um oben zu bleiben, solange niemand erwartete, dass Pferd und Reiter dabei inspiriert aussahen.
+Man hatte ihm ein Pferd gegeben. Es hieß Kummer, was Taron für ehrlich hielt. Kummer war alt, braun, geduldig und besaß den Gesichtsausdruck eines Pferdes, das schon viele menschliche Pläne überlebt hatte. Taron konnte reiten. Nicht herrschaftlich, nicht mit wehenden Bannern, aber ordentlich genug.
 
 Elva stand am Rand des Hofes.
 
@@ -400,17 +400,11 @@ Bruder Malchior trat vor und gab ihm einen Beutel.
 
 „Also nein.“
 
-„Außerdem“, sagte Hademar, „sind darin zwei Äpfel, ein Stück Hartkäse, drei Brote, ein gesalzener Fisch und eine Liste der Dinge, die Ihr auf keinen Fall verlieren solltet.“
-
-„Was steht auf der Liste?“
-
-„Die Liste.“
+„Außerdem“, sagte Hademar, „sind darin zwei Äpfel, ein Stück Hartkäse, drei Brote, ein gesalzener Fisch“
 
 Taron steckte den Beutel weg.
 
 König Albrecht hob die Hand. „Reitet, Taron Falkenried. Reitet für Lichtenhain. Reitet für Waldkirch. Reitet für alle, die noch hoffen.“
-
-„Und für jene“, ergänzte der Erzähler, „die keine bessere Personalplanung besitzen.“
 
 Taron trieb Kummer an.
 
