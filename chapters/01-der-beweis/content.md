@@ -260,10 +260,6 @@ Taron warf die Speerstange. Sie traf, prallte ab und fiel.
 
 „Beeindruckend“, sagte der Erzähler.
 
-„Wirklich?“
-
-„Nein.“
-
 Taron rannte.
 
 Er stürzte in einen Seitengang, rutschte, schlug gegen Stein. Hinter ihm krachte die Kreatur in die Halle, zwängte sich in den Gang. „Links“, sagte der Erzähler. Taron bog rechts ab. Sackgasse.
@@ -276,7 +272,7 @@ Er stürzte in einen Seitengang, rutschte, schlug gegen Stein. Hinter ihm kracht
 
 Das Monster kroch, Krallen fanden Halt im Stein, schnell trotz Enge. „Oben“, sagte der Erzähler. Taron sah hoch: ein Schacht. „Da passe ich nicht rein!“ – „Nicht mit dieser Einstellung.“
 
-Er sprang, packte den Rand, zog sich hoch. Klauen fuhren durch die Luft, rissen seinen Stiefel weg. „Das war mein guter Stiefel!“ – „Du hattest keinen guten Stiefel.“ Taron wuchtete sich in den Schacht, kroch. Hinter ihm vibrierte Stein. Dann brach der Boden. Er fiel.
+Er sprang, packte den Rand, zog sich hoch. Klauen fuhren durch die Luft, rissen einen Stiefel weg. „Das war mein guter Stiefel!“ – „Du hattest keinen guten Stiefel.“ Taron wuchtete sich in den Schacht. Kroch. Hinter ihm vibrierte Stein. Dann brach der Boden. Er fiel.
 
 Kälte schlug ihm die Lunge leer. Wasser um ihn, so eisig, dass seine Seele kurz Besseres verhandeln wollte. Er tauchte auf, watete durch einen unterirdischen Kanal. Hinter ihm ein Krachen: Das Monster war im Schacht.
 
@@ -288,7 +284,7 @@ Kälte schlug ihm die Lunge leer. Wasser um ihn, so eisig, dass seine Seele kurz
 
 „Nur wenn du Nadelschlangen liebst.“
 
-Etwas zischte links. Taron nahm rechts. Der Gang stieg an. Er stolperte Stufen hoch, die so ungleich waren, als hätte jemand Füße ignoriert. Hinter ihm platschte die Kreatur ins Wasser. Weiter. Natürlich weiter.
+Etwas zischte links. Taron nahm rechts. Der Gang stieg an. Er stolperte Stufen hoch, die so ungleich waren, als hätte jemand Füße nicht verstanden. Hinter ihm platschte die Kreatur ins Wasser. Weiter. Natürlich weiter.
 
 Eine kleine Kammer. Ein eingestürzter Altar. Darauf eine eiserne Schale mit blauer Flamme.
 
@@ -296,13 +292,13 @@ Eine kleine Kammer. Ein eingestürzter Altar. Darauf eine eiserne Schale mit bla
 
 „Warum?“
 
-„Weil gleich etwas sehr Großes durch diese Tür kommt und Hände enttäuschen.“
+„Weil gleich etwas sehr Großes durch diese Tür kommt.“
 
 Taron griff zu. Die Flamme brannte kalt. Finger wurden taub. Die Tür krachte. Holz splitterte. „Was mache ich damit?“ – „Wirf sie.“ – „Auf das Monster?“ – „Auf was denn sonst?“
 
-Die Tür brach. Taron warf. Die Schale zerbarst an der Brust der Kreatur, kalte Flamme kroch über graue Platten. Ein Kreischen, Wände bebten, unter der Haut der Bestie glommen alte Zeichen. Dann traf ihn ein Arm. Er flog gegen den Altar. Etwas knackte. Rippe oder Hoffnung.
+Die Tür brach. Taron warf. Die Schale zerbarst an der Brust der Kreatur, kalte Flamme kroch über graue Platten. Ein Kreischen, Wände bebten, unter der Haut der Bestie glommen alte Zeichen. Dann traf Taron ein Arm. Er flog gegen den Altar. Etwas knackte. Rippe oder Hoffnung.
 
-Er lag. Die Welt wurde schmal. Das Monster brannte, kam trotzdem. Langsamer, wütender. Die milchigen Augen fanden ihn.
+Er lag. Die Welt wurde schmal. Das Monster brannte, kam trotzdem näher. Langsamer, wütender. Die milchigen Augen fanden ihn.
 
 „Aufstehen“, sagte der Erzähler.
 
@@ -314,7 +310,7 @@ Er lag. Die Welt wurde schmal. Das Monster brannte, kam trotzdem. Langsamer, wü
 
 Das Monster zog sich näher. Kälte im Atem. Alter Hunger.
 
-„War ich es?“, flüsterte Taron.
+„Bin ich es?“, flüsterte Taron.
 
 „Was?“
 
@@ -326,15 +322,11 @@ Eine Pause. „Langweilig. Die Frage, ob es jetzt einen Unterschied machte, ist 
 
 „Dann tu es nicht“, sagte der Erzähler.
 
-„Sehr hilfreich.“
+Der Mund der Kreatur öffnete sich. Und die Welt verschwand. Nicht langsam. Nicht mit Licht, Gesang oder einer göttlichen Hand. Sie wurde weggezogen, als hätte jemand an der falschen Seite eines Wandteppichs gerissen. Taron fiel in Dunkelheit. Er war sich sicher, dass er tot sei.
 
-„Ja.“
+- 
 
-Der Mund der Kreatur öffnete sich. Und die Welt verschwand. Nicht langsam. Nicht mit Licht, Gesang oder einer göttlichen Hand. Sie wurde weggezogen, als hätte jemand an der falschen Seite eines Wandteppichs gerissen. Taron fiel in Dunkelheit. Er dachte, das sei der Tod.
-
-Verständlich. Menschen verwechseln den Tod oft mit Dingen, die dunkel, schmerzhaft und schlecht erklärt sind.
-
-Dann hörte er eine Stimme. Nicht die des Erzählers. Eine Frauenstimme.
+Er hörte eine Stimme. Eine Frauenstimme.
 
 „Na“, sagte sie. „Dann bist du ja doch nicht hinüber.“
 
