@@ -346,9 +346,7 @@ Er hielt inne.
 
 „Du kommst mit.“
 
-Oswin betrachtete ihn lange.
-
-Dann nickte er feierlich.
+Oswin betrachtete ihn lange. Dann nickte er feierlich.
 
 „Dann komme ich mit.“
 
@@ -356,23 +354,9 @@ Dann nickte er feierlich.
 
 „Wohin?“
 
-„Zum Turm von Abendriss.“
-
-„Schlechter Ort.“
-
-„Ja.“
-
-„Sehr schlechter Ort.“
-
-„Ja.“
-
-„Ich brauche noch ein Bier.“
-
-„Morgen.“
-
-„Grausamer Knabe.“
-
 Oswin legte den Kopf auf den Tresen und schlief ein.
+
+-
 
 Am nächsten Morgen war Sir Oswin von Hohenklamm nüchtern.
 
