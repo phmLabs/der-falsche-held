@@ -1,5 +1,6 @@
-- Elva Kesseldorn kippt Taron Falkenried einen Eimer Ziegenmilch über, worauf Bruder Malchior in Gegenwart von König Albrecht eine alte Prophezeiung auf Taron bezieht und der König eine Prüfung im unterirdischen Gewölbe anordnet. 
-- Taron wird gegen seinen Willen hinabgestoßen, trifft auf den „Hunger von Waldkirch“, flieht durch Tunnel und verletzt das Wesen mit einer eisig blauen Flammenschale, bevor er schwer getroffen wird. 
-- Im Moment seines vermeintlichen Endes „reißt“ die Welt weg; Taron erwacht gepflegt bei Marta Grubenlicht, die berichtet, ein höflicher Mann im schattenfarbenen Mantel habe ihn gebracht, bezahlt und Anweisungen hinterlassen. 
-- Taron vermutet einen Bezug zu der Stimme/Erzähler in seinem Kopf, rüstet sich mit Martas Mantel und Proviant und macht sich trotz der Warnung der Stimme zurück auf den Weg zur Burg. 
-- Offene Fragen: Wer ist der Mann im Mantel bzw. der Erzähler und welches Ziel verfolgt er; wie genau entkam Taron dem Hunger und lebt das Wesen noch; ist Taron wirklich der in der Prophezeiung genannte Auserwählte und was erwartet ihn nun in Burg Waldkirch?
+- Im Burghof kippt Elva Kesseldorn Taron Falkenried Ziegenmilch über den Kopf; Bruder Malchior deutet dies als Erfüllung einer Prophezeiung, König Albrecht und der Burgvogt ordnen die Prüfung im Gewölbe an, in dem der „Hunger von Waldkirch“ haust (bisher ist niemand lebend zurückgekehrt).
+- Taron wird gegen seinen Willen hinabgeschickt, flieht mit spärlicher Hilfe einer Stimme/Erzähler vor der Kreatur und setzt sie mithilfe einer Schale mit blauer Flamme in Brand, wird jedoch schwer verletzt; als sie ihn zu töten droht, „reißt“ die Welt weg und er verliert das Bewusstsein.
+- Er erwacht bei Marta Grubenlicht, die berichtet, ein höflicher, unheimlicher Mann im schattenfarbenen Mantel habe ihn gebracht, bezahlt und Anweisungen hinterlassen; der Mantel scheint zum Erzähler zu gehören.
+- Taron nimmt den Mantel, Proviant und zwei ungleiche Stiefel und macht sich trotz der Warnung der Stimme auf den Weg zurück zur Burg.
+
+Offen bleibt: Wer ist die Stimme/der Mann im Mantel und wie hat er Taron gerettet? Ist Taron wirklich der Auserwählte oder wird er dazu gemacht? Lebt/kehrt der Hunger von Waldkirch zurück und was erwartet Taron in der Burg nach der „geklärten“ Prüfung?

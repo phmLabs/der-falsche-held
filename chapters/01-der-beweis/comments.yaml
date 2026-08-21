@@ -50,7 +50,7 @@
   author: author
 - id: c-mt2in2vv
   created_at: '2026-08-21T05:35:40.123Z'
-  status: active
+  status: resolved
   quote: |-
     sich mit bloßen Fingern herauszugraben.
 
@@ -67,7 +67,7 @@
   author: author
 - id: c-mt2jd4j5
   created_at: '2026-08-21T05:55:55.313Z'
-  status: active
+  status: resolved
   quote: |-
     Er war nicht tot. Noch überraschender.
 
@@ -82,7 +82,7 @@
   author: author
 - id: c-mt2jnwzp
   created_at: '2026-08-21T06:04:18.757Z'
-  status: active
+  status: resolved
   quote: >-
     .“
 
@@ -102,7 +102,7 @@
   author: author
 - id: c-mt2jq05u
   created_at: '2026-08-21T06:05:56.178Z'
-  status: active
+  status: resolved
   quote: >-
     .
 
