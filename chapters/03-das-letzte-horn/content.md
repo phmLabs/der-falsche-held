@@ -148,7 +148,7 @@ Taron hatte die Knie an die Brust gezogen. Durch einen Spalt zwischen den Stufen
 
 Damals hatte das gereicht.
 
-Später, viel später, würde Taron sich an diesen Satz erinnern und wütend darüber werden. Nicht weil er falsch gewesen war. Er war wahr gewesen, und dann irgendwann nicht mehr.
+Später, viel später, würde Taron sich an diesen Satz erinnern und wütend darüber werden. Nicht weil er falsch war. Er war wahr, und dann irgendwann nicht mehr.
 
 Die Schlacht endete bei Regen mit dem Kriegshorn der Zwerge.
 
