@@ -124,17 +124,13 @@ Man sang von der Lanze Sir Berolds, die im Abendlicht glänzte. Von der Schildma
 
 Lieder sind ausgezeichnet darin, Ordnung zu schaffen, wo in Wahrheit nur Augenblicke waren.
 
-Die Schlacht war nicht weniger groß, weil sie unübersichtlich war. Ein Wagen brach im Torhaus zusammen und verengte den Durchgang genau in dem Moment, in dem die erste Zwergenwelle eindringen wollte. Das gab der Schildmauer Zeit, sich zu schließen. Sir Berold erreichte den feindlichen Bannerträger, weil ein Trupp junger Ritter den linken Flügel länger hielt, als irgendjemand von ihnen erwarten durfte. König Albrecht blieb auf der Treppe, obwohl die Pfeile gegen den Stein schlugen. 
+Ein Wagen brach im Torhaus zusammen und verengte den Durchgang genau in dem Moment, in dem die erste Zwergenwelle eindringen wollte. Das gab der Schildmauer Zeit, sich zu schließen. Sir Berold erreichte den feindlichen Bannerträger, weil ein Trupp junger Ritter den linken Flügel länger hielt, als irgendjemand von ihnen erwarten durfte. König Albrecht blieb auf der Treppe, obwohl die Pfeile gegen den Stein schlugen. 
 
 Die Schlacht war episch.
 
 Sie war auch Zufall, Panik, Schlamm, Lärm, schlechte Sicht und Glück. Doch damals war Glück nicht das Gegenteil von Können. Es war das, was übrig blieb, wenn Können bis an seine Grenze getrieben wurde.
 
-Das eine schließt das andere nicht aus.
-
-Lichtenhain hielt stand.
-
-Burg Waldkirch hielt stand.
+Lichtenhain hielt stand. Burg Waldkirch hielt stand.
 
 Die Zwerge wurden zurückgeschlagen, nicht weit, aber weit genug. Das Königreich verteidigte sich, weil es damals noch Ritter hatte, weil die Mauern dick waren, weil die Befehle hielten und weil Menschen an ihren Plätzen blieben, obwohl sie jeden Grund gehabt hätten zu laufen. Unter einer Treppe saß ein siebenjähriger Junge und begriff nicht, warum die Welt plötzlich so laut war.
 
