@@ -400,13 +400,9 @@ Gegen diese Philosophie war schwer anzukommen.
 
 Taron blieb bis zum Morgen. Nicht freiwillig. Sein Körper hatte sich mit Marta verbündet. Immer wenn er aufstehen wollte, wurde ihm schwarz. Immer wenn er zur Burg zurückwollte, drückte ihn Marta mit sanfter, erstaunlicher Kraft wieder in die Kissen.
 
-„Wichtige Dinge laufen nicht weg, wenn man vorher kaut“, sagte sie, als er hastig atmen wollte statt Brot zu beißen. „Meistens jedenfalls.“
-
-Der Erzähler meldete sich den ganzen Morgen nicht. Verdächtig.
+„Wichtige Dinge laufen nicht weg.“, sagte sie, als er hastig atmen wollte statt Brot zu beißen. „Meistens jedenfalls.“
 
 Schließlich stand Taron auf. Kein würdevoller Vorgang. Er hielt sich an Pfosten, Wand, Stuhl und kurz an Marta fest, die nickte, als habe er eine Prüfung bestanden.
-
-„Das sieht schon beinahe nach Stehen aus“, sagte sie. „Beinahe ist für Kranke gut genug. Kleinlich hilft ihnen selten.“
 
 Sie gab ihm den Mantel ihres verstorbenen Mannes. Er roch nach Rauch, Wolle und ein wenig nach Zwiebeln. Außerdem drückte sie ihm Brot, einen Apfel, den geretteten Stiefel und einen zweiten, der nicht passte, in die Hand.
 

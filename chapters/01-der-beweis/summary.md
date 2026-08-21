@@ -1,5 +1,4 @@
-- Auf Burg Waldkirch kippt Elva Kesseldorn Taron Falkenried Ziegenmilch über den Kopf; Bruder Malchior deutet dies vor König Albrecht, dem Burgvogt, Rittern und Novizen als Erfüllung einer Prophezeiung und lässt Taron als Prüfung ins Gewölbe mit dem „Hunger von Waldkirch“ sperren. 
-- Nur mit einer rostigen Speerstange flieht Taron in den Tunneln vor der Kreatur, setzt sie mit einer kalten blauen Flamme in Brand, wird schwer verletzt und verschwindet im entscheidenden Moment aus der Welt. 
-- Er erwacht bei Marta Grubenlicht, die erzählt, ein höflicher Mann im schattenhaften Mantel habe ihn gebracht, bezahlt und Anweisungen hinterlassen. 
-- Taron vermutet einen Zusammenhang mit der Stimme des Erzählers, ignoriert dessen Warnung und macht sich mit Martas Mantel und Proviant zurück zur Burg auf. 
-- Offen bleibt, ob Taron die Prüfung bestanden hat, wer ihn rettete, was aus dem „Hunger“ wurde und ob der geheimnisvolle Mann und der Erzähler identisch sind bzw. wer Taron gezielt zum Helden formen will.
+- Elva kippt Taron einen Eimer Ziegenmilch über den Kopf; Bruder Malchior deutet dies als Erfüllung einer zweifelhaften Prophezeiung, worauf König Albrecht Taron zur Prüfung im unterirdischen Gewölbe von Burg Waldkirch schickt. 
+- Gegen seinen Willen trifft Taron dort auf den „Hunger von Waldkirch“; mit einem Tipp der inneren Erzählerstimme setzt er eine Schale kalter blauer Flamme gegen die Kreatur ein, wird schwer verletzt und entkommt auf unerklärliche Weise, als die Welt „weggezogen“ wird. 
+- Er erwacht bei Marta Grubenlicht, wohin ihn ein unbekannter, höflicher Mann im schattenhaften Mantel gebracht und gegen Bezahlung Pflegeanweisungen hinterlassen hat. 
+- Taron rüstet sich notdürftig und kehrt trotz Warnung der Stimme zur Burg zurück; offen bleiben Identität und Motive des Fremden und der Stimme, wie genau Taron dem Monster entkam und ob jemand gezielt dabei ist, ihn zum „Helden“ zu machen.
