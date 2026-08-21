@@ -20,25 +20,13 @@ Er war, das muss der Wahrheit halber gesagt werden, ein sehr süßes Kind gewese
 
 Doch. Runde Wangen, ernster Blick, Haare, die sich jeder Bürste widersetzten, und diese Art von vorsichtigem Lächeln, bei der erwachsene Menschen sofort sanfter wurden, selbst wenn sie es nicht vorhatten.
 
-„Hör auf.“
-
-Er war noch immer nicht völlig frei davon.
-
-„Ich stehe auf und gehe.“
-
-Das ändert nichts daran, dass es wahr ist.
-
 „Ich hasse dich.“
 
-Damals hatte er die Stimme noch nicht gehasst.
-
-Damals war sie einfach da gewesen.
+Damals hatte er die Stimme noch nicht gehasst. Damals war sie einfach da gewesen.
 
 Sie sprach zu ihm, wenn er abends nicht schlafen konnte. Sie erzählte ihm, dass Dunkelheit nur ein Raum sei, in dem das Licht gerade eine Pause mache. Sie warnte ihn, wenn er zu hoch auf Mauern kletterte, erinnerte ihn daran, langsam zu essen, und sagte Dinge wie: „Der Ast hält dich nicht“, kurz bevor der Ast brach. Oder: „Warte noch einen Atemzug“, wenn die Suppe zu heiß war.
 
-Taron hatte damals nicht darüber nachgedacht, ob sie ein Freund war.
-
-Für ihn war sie einer.
+Taron hatte damals nicht darüber nachgedacht, ob sie ein Freund war. Für ihn war sie einer.
 
 Und vor zehn Jahren, an dem Tag, an dem er das Horn zum letzten Mal so gehört hatte, war sie noch bei ihm gewesen.
 
@@ -48,15 +36,13 @@ Das klingt unwahrscheinlich, weil Steine selten Stimmungen wechseln, aber Kinder
 
 Wenn Taron an die Zeit vor den Zwergen zurückdachte, fühlte es sich an, als hätte er eine Familie gehabt.
 
-Nicht unbedingt Eltern. Nicht so klar. Eher ein Kreis aus Menschen, der ihn gehalten hatte, ohne dass er wusste, wo eine Hand endete und die nächste begann. Eine Küchenmagd, die ihm heimlich Honig gab. Ein alter Stallknecht, der ihn auf ein Pony setzte und behauptete, der Boden sei weich, was gelogen war. Eine Frau mit rotem Tuch im Haar, die ihm manchmal über den Kopf strich. Ein Mann, dessen Gesicht in der Erinnerung fehlte, aber dessen Mantel nach Regen roch.
+Nicht unbedingt Eltern. Nicht so klar. Eher ein Kreis aus Menschen, der ihn gehalten hatte, ohne dass er wusste, wo eine Hand endete und die nächste begann. Eine Küchenmagd, die ihm heimlich Honig gab. Ein alter Stallknecht, der ihn auf ein Pony setzte. Eine Frau mit rotem Tuch im Haar, die ihm manchmal über den Kopf strich. Ein Mann, dessen Gesicht in der Erinnerung fehlte, aber dessen Kleidung nach Regen roch.
 
 Vielleicht waren sie seine Familie gewesen.
 
-Vielleicht hatte er sich später nur eine gebaut, weil Kinder Lücken nicht mögen.
+Vielleicht hatte er sich später nur eine gebaut, weil Kinder Anderssein nicht mögen.
 
-„Du warst kleiner“, sagte die Stimme damals.
-
-Taron saß auf der Mauer des inneren Hofes und ließ die Beine baumeln. Unter ihm trainierten Ritter mit Holzschwertern. Richtige Ritter. Gute Ritter. Männer und Frauen in gepflegten Rüstungen, mit sicheren Händen und klaren Befehlen. Damals war Waldkirch ein Ort, an dem Dinge vorbereitet wurden, bevor sie zerbrachen.
+Taron saß auf der Mauer des inneren Hofes und ließ die Beine baumeln. Unter ihm trainierten Ritter mit Holzschwertern. Richtige Ritter. Gute Ritter. Männer und Frauen in gepflegten Rüstungen, mit sicheren Händen und klaren Befehlen. Damals war Waldkirch ein Ort, an dem Dinge vorbereitet wurden.
 
 „Ich bin nicht klein“, sagte Taron.
 
@@ -76,21 +62,15 @@ Und Taron hatte geglaubt, dass Burgen sicher seien.
 
 Dann erklang das Horn.
 
-Einmal.
-
-Dann noch einmal.
-
-Dann ein drittes Mal.
+Einmal. Dann noch einmal. Dann ein drittes Mal.
 
 Das Training brach ab.
 
 Sir Berold sah zum Westtor.
 
-„Was ist das?“, fragte Taron.
+„Was ist das?“, fragte Taron. „Etwas, das du nicht allein ansehen musst“, sagte die Stimme.
 
-„Etwas, das du nicht allein ansehen musst“, sagte die Stimme.
-
-„Was für Schritte?“
+„Was sind das für Schritte?“
 
 „Viele. Kleine. Schwere Schritte.“
 
@@ -98,7 +78,7 @@ Das war nicht sehr genau. Aber es machte Taron weniger Angst, als die Wahrheit e
 
 Die Zwerge kamen aus dem Westen.
 
-Ja, die bösen Zwerge gab es wirklich. In dieser Geschichte sind sie keine Redensart und kein Kinderschreck, sondern eine Macht aus Stein, Eisen und alter Wut. Man mag einwenden, dass es sich bei ihnen vielleicht um viele kleine, breite Menschen mit schweren Äxten, dichten Bärten und einem sehr entschlossenen Verhältnis zu unterirdischer Architektur handelte. Dieser Einwand ist nicht völlig falsch. Er ist nur unpraktisch, wenn eine Armee solcher Wesen auf die Grenze zumarschiert und dabei Kriegstrommeln schlägt.
+Die bösen Zwerge gab es wirklich. In dieser Geschichte sind sie keine Redensart und kein Kinderschreck, sondern eine Macht aus Stein, Eisen und alter Wut. Man mag einwenden, dass es sich bei ihnen vielleicht um viele kleine, breite Menschen mit schweren Äxten, dichten Bärten und einem sehr entschlossenen Verhältnis zu unterirdischer Architektur handelte. Dieser Einwand ist nicht völlig falsch. Er ist nur unpraktisch, wenn eine Armee solcher Wesen auf die Grenze zumarschiert und dabei Kriegstrommeln schlägt.
 
 Also nennen wir sie Zwerge.
 
