@@ -352,11 +352,11 @@ Tarons Magen antwortete bejahend. Marta half ihm hoch. Sein Körper bestand aus 
 
 Taron erstarrte. „Was für ein Mann?“
 
-„Ein höflicher. Etwas dünn. Oder nicht dünn. Schwer zu sagen, er hatte so einen Mantel. Dunkel, nicht schwarz. Eher wie Schatten, wenn Schatten Geld hätten.“
+„Ein höflicher. Etwas dünn. Oder nicht dünn. Schwer zu sagen, er hatte so einen Mantel. Dunkel, nicht schwarz. Eher wie Schatten, wenn Schatten Mäntel tragen würden.“
 
 Taron starrte. „Weiter.“
 
-„Er sprach ordentlich. Als hätte er jeden Satz vorher gewaschen. Er wusste meinen Namen. Das fand ich unheimlich. Dann gab er mir ein Goldstück, und ich dachte, vielleicht ist Unheimlichkeit bei vornehmen Leuten normal.“
+„Er sprach ordentlich. Als hätte er jeden Satz vorher geübt. Er wusste meinen Namen. Das fand ich unheimlich. Dann gab er mir ein Goldstück, und ich dachte, vielleicht ist Unheimlichkeit bei vornehmen Leuten normal.“
 
 „Was hat er gesagt?“
 
@@ -364,15 +364,11 @@ Taron starrte. „Weiter.“
 
 Taron legte die Schale ab. Der Raum schien kleiner zu werden.
 
-„Hat er gelacht?“
-
-„Nein. Aber er machte Pausen, als tät es ihm gut.“
-
 „Das ist unmöglich“, flüsterte Taron.
 
 „Der Mann?“
 
-„Weil es ihn nicht gibt.“
+„Ja, weil es ihn nicht gibt.“
 
 „Er stand aber hier“, sagte Marta, beinahe entschuldigend.
 
@@ -389,12 +385,6 @@ Taron fuhr hoch, bereute es sofort. „Du.“
 „Ach so.“ Sie sah zur Decke. „Der Balken knarrt nur.“
 
 „Niemand“, knirschte Taron.
-
-„Mit niemandem streiten ist schlecht für die Brust“, sagte Marta. „Beim Atmen meine ich.“
-
-„Sie hat recht“, sagte der Erzähler.
-
-„Halt den Mund.“
 
 Marta nickte zufrieden, weil das immerhin klar war. „Iss erst mal. Dann schläfst du. Der Mann meinte, du würdest zu früh aufstehen wollen. Er guckte, als hätte er das schon erlebt.“
 
