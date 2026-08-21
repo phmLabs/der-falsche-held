@@ -64,11 +64,7 @@ Taron sah ihn nicht an, weil man Stimmen schlecht ansehen kann, aber seine Augen
 
 „Eine?“
 
-„Aber sicher nur etwas Kleines. Ein Schloss. Ein Wächter. Ein Rätsel. Ein sehr alter Mann, der nicht aufhört, in Andeutungen zu sprechen.“
-
-„Die Welt liebt solche Männer.“
-
-„Ich nicht.“
+„Aber sicher nur etwas Kleines. Ein Schloss. Ein Wächter. Ein Rätsel.“
 
 „Und Monster?“
 
@@ -81,16 +77,6 @@ Taron hielt inne.
 „Doch. Sieh zu.“
 
 Er nahm den Stock und zog eine Linie durch den Bereich vor dem Turm.
-
-„Monsterfrei.“
-
-„Beeindruckend.“
-
-„Danke.“
-
-„Das war nicht als Lob gedacht.“
-
-„Dann war es schlecht formuliert.“
 
 Taron betrachtete seinen Plan. Er war so einfach, dass sogar er ihm misstraute. Aber Einfachheit hatte etwas Verführerisches. Wenn man eine Aufgabe nur grob genug zeichnete, sah sie beinahe machbar aus.
 
