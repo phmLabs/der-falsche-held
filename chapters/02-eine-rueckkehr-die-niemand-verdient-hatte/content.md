@@ -418,7 +418,7 @@ Die Straße führte nach Westen, zwischen Feldern hindurch, dann über einen kle
 
 „Halt den Mund.“
 
-„Die Haltung ist gut. Der linke Fuß wirkt verzweifelt.“
+„Die Haltung ist gut.“
 
 „Ich sagte: Halt den Mund.“
 
@@ -428,15 +428,13 @@ Hinter ihm wurde Burg Waldkirch kleiner. Die Banner waren nur noch Farbflecken. 
 
 Taron ritt noch zwanzig Schritte weiter.
 
-Dann hielt er an.
-
-Er stieg ab, was mehr einem kontrollierten Herunterfallen glich, setzte sich an den Rand der Straße und öffnete den Proviantbeutel.
+Dann hielt er an. Er stieg ab, was mehr einem kontrollierten Herunterfallen glich, setzte sich an den Rand der Straße und öffnete den Proviantbeutel.
 
 „Du machst Pause“, sagte der Erzähler.
 
 „Ich bin losgeritten.“
 
-„Seit ungefähr sieben Minuten.“
+„Vor ungefähr sieben Minuten.“
 
 „Ein sehr schwerer Teil der Reise.“
 
@@ -461,8 +459,6 @@ Taron kaute langsam.
 „Ein vernünftiger Entschluss.“
 
 Taron sah misstrauisch auf. „Du stimmst mir zu?“
-
-„Gelegentlich geschieht auch mir ein Unglück.“
 
 Taron nahm noch einen Bissen.
 
