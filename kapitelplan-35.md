@@ -122,7 +122,9 @@ Mira versucht, den Eid zu erneuern, scheitert aber, weil sie den Akt als Aufgabe
 
 ## Kapitel 31: Der Erzaehler tritt vor
 
-Als der andere Schutzdaemon Taron uebernehmen will, tritt der Erzaehler erstmals offen zwischen ihn und die Macht. Alle sehen fuer einen Moment die Stimme als das, was sie ist, und Taron begreift, dass sein Schutz nie kostenlos war.
+Als der andere Schutzdaemon Taron uebernehmen will, sperrt er die Gruppe mit seinen Dienern in der Kammer des Eidsteins ein; Taron liegt blutend am Boden, Oswin ist entwaffnet, Merlans Magie bricht, und alles sieht so endgueltig schlecht aus, dass selbst der Erzaehler fuer einen Moment keinen Kommentar findet. Dann uebernimmt der Erzaehler Taron mit einem gewaltigen Schutzzauber: Die Luft wird still, jedes gesprochene Wort klingt wie ein Urteil, und alle feindlichen Wesen im Raum fallen in einem einzigen, furchtbaren Augenblick tot zu Boden.
+
+Taron ist nicht dankbar, sondern wuetend, weil genau diese Macht im Dungeon, in Graumark und an einem Dutzend anderer Stellen hilfreich gewesen waere. Der Erzaehler versucht, das mit trockenen Spruechen zu ueberspielen, aber seine Stimme ist bruechig, leise und fuer Sekunden wieder fast die Stimme aus Tarons Kindheit; Taron begreift, dass dieser Schutz nie kostenlos war und dass der Erzaehler sich mit jedem direkten Eingriff selbst verbraucht.
 
 ## Kapitel 32: Was wirklich geschah
 

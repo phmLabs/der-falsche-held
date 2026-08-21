@@ -155,3 +155,11 @@ Auf der Strasse zeigt Oswin, dass er wirklich gut im Rittern ist: Er liest Spure
 Oswin schlaegt vor, einen Zauberer zu suchen. Seiner Meinung nach kann man Zauberer immer brauchen, selbst wenn sie nur Bohnen warm oder Bier kalt zaubern koennen. Taron hat keine Lust, aber der Erzaehler haelt es fuer eine gute Idee und macht "la la la"-Geraeusche, bis Taron nachgibt.
 
 Taron behauptet, in einem komischen Kaff wie Hohensteg werde man sowieso keinen Magier finden. Der Wirt vom Blauen Eber antwortet ganz selbstverstaendlich, dass es natuerlich einen Zauberer im Dorf gibt: Merlan Graufinger. Er sagt das, als sei er die ganze Zeit Teil des Gespraechs gewesen. War er nicht.
+
+## Spaetere Schluesselszene: Der Preis des Schutzes
+
+In der Kammer des Eidsteins geraet Taron spaeter in eine Lage, aus der es keinen normalen Ausweg mehr gibt. Der andere Schutzdaemon hat ihn fast, die Gefaehrten koennen nicht mehr helfen, und die feindlichen Wesen im Raum ruecken so sicher naeher, als haette die Geschichte bereits entschieden, wer hier stirbt.
+
+Zum ersten Mal uebernimmt der Erzaehler offen. Der Effekt soll hart, gross und erschreckend sein: kein netter Lichtzauber, sondern ein kalter Schutzbefehl, dem der Raum selbst gehorcht. Fuer einen Augenblick wird alles still, Tarons Stimme spricht nicht wie Taron, und alle Feinde im Raum sterben gleichzeitig.
+
+Danach ist Taron nicht erleichtert, sondern sauer. Wenn der Erzaehler so etwas kann, warum hat er es nicht frueher getan? Warum nicht im Dungeon, warum nicht bei den anderen beinahe verlorenen Kaempfen? Der Erzaehler versucht, lustig zu bleiben, doch seine Stimme bricht, wird duenn und kurz wieder so verletzlich wie frueher. Dadurch wird klar: Er kann Taron retten, aber nicht beliebig oft, und jeder direkte Eingriff kostet ihn einen Teil seiner Kraft.

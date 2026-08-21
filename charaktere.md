@@ -53,6 +53,8 @@ Das ist fuer beide Seiten unbefriedigend, allerdings aus unterschiedlichen Gruen
 - Er weiss sehr viel, sagt aber selten das Nuetzliche zuerst.
 - Er kann falsch liegen, tut aber so, als sei auch das beabsichtigt gewesen.
 - Er benutzt Tarons Reaktionen gern, um Missverstaendnisse zu verschlimmern.
+- Er kann in aeusserster Lebensgefahr direkt eingreifen und Taron fuer einen Moment uebernehmen, aber jeder solche Eingriff schwaecht ihn massiv und macht ihn verwundbarer fuer andere Schutzmaechte.
+- Er ueberspielt diese Schwaeche mit Witzen, bis selbst Taron merkt, dass die Stimme nicht mehr stabil klingt.
 
 **Moegliches Geheimnis:** Der Erzaehler ist kein neutraler Chronist, sondern eine Art Schutzdaemon des Auserwaehlten. Er war vielleicht nie wirklich weg, sondern nur von Taron verdraengt. Seine Kommentare, Luegen, Ablenkungen und scheinbar boshaften Spitzen dienen rueckblickend oft dazu, Taron am Leben zu halten oder ihn in genau die falsche Richtung zu schicken, die sich spaeter als richtig erweist.
 
