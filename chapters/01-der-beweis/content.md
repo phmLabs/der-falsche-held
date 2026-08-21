@@ -420,11 +420,9 @@ Marta runzelte die Stirn, als hätte Taron ihr eine Scheune zur Aufsicht überge
 
 „Besonders dann nicht.“
 
-„Dann frag ich zweimal, wer da ist“, sagte sie. „Wenn die Antwort zu vornehm ist, mach ich noch nicht auf.“
+„Dann frag ich zweimal, wer da ist“, sagte sie. „Wenn die Antwort zu vornehm ist, mach ich nicht auf.“
 
-Das war vermutlich das Beste, was man von der Welt verlangen konnte.
-
-Taron trat über die Schwelle.
+Das war vermutlich das Beste, was man von der Welt verlangen konnte. Taron trat über die Schwelle.
 
 „Du solltest nicht zur Burg zurückgehen“, sagte der Erzähler.
 
