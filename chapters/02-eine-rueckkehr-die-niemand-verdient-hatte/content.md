@@ -240,9 +240,7 @@ Albrecht nickte verständnisvoll. „Die Stimme der Bestimmung spricht bereits d
 
 „Ich habe das Monster nicht getötet“, sagte Taron langsam. Er sprach jedes Wort einzeln aus, als lege er Steine auf einen Tisch. „Ich bin weggerannt. Dann bin ich fast gestorben. Dann war ich plötzlich woanders. Das beweist, dass ich nicht der Held bin.“
 
-Der König hörte aufmerksam zu.
-
-Zumindest machte er das Gesicht dafür.
+Der König hörte aufmerksam zu. Zumindest machte er das Gesicht dafür.
 
 „Er wurde entrückt“, sagte Malchior.
 
@@ -250,17 +248,7 @@ Zumindest machte er das Gesicht dafür.
 
 „Entrückt. Dem Tod entzogen. Herausgenommen aus der Prüfung, weil seine Aufgabe nicht dort enden durfte.“
 
-„Oder“, sagte Taron, „jemand hat mich gerettet.“
-
-„Ein Bote des Schicksals.“
-
-„Ein Mann mit Mantel.“
-
-Malchior sog die Luft ein.
-
-„Der Mantelbote.“
-
-„Nein.“
+Nachdenken. 
 
 „Majestät“, sagte Malchior, „wir stehen vor einer Erweiterung der Zeichen.“
 
