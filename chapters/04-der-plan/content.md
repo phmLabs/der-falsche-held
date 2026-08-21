@@ -282,35 +282,19 @@ Oswin setzte sich neben ihn. „Ich kenne den Blick. Viele junge Männer tragen 
 
 Taron mochte ihn sofort ein bisschen.
 
-Das war gefährlich.
-
 „Ich bin auf dem Weg zum Turm von Abendriss“, sagte Taron.
 
-Der Wirt hielt in der Bewegung inne.
-
-Ein paar Gespräche in der Nähe wurden leiser.
+Der Wirt hielt in der Bewegung inne. Ein paar Gespräche in der Nähe wurden leiser. 
 
 Oswin sah Taron an. Sein Lächeln verschwand nicht, aber es sank tiefer.
 
 „Warum?“
 
-„Angeblich muss ich den ersten Splitter der Nachtkrone holen.“
+„Ich den ersten Splitter der Nachtkrone holen. Ich bin der Auserwählte.“
 
-„Angeblich.“
-
-„Ich bin der Auserwählte.“
-
-Oswin starrte ihn an.
-
-Dann lachte er.
+Oswin starrte ihn an. Dann lachte er.
 
 Nicht grausam. Nicht spöttisch. Nur so, als habe die Welt ihm gerade etwas erzählt, das perfekt zu ihrem schlechten Geschmack passte.
-
-„Natürlich bist du das.“
-
-„Ich bin es nicht.“
-
-„Noch besser.“
 
 Taron trank einen Schluck Bier. Es half nicht, aber es war beschäftigt.
 
@@ -342,35 +326,19 @@ Oswin sah Taron an. „Mit wem sprichst du?“
 
 „Guter Mann. Niemand gibt selten schlechte Ratschläge.“
 
-„Selten“, sagte der Erzähler.
+„Selten. Hörst du das? Ein weiser Mann.“, sagte der Erzähler.
 
 Taron ignorierte ihn.
 
 Der Abend wurde länger. Oswin trank. Taron trank weniger, weil er wenig Geld hatte und außerdem bereits genug schlechte Entscheidungen im Blut. Irgendwann erzählte Oswin von einer Brücke im Norden, von drei Banditen, einem Baron ohne Kinn und einem Pferd namens Herzogin, das intelligenter gewesen sei als alle Beteiligten. Die Geschichte hatte vermutlich einmal einen Sinn gehabt, verlor ihn aber unterwegs und fand stattdessen eine zweite Runde Bier.
 
-Taron hörte zu.
-
-Er stellte Fragen.
-
-Er nickte an den richtigen Stellen.
+Taron hörte zu. Er stellte Fragen. Er nickte an den richtigen Stellen.
 
 Und irgendwann, als Oswin den Kopf auf eine Hand stützte und die Welt mit glasigem Ernst betrachtete, sagte Taron: „Also kommst du mit.“
 
 Oswin hob einen Finger.
 
-„Ich“, sagte er, „bin ein Mann von Ehre.“
-
-„Natürlich.“
-
-„Ein Ritter.“
-
-„Unbestritten.“
-
-„Ein trauriges Beispiel, aber ein Ritter.“
-
-„Auch das.“
-
-„Und darum“, sagte Oswin, „würde ich niemals...“
+„Ich“, sagte er, „bin ein Mann von Ehre. Und darum würde ich niemals...“
 
 Er hielt inne.
 
