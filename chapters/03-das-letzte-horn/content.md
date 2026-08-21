@@ -170,35 +170,21 @@ Seitdem war die Gefahr nie wirklich verschwunden. Sie war nur weiter weg gewesen
 
 Nach der Schlacht kehrten die Propheten in die Hallen zurück.
 
-In Zeiten der Angst hören Menschen genauer hin, wenn jemand alte Worte trägt. Bruder Malchior gehörte nicht zu jenen, die Angst ausnutzten. Er glaubte an das, was er las. Das machte es nicht ungefährlicher.
+In Zeiten der Angst hören Menschen genauer hin, wenn jemand alte Worte trägt. Bruder Malchior gehörte nicht zu jenen, die Angst ausnutzten. Er glaubte an das, was er las.
 
 Er brachte die Prophezeiung zurück.
-
-Nicht neu. Zurück.
 
 Sie war viel älter als die Zwergenkriege. Viel älter als Burg Waldkirch. Vermutlich älter als die meisten Reiche, die nun behaupteten, sie seien selbstverständlich gemeint gewesen. Das störte niemanden besonders. Ein erschüttertes Reich fragt selten, ob ein Versprechen ursprünglich für jemand anderen gedacht war.
 
 „Wenn der schwarze Stern im Westen sinkt“, las Malchior damals im Hof, während Taron zwischen zwei Fässern saß und kaum über den Rand sehen konnte, „wird jener kommen, der kein König ist, kein Magier, kein Ritter, kein Weiser, doch dessen Schritt das Schicksal stolpern lässt.“
 
-Damals klang es anders.
-
-Nicht wie eine Falle.
-
-Wie ein Versprechen.
+Damals klang es anders. Nicht wie eine Falle. Wie ein Versprechen.
 
 Einer sollte kommen. Einer sollte das Königreich durch die düstere Zeit leiten. Einer sollte Lichtenhain nicht nur verteidigen, sondern aus dem Schatten führen, der aus dem Westen kroch.
 
 Alle wollten daran glauben.
 
-Der König.
-
-Die Ritter.
-
-Die Flüchtlinge.
-
-Die Menschen, die jemanden verloren hatten.
-
-Die Menschen, die noch nicht wussten, wen sie verlieren würden.
+Der König. Die Ritter. Die Flüchtlinge. Die Menschen, die jemanden verloren hatten. Die Menschen, die noch nicht wussten, wen sie verlieren würden.
 
 Und vielleicht auch ein kleiner Junge, der keine Eltern kannte, aber für einen Moment glaubte, dass irgendwo in dieser beschädigten Welt jemand zuständig war.
 
@@ -216,7 +202,7 @@ Und vielleicht auch ein kleiner Junge, der keine Eltern kannte, aber für einen 
 
 Taron verstand es nicht.
 
-Er verstand damals vieles nicht. Er verstand nicht, warum die Frau mit dem roten Tuch nicht mehr kam. Warum Sir Berold plötzlich mit einem leeren Ärmel am Tisch saß. Warum nachts so viele Menschen weinten und morgens so taten, als hätten sie nur schlecht geschlafen. Warum niemand über seine Eltern sprach, aber manche Leute ihn ansahen, als wüssten sie etwas, das nicht in einen Kindertag passte.
+Er verstand damals vieles nicht. Er verstand nicht, warum die Frau mit dem roten Tuch nicht mehr kam. Warum Sir Berold plötzlich mit einem leeren Ärmel am Tisch saß. Warum nachts so viele Menschen weinten und morgens so taten, als hätten sie nur schlecht geschlafen. 
 
 Er verstand auch nicht, warum die Stimme leiser wurde.
 
