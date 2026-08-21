@@ -1,18 +1,18 @@
 Sir Oswin von Hohenklamm sah am Morgen weniger aus wie ein Mann, der eine Reise begann, und mehr wie ein Mann, der mit seinem eigenen Kopf in Verhandlungen stand.
 
-Er saß auf seinem Pferd, das den unpassend stolzen Namen Sternfall trug, und hielt sich aufrecht, obwohl sein Gesicht eine andere Abstimmung verloren hatte. Die Sonne lag hell über den Mauern der Freien Burg Hohensteg. Händler beluden Karren. Ein Hund bellte jemanden an, der es vermutlich verdiente. Der Wirt vom Blauen Eber stand in der Tür und sah ihnen nach, als warte er darauf, dass einer von ihnen noch etwas bezahlen müsse.
+Er saß auf seinem Pferd, das den unpassend stolzen Namen Sternfall trug, und hielt sich aufrecht. Die Sonne lag hell über den Mauern der Freien Burg Hohensteg. Händler beluden Karren. Ein Hund bellte jemanden an, der es vermutlich verdiente. Der Wirt vom Blauen Eber stand in der Tür und sah ihnen nach, als warte er darauf, dass einer von ihnen noch etwas bezahlen müsse.
 
 „Wenn Ihr Euch übergeben müsst“, sagte Taron, „macht es bitte nicht in meine Richtung.“
 
 Oswin öffnete ein Auge. „Junge, ich bin Ritter.“
 
-Das beantwortete die Bitte nicht, aber Oswin fügte hinzu, ein Ritter übergebe sich nicht. Zumindest nicht öffentlich. Und falls doch, dann mit Haltung. Der Erzähler schwieg dazu, was Taron für beinahe verdächtig hielt.
+Das beantwortete die Bitte nicht, aber Oswin fügte hinzu, ein Ritter übergebe sich nicht. Und falls doch, dann mit Haltung. Der Erzähler schwieg dazu, was Taron für beinahe verdächtig hielt.
 
 „Ich genieße den Augenblick“, sagte die Stimme schließlich. „Jemand anderes ist für die Unwürde zuständig.“
 
 Oswin nahm Tarons Gespräche mit der leeren Luft überraschend gelassen. Er nannte die Stimme „Niemand“, bot an, sie grüßen zu lassen, und erklärte auf Nachfrage, er selbst habe keine Stimme im Kopf. Nur seine eigene, sagte er, und die sei schon oft zu viel.
 
-Sie ritten durch das Tor von Hohensteg und auf die westliche Straße hinaus. Für eine Weile sagte niemand etwas. Das lag zum Teil daran, dass der Morgen kühl und klar war, zum Teil daran, dass Oswin jeden Hufschlag offenbar persönlich nahm.
+Sie ritten durch das Tor von Hohensteg und auf die westliche Straße hinaus. Für eine Weile sagte niemand etwas. 
 
 Nüchtern sah Oswin anders aus. Nicht weniger gutaussehend, was Taron ungerecht fand, aber schärfer. Die Müdigkeit blieb, doch darunter lag etwas Geübtes. Sein Rücken war gerade. Seine Hände lagen ruhig an den Zügeln. Das Schwert an seiner Seite war nicht Schmuck, sondern Verlängerung eines Körpers, der wusste, wofür es gemacht war.
 
