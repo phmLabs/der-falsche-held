@@ -304,7 +304,7 @@ Er lag. Die Welt wurde schmal. Das Monster brannte, kam trotzdem näher. Langsam
 
 „Kann nicht.“
 
-„Unpräzise. Es wird nur wehtun.“
+„Unpräzise. Es wird nur sehr wehtun.“
 
 „Ich kann nicht.“
 
@@ -324,17 +324,17 @@ Eine Pause. „Langweilig. Die Frage, ob es jetzt einen Unterschied machte, ist 
 
 Der Mund der Kreatur öffnete sich. Und die Welt verschwand. Nicht langsam. Nicht mit Licht, Gesang oder einer göttlichen Hand. Sie wurde weggezogen, als hätte jemand an der falschen Seite eines Wandteppichs gerissen. Taron fiel in Dunkelheit. Er war sich sicher, dass er tot sei.
 
--
+–
 
 Er hörte eine Stimme. Eine Frauenstimme.
 
-„Na“, sagte sie. „Dann bist du ja doch nicht hinüber.“
+„Na“, sagte sie. „Dann bist du ja doch nicht kaputt.“
 
 Taron öffnete die Augen. Eine niedrige Holzdecke. Am Balken hingen getrocknete Kräuter und Zwiebeln. Es roch nach Suppe, Rauch, altem Holz und Medizin, die mehr vom Willen als vom Rezept lebte. Er lag in einem Bett.
 
-Das war überraschend. Er war nicht tot. Noch überraschender.
+Das war überraschend. Er war wirklich nicht tot.
 
-Neben ihm saß eine Frau mit kräftigen Händen und einem Blick, der Fieber von der Stirn lesen konnte.
+Neben dem Bett saß eine rundliche Frau mit hochgekrempelten Ärmeln und einem Gesicht, das nicht erschrak, nur weil jemand aussah, als hätte ihn etwas Großes angekaut und wieder ausgespuckt.
 
 „Wo bin ich?“, krächzte Taron.
 
@@ -371,18 +371,6 @@ Taron legte die Schale ab. Der Raum schien kleiner zu werden.
 „Ja, weil es ihn nicht gibt.“
 
 „Er stand aber hier“, sagte Marta, beinah entschuldigend.
-
-„Nicht so.“ Taron presste die Hände gegen das Gesicht.
-
-„Eine erstaunlich enge Definition von ‚gibt es‘“, sagte der Erzähler.
-
-Taron fuhr hoch, bereute es sofort. „Du.“
-
-„Meinst du mich?“, fragte Marta.
-
-„Nein.“
-
-„Ach so.“ Sie sah zur Decke.
 
 Marta nickte zufrieden, weil das immerhin klar war. „Iss erst mal. Dann schläfst du. Der Mann meinte, du würdest zu früh aufstehen wollen. Er guckte, als hätte er das alles schon mal erlebt.“
 
