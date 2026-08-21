@@ -4,11 +4,9 @@ Das war bemerkenswert, weil Martas Haus kaum eine halbe Stunde entfernt lag. All
 
 Taron besaß an diesem Morgen keines dieser Dinge.
 
-Er humpelte durch den Wald, Martas alten Mantel um die Schultern, ein Stück Brot in der Tasche und Schmerzen an Stellen, von denen er bisher angenommen hatte, sie seien nur für das Sitzen zuständig. Der Nebel lag noch zwischen den Bäumen. Vögel riefen. Irgendwo tropfte Wasser von Blättern.
+Er humpelte durch den Wald, den alten Mantel um die Schultern, ein Stück Brot in der Tasche und Schmerzen an Stellen, von denen er bisher angenommen hatte, sie seien nur für das Sitzen zuständig. Der Nebel lag noch zwischen den Bäumen. Vögel riefen. Irgendwo tropfte Wasser von Blättern.
 
 Es hätte friedlich sein können.
-
-Leider war Taron anwesend.
 
 „Du gehst zu langsam“, sagte der Erzähler.
 
