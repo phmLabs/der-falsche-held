@@ -12,17 +12,13 @@ Es hätte friedlich sein können.
 
 „Ich wurde gestern fast gefressen.“
 
-„Fast ist ein sehr leistungsfähiges Wort.“
+"Ich war dabei."
 
-„Ich hasse dich.“
-
-„Das sagtest du bereits. Ich habe es in der Sammlung.“
-
-Taron blieb stehen, lehnte sich an einen Baum und atmete durch die Zähne ein. Jede Bewegung erinnerte ihn daran, dass der Dungeon keine Einbildung gewesen war. Der Hunger von Waldkirch, die blaue Flamme, der Schlag gegen den Altar, der offene Rachen. Alles war noch da, nicht in der Welt vor ihm, aber in seinen Knochen.
+Taron blieb stehen, lehnte sich an einen Baum und atmete durch die Zähne ein. Jede Bewegung erinnerte ihn daran, dass das Monster keine Einbildung gewesen war. Der Hunger von Waldkirch, die blaue Flamme, der Schlag gegen den Altar, der offene Rachen. Alles war noch da, nicht in der Welt vor ihm, aber in seinen Knochen.
 
 Trotzdem fühlte es sich unwirklich an.
 
-Vielleicht, dachte Taron, war er nie wirklich zurückgekehrt. Vielleicht lag er noch in Martas Bett und träumte diesen Weg. Vielleicht lag er sogar noch im Dungeon, und dies war nur das seltsame, unhöfliche Jenseits, das Menschen bekamen, die zu oft mit Ziegen stritten.
+Vielleicht, dachte Taron, war er nie wirklich zurückgekehrt. Vielleicht lag er noch in Martas Bett und träumte diesen Weg. Vielleicht lag er sogar noch im Keller unter der Burg, und dies war nur das seltsame, unhöfliche Jenseits, das Menschen bekamen, die zu oft mit Ziegen stritten.
 
 „Eine beruhigende Theorie“, sagte der Erzähler.
 
@@ -36,7 +32,7 @@ Vielleicht, dachte Taron, war er nie wirklich zurückgekehrt. Vielleicht lag er 
 
 Taron ging weiter.
 
-Als die Burg zwischen den Bäumen auftauchte, grau und kantig gegen den hellen Himmel, blieb er wieder stehen. Aus der Entfernung sah Burg Waldkirch aus wie etwas, das Ordnung versprach. Mauern, Türme, Banner, ein Tor, Wachgänge. Menschen sahen Burgen gern an und dachten: Schutz.
+Als die Burg zwischen den Bäumen auftauchte, grau und kantig gegen den hellen Himmel, blieb er wieder stehen. Aus der Entfernung sah Burg Waldkirch aus wie etwas, das Ordnung versprach. Mauern, Türme, Banner, ein Tor, Wachgänge. Menschen sahen Burgen gern an und dachten an Schutz.
 
 Taron sah dieselbe Burg an und dachte: Dort unten ist ein Monster, und gestern hat man mich hineingeworfen.
 
@@ -61,12 +57,6 @@ Eine Pause entstand.
 „Ich habe das Monster nicht getötet“, sagte Taron und ging auf das Burgtor zu. „Ich bin nicht als Held zurückgekommen. Ich bin entkommen. Irgendwie. Das beweist, dass ich es nicht bin.“
 
 „Das wird bestimmt alle überzeugen.“
-
-„Diesmal schon.“
-
-Der Erzähler sagte nichts.
-
-Das war seine grausamste Form der Zustimmung.
 
 Am Tor hielt ihn niemand auf. Die Wachen waren damit beschäftigt, gelangweilt zu wirken, was eine wichtige militärische Aufgabe ist, wenn keine unmittelbare Belagerung stattfindet. Einer von ihnen sah kurz auf Tarons zerrissene Kleidung, den falschen Stiefel und die blauen Flecken an seinem Gesicht.
 
