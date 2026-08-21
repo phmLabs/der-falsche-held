@@ -92,9 +92,7 @@ Er hatte gerade die zweite Schubkarre gefüllt, als der Burgvogt in den Stall tr
 
 Vogt Hademar von Prunkel war ein Mann mit spitzem Bart, breitem Gürtel und dem ständigen Ausdruck eines Menschen, der seit Jahren versucht, eine schlecht geführte Welt durch Listen zu besiegen. Er kam mit schnellen Schritten herein, blieb stehen und sah Taron an.
 
-Taron sah zurück.
-
-Für einen Moment sagte keiner von beiden etwas.
+Taron sah zurück. Für einen Moment sagte keiner von beiden etwas.
 
 Ein Pferd schnaubte.
 
@@ -108,11 +106,7 @@ Taron lehnte sich auf die Mistgabel. „Guten Morgen.“
 
 „Offensichtlich nicht.“
 
-„Du solltest tot sein.“
-
-„Das ist unfreundlich.“
-
-„Das ist Verwaltung.“ Hademar machte einen Schritt näher und kniff die Augen zusammen, als könne Taron bei genauerer Betrachtung doch noch verschwinden. „Wir haben dein Ableben bereits vorläufig vermerkt.“
+Hademar machte einen Schritt näher und kniff die Augen zusammen, als könne Taron bei genauerer Betrachtung doch noch verschwinden. „Wir haben dein Ableben bereits vorläufig vermerkt.“
 
 „Dann streicht es vorläufig wieder.“
 
@@ -135,8 +129,6 @@ Hademar öffnete den Mund. Schloss ihn. Öffnete ihn wieder. Dies war bei ihm ei
 „Unfreiwillig.“
 
 „Und jetzt bist du hier.“
-
-„Auch unfreiwillig, je nach Länge dieses Gesprächs.“
 
 Hademar griff nach Tarons Ärmel.
 
@@ -166,7 +158,7 @@ Der Vogt zog Taron aus dem Stall. Taron ließ die Mistgabel fallen. Ein Teil von
 
 „Das ist nicht dasselbe.“
 
-„Für Prophezeiungen ist es nah genug.“
+„Für die Prophezeiung ist es nah genug.“
 
 „Das ist genau das Problem mit Prophezeiungen.“
 
@@ -176,13 +168,13 @@ Damit hatte er einen Punkt.
 
 Das Königreich Lichtenhain war nicht arm, wenn man es mit wirklich armen Reichen verglich. Es besaß Felder, Wälder, eine Münzstätte, drei brauchbare Brücken und eine königliche Schatzkammer, in der früher tatsächlich Schätze gelegen hatten.
 
-Das Problem war, dass König Albrecht der Ausreichende in den letzten Jahren erhebliche Mittel in die Lösung des Monsterproblems investiert hatte.
+Das Problem war, dass König Albrecht in den letzten Jahren erhebliche Mittel in die Lösung des Monsterproblems investiert hatte.
 
-Mit „Lösung“ war gemeint: Ritter in den Dungeon schicken.
+Mit „Lösung“ war gemeint: Ritter in den Keller schicken.
 
 Mit „investiert“ war gemeint: verlieren.
 
-Die besten Ritter waren zuerst gegangen, in polierten Rüstungen und mit gesegneten Schwertern. Danach kamen die zweitbesten. Dann die ehrgeizigen. Dann die überschätzten. Dann ein Grafensohn, den niemand mochte, was die allgemeine Trauer deutlich vereinfachte. Schließlich waren nur noch Ritter übrig geblieben, die entweder zu alt, zu teuer oder zu ehrlich über ihre Überlebenschancen waren.
+Die besten Ritter waren zuerst gegangen, in polierten Rüstungen und mit gesegneten Schwertern. Danach kamen die zweitbesten. Dann die ehrgeizigen. Dann die überschätzten. Dann ein Grafensohn, den niemand mochte, was die allgemeine Trauer deutlich vereinfachte. Schließlich waren nur noch Ritter übrig geblieben, die entweder zu alt oder zu ehrlich über ihre Überlebenschancen waren.
 
 Nun gab es im Reich viele leere Rüstungsständer, viele Witwen, sehr wenig Heldenglanz und einen überraschend großen Bestand an feierlichen Helmen ohne Besitzer.
 
@@ -206,7 +198,7 @@ König Albrecht stand gerade vor einem Tisch, auf dem mehrere Karten, zwei Kerze
 
 Als der König Taron sah, hellte sich sein Gesicht auf.
 
-Es war kein vorsichtiges Aufhellen. Es war die Art von Freude, die ein Mensch zeigt, wenn ein Problem von selbst zur Tür hereinkommt und noch atmet.
+Es war kein vorsichtiges Aufhellen. Es war die Art von Freude, die ein Mensch zeigt, wenn eine Lösung von selbst zur Tür hereinkommt und noch atmet.
 
 „Er lebt!“, rief König Albrecht.
 
@@ -226,13 +218,11 @@ Bruder Malchior sank auf die Knie. „Die Prüfung ist bestanden.“
 
 „Treue zur Demut bis nach dem Wunder.“
 
-„Ich habe kein Wunder vollbracht.“
-
 Der König trat zu Taron und fasste ihn an den Schultern. Taron gab ein Geräusch von sich, das in besseren Zeiten ein Schrei gewesen wäre, aber aus Rücksicht auf seine Rippen nur als sehr angespannte Silbe herauskam.
 
 „Mein Junge“, sagte Albrecht. „Du hast dem Reich Hoffnung gebracht.“
 
-„Ich habe eine Schubkarre halb voll Mist stehen lassen.“
+„Ich habe eine Schubkarre halb voll Stall-Mist gebracht.“
 
 „So beginnen viele große Wege.“
 
@@ -247,14 +237,6 @@ Der König blinzelte. „Wie bitte?“
 „Nicht Ihr.“
 
 Albrecht nickte verständnisvoll. „Die Stimme der Bestimmung spricht bereits durch ihn.“
-
-Taron sah Bruder Malchior an. „Sagt ihm, dass das Unsinn ist.“
-
-Malchior hatte Tränen in den Augen.
-
-Taron schloss den Mund.
-
-Manche Schlachten sind verloren, bevor sie anfangen. Manche sind verloren, weil ein alter Priester weint.
 
 „Ich habe das Monster nicht getötet“, sagte Taron langsam. Er sprach jedes Wort einzeln aus, als lege er Steine auf einen Tisch. „Ich bin weggerannt. Dann bin ich fast gestorben. Dann war ich plötzlich woanders. Das beweist, dass ich nicht der Held bin.“
 
