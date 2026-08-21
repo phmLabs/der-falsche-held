@@ -404,19 +404,15 @@ Taron blieb bis zum Morgen. Nicht freiwillig. Sein Körper hatte sich mit Marta 
 
 Schließlich stand Taron auf. Kein würdevoller Vorgang. Er hielt sich an Pfosten, Wand, Stuhl und kurz an Marta fest, die nickte, als habe er eine Prüfung bestanden.
 
-Sie gab ihm den Mantel ihres verstorbenen Mannes. Er roch nach Rauch, Wolle und ein wenig nach Zwiebeln. Außerdem drückte sie ihm Brot, einen Apfel, den geretteten Stiefel und einen zweiten, der nicht passte, in die Hand.
+Sie gab ihm den Mantel. Er roch nach Rauch, Wolle und ein wenig nach Zwiebeln. Außerdem drückte sie ihm Brot, einen Apfel, den geretteten Stiefel und einen zweiten, der nicht passte, in die Hand.
 
 „Der linke ist größer“, sagte sie.
-
-„Ich merke es.“
-
-„Dann drückt er nicht so. Mein Mann hatte breite Füße. Beide.“
 
 Draußen hing Nebel zwischen den Bäumen. Hinter den Wipfeln ragte Burg Waldkirch, grau und unschuldig, als hätte sie nichts mit Dungeons, Monstern und religiöser Körperverletzung zu tun.
 
 „Marta“, sagte Taron. „Wenn dieser Mann wiederkommt …“
 
-„Der mit dem Mantel? Und dem Gold? Und den sauberen Sätzen?“
+„Der mit dem Mantel? Und dem Gold?“
 
 „Genau der. Nimm kein zweites Goldstück.“
 
