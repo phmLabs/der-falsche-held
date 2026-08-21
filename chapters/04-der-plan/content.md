@@ -112,7 +112,7 @@ Taron sprang auf, bereute es sofort, schnappte nach Luft und tat so, als sei das
 
 Das Pferd hob den Kopf und wirkte nicht begeistert, aber bereit. Das war mehr Unterstützung, als Taron von den meisten Menschen bekommen hatte.
 
-Er stieg auf. Dieses Mal gelang es ihm beinahe würdevoll. Beinahe war in diesen Tagen ein großes Wort.
+Er stieg auf. Dieses Mal gelang es ihm beinahe würdevoll. 
 
 Die Straße nach Westen führte zuerst durch Felder, dann zwischen niedrigen Hügeln hindurch. Hinter ihm verschwand Burg Waldkirch endgültig. Vor ihm lag das Land, das in Karten vermutlich ordentlicher aussah, als es sich anfühlte. Es gab Pfützen, Steine, verlassene Weidezäune und immer wieder kleine Wegkreuze, an denen Menschen Kerzen aufgestellt hatten.
 
