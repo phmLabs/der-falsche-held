@@ -308,7 +308,7 @@ Der Helm saß schief.
 
 „Ich weiß“, murmelte Taron.
 
-Bruder Malchior entrollte die Prophezeiung auf dem Tisch. Diesmal lagen kleine Steine an den Ecken, damit das Pergament nicht zurückschnappte und jemanden verletzte. Auch das hatte es offenbar schon getan.
+Bruder Malchior entrollte die Prophezeiung auf dem Tisch. Diesmal lagen kleine Steine an den Ecken, damit das Pergament nicht zurückschnappte und jemanden verletzte. Auch das hatte es offenbar schon gegeben.
 
 „Nun“, sagte Malchior. „Da die Prüfung bestanden ist, muss der Auserwählte den Weg des Falken antreten.“
 
@@ -322,17 +322,13 @@ Bruder Malchior entrollte die Prophezeiung auf dem Tisch. Diesmal lagen kleine S
 
 Taron wartete.
 
-Malchior sah bedeutungsvoll in die Runde.
-
-Der König nickte ernst.
-
-Hademar schrieb etwas auf.
+Malchior sah bedeutungsvoll in die Runde. Der König nickte ernst. Hademar schrieb etwas auf.
 
 „War das die Erklärung?“, fragte Taron.
 
 „Ja.“
 
-„Das war keine Erklärung. Das waren Wörter, die sich in einer dunklen Gasse getroffen haben.“
+„Das war keine Erklärung. Das waren einfach Wörter.“
 
 Malchior lächelte geduldig. „Der Turm von Abendriss liegt drei Tagesritte westlich. Dort findet Ihr den Splitter.“
 
@@ -344,17 +340,9 @@ Malchior lächelte geduldig. „Der Turm von Abendriss liegt drei Tagesritte wes
 
 „Sie krönt die Nacht.“
 
-„Das ist keine Antwort.“
-
-„Eine sehr wörtliche“, sagte der Erzähler.
-
 „Und was passiert, wenn ich nicht gehe?“
 
-Der König wurde still.
-
-Malchior senkte die Augen.
-
-Hademar hörte auf zu schreiben.
+Der König wurde still. Malchior senkte die Augen. Hademar hörte auf zu schreiben.
 
 Für einen Moment spürte Taron etwas anderes im Raum. Nicht nur Unsinn. Nicht nur religiöse Aufregung und königliche Bequemlichkeit. Angst.
 
@@ -362,9 +350,7 @@ Für einen Moment spürte Taron etwas anderes im Raum. Nicht nur Unsinn. Nicht n
 
 „Das wäre wahr.“
 
-„Wahrheit“, sagte der König, „ist nicht immer nahrhaft.“
-
-Taron wollte widersprechen.
+„Wahrheit“, sagte der König, „ist nicht immer nahrhaft.“ Taron wollte widersprechen.
 
 Aber er dachte an die leeren Rüstungsständer. An die Wachen am Tor. An die Menschen im Hof, die einfach weitergearbeitet hatten, weil irgendjemand weiterarbeiten musste, auch wenn unter der Burg ein Hunger wohnte und über dem Reich alte Prophezeiungen wie nasse Wäsche hingen.
 
