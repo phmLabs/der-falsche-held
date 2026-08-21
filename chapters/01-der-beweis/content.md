@@ -380,23 +380,17 @@ Taron fuhr hoch, bereute es sofort. „Du.“
 
 „Meinst du mich?“, fragte Marta.
 
-„Nicht du.“
+„Nein.“
 
-„Ach so.“ Sie sah zur Decke. „Der Balken knarrt nur.“
+„Ach so.“ Sie sah zur Decke.
 
-„Niemand“, knirschte Taron.
-
-Marta nickte zufrieden, weil das immerhin klar war. „Iss erst mal. Dann schläfst du. Der Mann meinte, du würdest zu früh aufstehen wollen. Er guckte, als hätte er das schon erlebt.“
+Marta nickte zufrieden, weil das immerhin klar war. „Iss erst mal. Dann schläfst du. Der Mann meinte, du würdest zu früh aufstehen wollen. Er guckte, als hätte er das alles schon mal erlebt.“
 
 „Hat er gesagt, was ich tun soll?“
 
 „Wenn du fragst, ob du gehen darfst, soll ich nein sagen. Und wenn du dann trotzdem gehst, soll ich dir den alten Mantel meines Mannes geben. Also meines verstorbenen Mannes. Nicht, dass du denkst, ich verleihe hier lebende Männerkleidung.“
 
 Taron sah zum Stuhl neben dem Herd. Ein brauner Mantel hing dort, geflickt, abgetragen, aber warm.
-
-„Er hat das gesagt?“
-
-„So ungefähr. Er redete sehr sauber, aber auch so glatt, da rutscht einem was aus dem Kopf.“
 
 „Und du findest das nicht seltsam?“
 
