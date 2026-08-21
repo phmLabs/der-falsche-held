@@ -238,21 +238,15 @@ Der Ritter hob seinen Krug.
 
 „Auf verlorene Wege“, sagte er.
 
-Niemand prostete ihm zu.
-
-Er trank trotzdem.
+Niemand prostete ihm zu. Er trank trotzdem.
 
 „Der wäre nützlich“, sagte der Erzähler.
-
-„Der fällt gleich vom Stuhl.“
-
-„Dann wäre er am Boden nützlich.“
 
 „Wofür?“
 
 „Als Warnung.“
 
-Taron sah den Ritter an. Der Mann hatte Arme wie ein Schmied, eine Haltung wie ein Hauptmann und Augen, die zu lange in Dinge gesehen hatten, die nicht zurückblicken sollten.
+Taron sah den Ritter an. Der Mann hatte Arme wie ein Schmied, eine Haltung wie ein Hauptmann und Augen, die zu lange Dinge gesehen hatten, die einen töten wollen, 
 
 „Wer ist das?“, fragte Taron den Wirt.
 
@@ -260,7 +254,7 @@ Der Wirt stellte einen Krug ab. „Sir Oswin von Hohenklamm.“
 
 Taron blinzelte. „Sir Oswin?“
 
-„Ein guter Ritter, wenn er nüchtern ist.“
+„Ein guter Ritter, wenn er nüchtern ist.“ 
 
 „Und wann ist das?“
 
@@ -268,11 +262,7 @@ Der Wirt überlegte.
 
 „Morgens. Manchmal.“
 
-„Das ist ungünstig.“
-
-„Für wen?“
-
-„Für alle, die nachmittags gerettet werden müssen.“
+„Das ist ungünstig für alle, die nachmittags gerettet werden müssen.“
 
 Sir Oswin hob den Kopf, als habe er seinen Namen durch den Lärm hindurch gerochen.
 
@@ -288,11 +278,7 @@ Oswin nahm sein Schwert, stand auf, schwankte nur ein wenig und kam zu ihm herü
 
 „Ich?“, fragte Taron.
 
-„Du siehst aus, als hätte dich eine Prophezeiung gebissen.“
-
-„Das ist erstaunlich genau.“
-
-Oswin setzte sich neben ihn. „Ich kenne den Blick. Viele junge Männer tragen ihn, kurz bevor sie entweder sterben oder eine Rede halten. Man hofft immer auf den Tod.“
+Oswin setzte sich neben ihn. „Ich kenne den Blick. Viele junge Männer tragen ihn, kurz bevor sie entweder sterben oder eine Rede halten. Man hofft immer auf das Erste.“
 
 Taron mochte ihn sofort ein bisschen.
 
