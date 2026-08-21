@@ -248,15 +248,7 @@ Der König hörte aufmerksam zu. Zumindest machte er das Gesicht dafür.
 
 „Entrückt. Dem Tod entzogen. Herausgenommen aus der Prüfung, weil seine Aufgabe nicht dort enden durfte.“
 
-Nachdenken. 
-
-„Majestät“, sagte Malchior, „wir stehen vor einer Erweiterung der Zeichen.“
-
-„Wir stehen vor einem Missverständnis mit Beinen“, sagte Taron.
-
-„Ich sagte doch“, murmelte Hademar.
-
-König Albrecht hob beide Hände. „Genug. Ob durch Wunder, Mantel, Bote oder andere verwaltungstechnisch schwer erfassbare Mittel: Taron Falkenried hat die Prüfung überlebt. Das Volk braucht Hoffnung. Das Reich braucht einen Auserwählten. Und offenbar haben wir einen.“
+König Albrecht hob beide Hände. „Genug. Ob durch Wunder, Bote oder andere verwaltungstechnisch schwer erfassbare Mittel: Taron Falkenried hat die Prüfung überlebt. Das Volk braucht Hoffnung. Das Reich braucht einen Auserwählten. Und offenbar haben wir einen.“
 
 „Ihr hört mir absolut nicht zu“, sagte Taron.
 
