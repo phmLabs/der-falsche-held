@@ -370,13 +370,13 @@ Taron legte die Schale ab. Der Raum schien kleiner zu werden.
 
 „Ja, weil es ihn nicht gibt.“
 
-„Er stand aber hier“, sagte Marta, beinah entschuldigend.
+„Er stand aber hier“, sagte Marta.
 
 Marta nickte zufrieden, weil das immerhin klar war. „Iss erst mal. Dann schläfst du. Der Mann meinte, du würdest zu früh aufstehen wollen. Er guckte, als hätte er das alles schon mal erlebt.“
 
 „Hat er gesagt, was ich tun soll?“
 
-„Wenn du fragst, ob du gehen darfst, soll ich nein sagen. Und wenn du dann trotzdem gehst, soll ich dir seinen Mantel geben, den er dagelassen hat. Er meinte, er wär’ dir zu groß und deshalb genau richtig. Das fand ich komisch, aber er hat bezahlt, also hab ich genickt.“
+„Wenn du fragst, ob du gehen darfst, soll ich nein sagen. Und wenn du dann trotzdem gehst, soll ich dir seinen Mantel geben, den er dagelassen hat. Er meinte, er wär’ dir zu groß und deshalb genau richtig. Das fand ich komisch, aber er hat bezahlt, also mache ich es.“
 
 Taron sah zum Stuhl neben dem Herd. Dort hing kein braunes, bäuerliches Stück, sondern ein Reiseumhang, dunkel wie nasser Schiefer. Das Gewebe war dicht und glatt, als hätte Wind sich hineingenäht. Am Saum liefen unauffällige, fast unsichtbare Stiche in einer unklaren Reihenfolge, wie kleine Striche in einem Notizbuch. Die Kapuze war tief, die Schultern breit, und trotzdem wirkte der Mantel leichter, als er aussah. In einer der Innenfalten schimmerte eine schmale, sorgfältig eingefasste Tasche, groß genug für einen Brief oder eine Klinge, klein genug, um zu vergessen, dass sie da war.
 
@@ -404,7 +404,7 @@ Draußen hing Nebel zwischen den Bäumen. Hinter den Wipfeln ragte Burg Waldkirc
 
 „Marta“, sagte Taron. „Wenn dieser Mann wiederkommt …“
 
-„Der mit dem Mantel? Und dem Gold?“
+„Der mit dem Mantel und dem Gold?“
 
 „Genau der. Nimm kein zweites Goldstück.“
 
@@ -412,7 +412,7 @@ Marta runzelte die Stirn, als hätte Taron ihr eine Scheune zur Aufsicht überge
 
 „Besonders dann nicht.“
 
-„Dann frag ich zweimal, wer da ist“, sagte sie. „Wenn die Antwort zu vornehm ist, mach ich nicht auf. Oder ich geb ihm Arbeit. Holz spalten zum Beispiel. Vornehme Hände taugen nicht zum Spalten, hab ich gehört.“
+„Dann frag ich zweimal, wer da ist“, sagte sie. „Wenn die Antwort zu vornehm ist, mach' ich nicht auf. Oder ich geb ihm Arbeit. Holz spalten zum Beispiel. Vornehme Hände taugen nicht zum Spalten.“
 
 Das war vermutlich das Beste, was man von der Welt verlangen konnte. Taron trat über die Schwelle.
 
@@ -420,31 +420,21 @@ Das war vermutlich das Beste, was man von der Welt verlangen konnte. Taron trat 
 
 Taron blieb stehen. Sein Atem zitterte in der kühlen Luft.
 
-„Also soll ich zur Burg zurückgehen“, sagte er.
-
-„Das habe ich nicht gesagt.“
-
 „Du lügst.“
 
-„Gelegentlich.“
+„Selten.“
 
 „Du verschweigst Dinge.“
 
-„Professionell.“
+„Öfters.“
 
-„Und du hast vielleicht einen Mantel.“
+„Und du hattest vielleicht einen Mantel.“
 
 „Eine gewagte Anschuldigung. Aber er kleidet dich.“
 
 Taron zog den Mantel fester um sich. Er fühlte sich darunter, als hätte er zum ersten Mal seit langer Zeit etwas an, das er nicht von jemand anderem geborgt hatte – obwohl es genau das war.
 
-„Danke für nichts“, murmelte er.
-
-„Gern geschehen“, sagte der Erzähler.
-
-Hinter ihm schloss Marta die Tür.
-
-Vor ihm wartete Burg Waldkirch.
+Hinter ihm schloss Marta die Tür. Vor ihm wartete Burg Waldkirch.
 
 Und irgendwo, in dem Raum zwischen dem, was geschehen war, und dem, was der Erzähler behaupten würde, begann Taron zu begreifen, dass er vielleicht nicht nur für den falschen Helden gehalten wurde.
 
