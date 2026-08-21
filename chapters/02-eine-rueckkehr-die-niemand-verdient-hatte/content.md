@@ -248,7 +248,7 @@ Der König hörte aufmerksam zu. Zumindest machte er das Gesicht dafür.
 
 „Entrückt. Dem Tod entzogen. Herausgenommen aus der Prüfung, weil seine Aufgabe nicht dort enden durfte.“
 
-König Albrecht hob beide Hände. „Genug. Ob durch Wunder, Bote oder andere verwaltungstechnisch schwer erfassbare Mittel: Taron Falkenried hat die Prüfung überlebt. Das Volk braucht Hoffnung. Das Reich braucht einen Auserwählten. Und offenbar haben wir einen.“
+König Albrecht hob beide Hände. „Genug. Ob durch Wunder oder andere verwaltungstechnisch schwer erfassbare Mittel: Taron Falkenried hat die Prüfung überlebt. Das Volk braucht Hoffnung. Das Reich braucht einen Auserwählten. Und offenbar haben wir einen.“
 
 „Ihr hört mir absolut nicht zu“, sagte Taron.
 
@@ -266,11 +266,9 @@ Dann den Siegelstempel, den Apfel, die Karten, die Pergamentrolle und den kleine
 
 „Ein weiser erster Schritt“, sagte der Erzähler.
 
-„Nicht du.“
-
 „Auch das“, sagte Malchior leise, „ist ein Zeichen.“
 
-Es dauerte nicht lange, Taron neu einzukleiden.
+Es dauerte nicht lange, den Stallburschen neu einzukleiden.
 
 Das lag nicht daran, dass die Burg gut vorbereitet war. Sie war im Gegenteil schlecht vorbereitet, wie Burgen oft sind, wenn etwas wirklich geschieht. Es lag daran, dass nicht mehr viel Auswahl vorhanden war.
 
@@ -298,9 +296,7 @@ Malchior sah zur Decke.
 
 „Wir haben viel gelernt“, sagte der Priester.
 
-„Wie viele Menschen in ein Monster passen?“
-
-„Zum Beispiel“, sagte der Erzähler.
+„Wie viele Menschen in ein Monster passen“ sagte der Erzähler.
 
 Taron zog den Waffenrock über. Er war zu weit an den Schultern und zu eng an der Stelle, wo seine Rippen sich daran erinnerten, gestern gegen Stein geschlagen zu sein. Die Lederrüstung roch nach altem Schweiß, Weihrauch und Enttäuschung.
 
@@ -311,12 +307,6 @@ Der Helm saß schief.
 „Er sieht aus wie ein bestrafter Kleiderständer“, sagte der Erzähler.
 
 „Ich weiß“, murmelte Taron.
-
-„Was wisst Ihr?“, fragte der König.
-
-„Dass es würdevoll ist.“
-
-Das war der Augenblick, in dem Taron begriff, wie schnell ein Mensch innerlich sterben konnte, ohne dadurch nennenswerte Vorteile zu erhalten.
 
 Bruder Malchior entrollte die Prophezeiung auf dem Tisch. Diesmal lagen kleine Steine an den Ecken, damit das Pergament nicht zurückschnappte und jemanden verletzte. Auch das hatte es offenbar schon getan.
 
