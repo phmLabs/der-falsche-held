@@ -1,5 +1,5 @@
-- Taron beschließt nach dem dritten Horn, zum Turm von Abendriss zu reiten, entwirft den knappen Plan „rein, finden, raus“ für den ersten Splitter der Nachtkrone und gesteht sich nebenbei seine Liebe zu Elva ein. 
-- Auf dem Ritt nach Westen kommt es zu einem ernsten Austausch mit dem Erzähler über dessen Verschwinden „nach der Schlacht“ („nicht weit genug“), was auf alte, ungeklärte Wunden hinweist. 
-- In der Freien Burg Hohensteg zahlt Taron widerwillig für ein Zimmer im „Blauen Eber“ und trifft den betrunkenen Ritter Sir Oswin von Hohenklamm, der nach Geschichten und viel Bier der Begleitung zustimmt. 
-- Am Morgen ist Oswin verkatert, aber gerüstet, und die beiden brechen gemeinsam Richtung Abendriss auf. 
-- Offen bleibt, welche Gefahren (Wächter, Schlösser, Rätsel, Monster) am Turm warten, was es wirklich mit dem Splitter/der Prophezeiung und der Vergangenheit des Erzählers auf sich hat und ob Oswins Zuverlässigkeit sowie Tarons Gefühle für Elva den Weg beeinflussen.
+- Nach dem dritten Horn bricht Taron trotz Verletzungen mit seinem Pferd Kummer zum Turm von Abendriss auf und entwirft einen knappen Plan: hinein, den ersten Splitter der Nachtkrone holen, hinaus; zugleich gesteht er sich seine Liebe zu Elva ein.
+- Auf dem Weg fragt er den Erzähler nach dessen Verschwinden nach der Schlacht; die Frage bleibt unbeantwortet.
+- In der Freien Burg Hohensteg nimmt Taron ein Zimmer im Gasthaus Zum Blauen Eber und begegnet dem betrunkenen Ritter Sir Oswin von Hohenklamm.
+- Nach nächtlichem Gespräch sagt Oswin im Suff zu; am Morgen reitet er verkatert, gerüstet und bewaffnet mit Taron gen Westen.
+- Offene Fragen: Welche Gefahren warten am Turm (Wächter, Rätsel, Monster), kann Oswin sich bewähren, warum verließ der Erzähler Taron damals, und wie beeinflussen Tarons Gefühle für Elva sein Handeln?

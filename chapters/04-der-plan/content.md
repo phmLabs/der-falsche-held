@@ -132,21 +132,13 @@ Der Erzähler antwortete nicht sofort.
 
 „Ja.“
 
-Das Wort war kurz.
-
-Nicht trocken. Nicht spitz.
-
-Nur müde.
+Das Wort war kurz. Nicht trocken. Nicht spitz. Nur müde.
 
 Taron sah auf die Straße vor sich. „Wo warst du?“
 
 Wieder Stille.
 
-Als die Antwort kam, war sie leiser als sonst.
-
-„Nicht weit genug.“
-
-Taron wartete auf die übliche Ergänzung. Auf einen Spott. Eine Ausweichbewegung. Einen Satz, der so tat, als habe er mehr mit Stil als mit Wahrheit zu tun.
+Taron wartete auf einen Spott. Eine Ausweichbewegung. Einen Satz, der so tat, als habe er mehr mit Stil als mit Wahrheit zu tun.
 
 Nichts davon kam.
 
@@ -158,9 +150,7 @@ Diese Erkenntnis kam langsam, aber sie blieb.
 
 Taron hätte weiterfragen können. Er wollte es sogar. Ein Teil von ihm, ein kleiner wütender Teil, wollte die Stimme schütteln und Antworten verlangen. Warum sie ihn allein gelassen hatte. Warum sie jetzt zurück war. Warum sie heute so tat, als sei alles ein Spiel, wenn früher einmal Freundlichkeit in ihr gewesen war.
 
-Aber er fragte nicht.
-
-Nicht jetzt.
+Aber er fragte nicht. Nicht jetzt.
 
 „Gut“, sagte Taron schließlich.
 
@@ -170,9 +160,7 @@ Nicht jetzt.
 
 „Eine deiner klareren Aussagen.“
 
-Da war er wieder, fast. Der alte scharfe Rand.
-
-Aber nur fast.
+Da war er wieder, fast. Der alte scharfe Kommentar.
 
 Taron ließ ihn stehen.
 
@@ -226,25 +214,7 @@ Taron starrte ihn an.
 
 „Klingt nach einem Königreichsproblem.“
 
-Der Erzähler schwieg.
-
-Das war nicht hilfreich.
-
-„Kann ich mit Ruhm bezahlen?“, fragte Taron.
-
-„Nein.“
-
-„Dankbarkeit?“
-
-„Auch nein.“
-
-„Eine spätere Erwähnung in Liedern?“
-
-Der Wirt sah ihn an. „Junge, wenn Lieder meine Betten stopfen könnten, hätte ich weichere Matratzen.“
-
-Taron bezahlte.
-
-Es war demütigend.
+Taron bezahlte. Es war demütigend.
 
 Nicht groß demütigend, wie öffentlich in einen Dungeon geworfen zu werden. Eher klein demütigend. Die Art Demütigung, die sich im Alltag versteckt und dort erstaunlich wohlfühlt.
 
