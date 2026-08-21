@@ -64,15 +64,11 @@ Am Ende lagen zwei Männer im Staub, einer kniete mit den Händen über dem Kopf
 
 „Geht“, sagte er.
 
-Sie gingen.
+Sie gingen. Schnell.
 
-Schnell.
+Taron atmete aus. Für einen Moment war da keine Kneipe, kein Bier, kein Kater. Nur ein Ritter. Ein echter.
 
-Taron atmete aus. Für einen Moment war da keine Kneipe, kein Bier, kein Kater. Nur ein Ritter.
-
-Ein echter.
-
-Oswin erklärte, die Männer seien hungrig, schlecht ausgebildet und dumm gewesen. Das sei keine Seltenheit, die man ausrotten müsse. Dann stieg er wieder auf und sagte beiläufig, er zähle nicht jeden armseligen Straßenräuber.
+Oswin erklärte, die Männer seien hungrig, schlecht ausgebildet und dumm gewesen. Das sei keine Seltenheit und habe nicht den Tod verdient Dann stieg er wieder auf und sagte beiläufig, er zähle nicht jeden armseligen Straßenräuber.
 
 „Du zählst?“, fragte Taron.
 
@@ -91,10 +87,6 @@ Oswin sah nach Westen.
 Taron sagte nichts.
 
 „Zweihundertneunundvierzig, wenn man Hauptmann Drogan mitzählt“, sagte Oswin. „Aber er fiel von einer Mauer, bevor ich richtig fertig war. Ich lasse ihn ungern gelten.“
-
-Das war gewissenhaft.
-
-Auf eine Weise, die Taron nicht länger verfolgen wollte.
 
 „Zwergenkriege?“, fragte er trotzdem.
 
@@ -128,7 +120,7 @@ Zauberer, erklärte er, könne man immer gebrauchen. Wenn sie gut waren, rettete
 
 „Sie hat sich bewährt.“
 
-Taron wollte keinen Zauberer. Er wollte auch keinen Turm, keinen Splitter, keine Prophezeiung und keinen Ritter mit einer sehr beunruhigenden Liste. Oswin fand, Taron sei dennoch reich an allem, was unfair genug formuliert war, dass Taron kurz keine Antwort fand.
+Taron wollte keinen Zauberer. Er wollte auch keinen Turm, keinen Splitter, keine Prophezeiung und keinen Ritter mit einer sehr beunruhigenden Liste. 
 
 Der Erzähler hielt den Zauberer ebenfalls für eine gute Idee.
 

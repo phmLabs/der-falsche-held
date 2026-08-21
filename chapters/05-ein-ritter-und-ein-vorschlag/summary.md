@@ -1,4 +1,5 @@
-- Oswin und Taron brechen aus Hohensteg auf; Oswin ist trotz Katers extrem wachsam, liest Spuren von vier Reitern und schlägt in einem kurzen, präzisen Gefecht drei Wegelagerer kampfunfähig, ohne sie zu töten. 
-- Oswin spricht über die Zwergenkriege und seine 248 (vielleicht 249) getöteten „Bösen“ und erklärt, warum er sie zählt, was Tarons Bild von ihm vertieft. 
-- Strategisch fordert Oswin, einen Zauberer zu suchen; trotz Tarons Widerstand (und der drängelnden Erzählerstimme „Niemand“) kehren sie um und fragen im Blauen Eber nach. 
-- Der Wirt verweist sie auf Merlan Graufinger samt kryptischen Hinweisen zu Rauchfarben und dem möglichen Nicht-Existieren des Hauses; offen bleibt, wer die vier Reiter sind, ob Merlan auffindbar und nützlich ist und wohin diese Suche führt.
+- Oswin und Taron brechen aus Hohensteg auf; Oswin zeigt trotz Kater Spurenlesen, warnt vor möglicher Gefahr und schlägt drei Wegelagerer in wenigen Atemzügen nieder, ohne jemanden zu töten. 
+- Unterwegs erzählt Oswin von den Zwergenkriegen, seiner Zählweise der Getöteten (248/249) und seiner Begründung dafür.
+- Er schlägt vor, einen Zauberer anzuheuern; Taron wehrt sich, gibt dem Druck der Stimme in seinem Kopf aber nach, und beide kehren nach Hohensteg zurück.
+- Im Blauen Eber bestätigt der Wirt, dass es einen Zauberer namens Merlan Graufinger gibt, und gibt eine Wegbeschreibung samt Warnungen zu Farbsignalen des Schornsteinrauchs.
+- Offene Fragen: Wer waren die vier Reiter und droht weitere Gefahr? Wird Merlan hilfreich sein – und ist sein Haus überhaupt noch da?
