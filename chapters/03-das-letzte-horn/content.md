@@ -90,7 +90,7 @@ Sie mussten nicht.
 
 Sie kamen wie eine Wand.
 
-Zuerst fielen die Grenzdörfer. Dann die Mühlen an der Finsterfurt. Dann Burg Rothang, deren Mauern seit zweihundert Jahren als uneinnehmbar gegolten hatten. Die Flüchtlinge kamen in Wagen, zu Fuß, auf Ochsen, auf den Rücken älterer Geschwister. Sie brachten Decken, Töpfe, Kinder, schlechte Nachrichten und diesen Blick mit, den Menschen bekommen, wenn sie zu viel gesehen haben und trotzdem weitergehen müssen.
+Zuerst fielen die Grenzdörfer. Dann die Mühlen an der Finsterfurt. Dann Burg Rothang, deren Mauern seit zweihundert Jahren als uneinnehmbar gegolten hatten. Die Flüchtlinge kamen in Wagen, zu Fuß, auf Ochsen, auf den Rücken älterer Geschwister. Sie brachten Decken, Töpfe, schlechte Nachrichten und diesen Blick mit, den Menschen bekommen, wenn sie zu viel gesehen haben und trotzdem weitergehen müssen.
 
 Taron erinnerte sich an Gesichter im Hof.
 
@@ -102,15 +102,13 @@ An eine Frau, die ihn an der Schulter packte und sagte: „Bleib hier.“
 
 Er wusste nicht mehr, wer sie war.
 
-Das machte die Erinnerung schlimmer.
-
 „Bitte geh nicht zum Tor“, sagte die Stimme.
 
 „Warum?“
 
 „Weil dort Dinge geschehen, die Kinder nicht sehen müssen.“
 
-„Sterben?“
+„Tote?“
 
 Die Stimme schwieg zu lange.
 
@@ -126,7 +124,7 @@ Man sang von der Lanze Sir Berolds, die im Abendlicht glänzte. Von der Schildma
 
 Lieder sind ausgezeichnet darin, Ordnung zu schaffen, wo in Wahrheit nur Augenblicke waren.
 
-Die Schlacht war nicht weniger groß, weil sie unübersichtlich war. Ein Wagen brach im Torhaus zusammen und verengte den Durchgang genau in dem Moment, in dem die erste Zwergenwelle eindringen wollte. Das gab der Schildmauer Zeit, sich zu schließen. Sir Berold erreichte den feindlichen Bannerträger, weil ein Trupp junger Ritter den linken Flügel länger hielt, als irgendjemand von ihnen erwarten durfte. König Albrecht stand auf der äußeren Treppe und blieb dort, obwohl die Pfeile gegen den Stein schlugen. Bruder Malchior sprach die Segensworte mit einer Stimme, die selbst dann nicht zitterte, als Rauch durch den Hof zog.
+Die Schlacht war nicht weniger groß, weil sie unübersichtlich war. Ein Wagen brach im Torhaus zusammen und verengte den Durchgang genau in dem Moment, in dem die erste Zwergenwelle eindringen wollte. Das gab der Schildmauer Zeit, sich zu schließen. Sir Berold erreichte den feindlichen Bannerträger, weil ein Trupp junger Ritter den linken Flügel länger hielt, als irgendjemand von ihnen erwarten durfte. König Albrecht blieb auf der Treppe, obwohl die Pfeile gegen den Stein schlugen. 
 
 Die Schlacht war episch.
 
