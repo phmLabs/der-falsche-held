@@ -10,7 +10,9 @@ Für einen Moment blieb Taron sitzen.
 
 „Ich sollte weiterreiten“, sagte er.
 
-Das war gut. Oder zumindest besser als alles, was er hätte sagen können.
+„Ja“, sagte der Erzähler.
+
+Das war gut. Oder zumindest besser als alles, was er sonst hätte sagen können.
 
 Taron steckte das Brot zurück in den Beutel, griff nach Kummers Zügeln und stand auf. Seine Rippen protestierten. Seine Schulter protestierte. Der linke Fuß, der noch immer in dem falschen Stiefel steckte, schien aus grundsätzlicher Überzeugung gegen die gesamte Reise zu sein.
 
@@ -20,11 +22,7 @@ Das Gefühl aus der Vergangenheit war nicht angenehm. Es war nicht einmal klar. 
 
 Vielleicht musste er der Sache eine Chance geben.
 
-Eine kleine.
-
-Eine sehr vorsichtige.
-
-Eine, aus der man im Notfall wegreiten konnte.
+Eine kleine. Eine, aus der man im Notfall wegreiten konnte.
 
 „Wie schwer kann es schon sein?“, sagte Taron.
 
@@ -65,10 +63,6 @@ Taron sah ihn nicht an, weil man Stimmen schlecht ansehen kann, aber seine Augen
 „Natürlich“, sagte er, „könnte es eine Sache geben, die ich nicht bedacht habe.“
 
 „Eine?“
-
-„Vielleicht zwei.“
-
-„Großzügig.“
 
 „Aber sicher nur etwas Kleines. Ein Schloss. Ein Wächter. Ein Rätsel. Ein sehr alter Mann, der nicht aufhört, in Andeutungen zu sprechen.“
 
