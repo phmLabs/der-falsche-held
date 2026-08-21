@@ -172,8 +172,6 @@ Die Ritter packten ihn an den Armen. „Ich hatte zu tun“, sagte der Erzähler
 
 „Der Auserwählte spricht bescheiden“, seufzte Malchior.
 
-„Vor allem bescheiden“, sagte der Erzähler.
-
 Die Ritter führten Taron durch einen Seitengang in den ältesten Teil der Burg. Die Mauern wurden dicker, die Luft kälter, Fackeln seltener. Unter Burg Waldkirch lagen Keller, unter den Kellern Gewölbe, und darunter Orte, die man nicht mehr reparierte, weil niemand lange genug dort blieb, um sich über Feuchtigkeit zu beschweren. Vor einer schwarzen Eisentür blieben sie stehen.
 
 Auf der Tür waren Zeichen eingeritzt: Schutz, Warnung und eine Kerbe, die an jemanden erinnerte, der versucht hatte, sich mit bloßen Fingern herauszugraben.
@@ -202,7 +200,7 @@ Der Burgvogt reichte ihm schließlich eine rostige Speerstange, deren Spitze aus
 
 „Mutig“, hauchte Malchior.
 
-„Das war kein Mut.“
+„Das ist kein Mut.“
 
 „Tiefste Demut.“
 
@@ -216,17 +214,15 @@ Die Ritter stießen ihn. Die Tür fiel zu. Der Riegel schob sich vor.
 
 „Ich bin nicht der Auserwählte!“, schrie Taron.
 
-Von draußen Malchior: „Dann beweist es, indem Ihr zurückkehrt!“
+Von draußen Malchior: „Dann beweist es, indem Ihr nicht zurückkehrt!“
 
 „Das ergibt keinen Sinn!“
 
 „Sinn offenbart sich am Ende!“
 
-„Weil alle vorher tot sind!“
+„Oder nicht, weil alle vorher tot sind!“
 
 Stille.
-
-„Eine starke These“, meinte der Erzähler.
 
 Vor Taron lag kein völliges Schwarz. Hier und da glommen grünliche Lichtsteine, gerade hell genug für Umrisse und für die Fantasie, den Rest zu ergänzen. Der Gang führte abwärts. Etwas kratzte in der Ferne.
 
@@ -238,7 +234,7 @@ Vor Taron lag kein völliges Schwarz. Hier und da glommen grünliche Lichtsteine
 
 „Nein.“
 
-Er umklammerte die Speerstange. „Du bist allwissend. Sag mir, wie ich hier rauskomme.“
+Er umklammerte die Speerstange. „Sag mir, wie ich hier rauskomme.“
 
 „Durch die Tür.“
 
@@ -248,17 +244,11 @@ Er umklammerte die Speerstange. „Du bist allwissend. Sag mir, wie ich hier rau
 
 „Hilfst du mir eigentlich?“
 
-„Ich kommentiere.“
-
-„Das ist keine Hilfe.“
-
-„Für manche Leser schon.“
+„Manchmal“
 
 Der Erzähler schwieg wieder. Taron ging weiter. Der Gang öffnete sich in eine Halle. Säulen standen schief wie alte Zähne. Knochen lagen herum, manche von Tieren, manche nicht. In der Mitte ein Kreis aus schwarzen Steinen, darin etwas, das einmal eine Kette gewesen war. Die Kette war gerissen.
 
 „Schlecht“, sagte Taron.
-
-„Treffend.“
 
 Etwas bewegte sich. Taron hob die Stange.
 
