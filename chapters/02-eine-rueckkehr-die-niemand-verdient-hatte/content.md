@@ -487,7 +487,3 @@ Taron schloss die Augen.
 „Nein“, sagte der Erzähler. „Das ist das andere.“
 
 Taron steckte das Brot zurück in den Beutel.
-
-Natürlich war die Reise nach Westen gerade erst losgegangen.
-
-Natürlich hatte die Katastrophe es eilig.
