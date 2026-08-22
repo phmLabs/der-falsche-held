@@ -201,31 +201,34 @@ Merlan erklaert moderne Magie als eine Art Stoffkunde: Kraeuter, Metalle, Saeure
 
 ---
 
-## Die echte Auserwaehlte
+## Brokk Eisenhand
 
-**Arbeitsname:** Mira von Graufurt  
-**Rolle:** Die Person, die vielleicht tatsaechlich gemeint war  
-**Alter:** 19  
-**Herkunft:** Unklar, vermutlich nicht so unbedeutend wie sie behauptet  
+**Rolle:** Zwergenhauptmann, neuer Gefaehrte, Bruecke zum Zwergenkoenig  
+**Alter:** 46  
+**Herkunft:** Westmark, Heer des Zwergenkoenigs  
 
-Mira ist eine junge Frau, die alle Merkmale einer klassischen Heldin besitzt: Mut, Begabung, mysterioese Herkunft, ein altes Zeichen auf der Schulter und eine auffallend gute Dramaturgie beim Betreten von Raeumen. Leider interessiert sich niemand fuer sie, weil Taron bereits oeffentlich als Auserwaehlter gefeiert wurde.
+Brokk Eisenhand ist ein Zwergenhauptmann, der frueher ein enger Vertrauter und vielleicht Freund des Zwergenkoenigs war. Er kannte den Koenig, bevor die Stimme kam: streng, hart, aber gerecht. In den letzten Jahren hat Brokk gesehen, wie aus diesem Koenig jemand wurde, der Befehle gab, als wuerde er sie von einem unsichtbaren Richter empfangen.
 
-**Persoenlichkeit:** fokussiert, stolz, gerecht, leicht gekraenkt, wenn Inkompetenz belohnt wird. Mira hat jahrelang trainiert, gelernt und gelitten, um bereit zu sein. Dann kommt Taron und stolpert in ihre Prophezeiung.
+Als Brokk Taron gefangen nimmt und merkt, dass auch dieser mit "Niemandem" spricht, sieht er zum ersten Mal eine Moeglichkeit, das Muster zu verstehen. Taron ist fuer ihn kein Held und kein Freund, sondern eine gefaehrliche Hoffnung: Vielleicht gibt es eine Stimme, die nicht kontrolliert. Vielleicht kann der alte Koenig zurueckkommen.
+
+**Persoenlichkeit:** pflichtbewusst, misstrauisch, direkt, schwer zu erschuettern. Brokk ist kein heimlicher Menschenfreund. Er verachtet viel an Lichtenhain, aber er verachtet noch mehr, was aus seinem Koenig geworden ist.
 
 **Staerken:**
 
-- Beherrscht eine seltene Form von Magie.
-- Kann kaempfen und strategisch denken.
-- Hat echte Kenntnis ueber die drohende Gefahr.
-- Nimmt Verantwortung ernst.
+- Kennt die Zwergenheere, ihre Befehlswege und die politische Bedeutung des Koenigs.
+- Kann kaempfen und in einer Schlacht Ordnung halten.
+- Weiss, wie der Zwergenkoenig frueher war, und erkennt deshalb die Veraenderung.
+- Hat genug Autoritaet, um spaeter den Befehl des erwachten Koenigs glaubhaft weiterzutragen.
 
 **Schwaechen:**
 
-- Ist schnell verbittert, wenn sie nicht ernst genommen wird.
-- Hat Schwierigkeiten, Hilfe von unqualifizierten Menschen anzunehmen.
-- Sieht Taron anfangs nur als Hindernis.
+- Traut Menschen kaum und Oswin zunaechst gar nicht.
+- Hat Schuldgefuehle, weil er dem veraenderten Koenig zu lange gefolgt ist.
+- Hofft auf Tarons Hilfe, ohne Taron wirklich zu verstehen, was fuer beide beleidigend ist.
 
-**Beziehung zu Taron:** Erst Rivalitaet, dann widerwillige Zusammenarbeit. Mira ist wuetend, dass Taron fuer etwas gefeiert wird, das sie verdient haette. Taron ist wuetend, dass sie nicht einfach seinen Platz einnimmt.
+**Beziehung zu Taron:** Brokk laesst Taron und Oswin entkommen und schliesst sich ihnen als neuer Gefaehrte an, weil er den alten Koenig zurueckhaben will. Taron findet das zunaechst furchtbar, weil er nicht einmal der Hoffnung der Menschen gewachsen ist und nun auch noch die Hoffnung eines Zwergs tragen soll.
+
+**Beziehung zu Oswin:** Oswin hat viele Zwerge getoetet und Brokk viele Menschen. Ihre Zusammenarbeit beginnt mit Hass, Disziplin und sehr genauen Erinnerungen daran, wer wen in welcher Schlacht beinahe umgebracht haette. Gerade dadurch kann Oswins Blick auf die Zwerge sich glaubwuerdig veraendern.
 
 ---
 

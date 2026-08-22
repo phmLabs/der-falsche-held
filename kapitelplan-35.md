@@ -34,13 +34,13 @@ Nebenbei erwaehnt Merlan alte Wesen, Eidtraeger und Schutzmaechte als vergessene
 
 Taron und Oswin erreichen den Turm von Abendriss und finden den ersten Splitter der Nachtkrone. Taron ueberlebt die Pruefung nicht durch Tapferkeit, sondern durch eine Mischung aus Panik, Oswins Koennen, Merlans Warnung und einem Hinweis des Erzaehlers; als der Erzaehler die Ausstrahlung des Splitters spuert, wird er zum ersten Mal wirklich still.
 
-## Kapitel 9: Die, die gemeint war
+## Kapitel 9: Die Spur der Zwerge
 
-Mira von Graufurt tritt auf und behauptet, Taron habe ihre Prophezeiung gestohlen. Sie ist ausgebildet, magisch begabt und deutlich besser vorbereitet, was alle ausser Taron sofort beeindruckend finden.
+Nach dem ersten Splitter finden Taron und Oswin Hinweise, dass Zwerge denselben Ort beobachtet haben. Oswin will sofort verfolgen, Taron will sofort nicht verfolgen, und der Erzaehler findet beide Plaene auf unterschiedliche Weise enttaeuschend.
 
-## Kapitel 10: Zwei Auserwaehlte zu viel
+## Kapitel 10: Brokk Eisenhand
 
-Mira zwingt die Gruppe, sie mitzunehmen, weil sie den zweiten Splitter finden kann. Taron ist begeistert, endlich eine echte Kandidatin fuer den Auftrag zu haben, aber niemand erlaubt ihm, deshalb nach Hause zu gehen.
+Brokk Eisenhand nimmt Taron und Oswin gefangen, weil Taron den Splitter traegt. Als Brokk merkt, dass Taron mit "Niemandem" spricht, erschrickt er: Auch der Zwergenkoenig begann so, bevor er sich veraenderte.
 
 ## Kapitel 11: Elva kommt nach
 
@@ -48,7 +48,7 @@ Elva folgt der Gruppe, weil sie Schuldgefuehle hat, Taron in die Prophezeiung ge
 
 ## Kapitel 12: Der zweite Splitter
 
-Der zweite Splitter liegt in einer verlassenen Kapelle an der Grenze zu Graumark. Dort zeigt sich, dass die Nachtkrone nicht nur bewahrt, sondern einschliesst: In den Splittern steckt kein einfacher Zauber, sondern der Rest einer alten Gefangenschaft.
+Brokk laesst Taron und Oswin entkommen und begleitet sie als neuer Gefaehrte, weil er den alten Zwergenkoenig zurueckhaben will und in Taron eine gefaehrliche Hoffnung sieht. Gemeinsam finden sie den zweiten Splitter in einer verlassenen Kapelle an der Grenze zu Graumark, wo sich zeigt, dass die Nachtkrone nicht nur bewahrt, sondern einschliesst.
 
 ## Kapitel 13: Graumark schweigt
 
@@ -56,11 +56,11 @@ Die Gruppe betritt das von den Zwergen unterworfene Graumark und erwartet rohe B
 
 ## Kapitel 14: Beinahe Krieg
 
-Taron, Oswin und Mira geraten fast in eine Konfrontation mit einem Zwergentrupp. Oswin will kaempfen, Mira will beweisen, dass sie die Lage kontrolliert, und Taron verhindert die Eskalation hauptsaechlich, weil er im falschen Moment stolpert; Oswin ist danach wuetend, weil Taron Merlans Rauchbombe wieder nicht benutzt hat.
+Taron, Oswin und Brokk geraten fast in eine Konfrontation mit einem Zwergentrupp. Oswin will kaempfen, Brokk will nicht als Verräter erkannt werden, und Taron verhindert die Eskalation hauptsaechlich, weil er im falschen Moment stolpert; Oswin ist danach wuetend, weil Taron Merlans Rauchbombe wieder nicht benutzt hat.
 
 ## Kapitel 15: Der Zwerg mit dem gebrochenen Eid
 
-Ein Zwergenhauptmann namens Brokk nimmt die Gruppe gefangen, laesst sie aber leben, weil Taron den Splitter traegt. Brokk erklaert, dass der Zwergenkoenig seit Jahren eine Stimme hoert, die ihn zu den Splittern fuehrt und ihm einredet, nur ihre Sammlung koenne das Volk retten.
+Brokk erzaehlt, dass der Zwergenkoenig seit Jahren eine Stimme hoert, die ihn zu den Splittern fuehrt und ihm einredet, nur ihre Sammlung koenne das Volk retten. Fuer Brokk ist das kein politisches Geheimnis mehr, sondern der Verlust eines Freundes, den er vielleicht zu spaet zu retten versucht.
 
 ## Kapitel 16: Was unter Waldkirch lag
 
@@ -82,9 +82,9 @@ Taron fragt den Erzaehler direkt, ob er weiss, was die dritte Macht ist. Der Erz
 
 In Ellingen, dem zweiten unterworfenen Nachbarland, findet die Gruppe den dritten Splitter. Die Stadt wirkt friedlich, doch alle Glocken wurden entfernt, weil ihr Klang alte Eidmagie weckt.
 
-## Kapitel 21: Mira und die falsche Krone
+## Kapitel 21: Das Schloss erinnert sich
 
-Mit den gesammelten Splittern sucht die Gruppe Merlan erneut auf, weil niemand mehr so tun kann, als sei die Prophezeiung nur ein frommer Vers. Mira versucht, die Splitter zu benutzen, um ihre eigene Auserwaehltheit zu beweisen, doch die Krone reagiert nicht wie ein Werkzeug, sondern wie ein Schloss, das sich an seine fehlenden Teile erinnert.
+Mit den gesammelten Splittern sucht die Gruppe Merlan erneut auf, weil niemand mehr so tun kann, als sei die Prophezeiung nur ein frommer Vers. Merlan, Brokk und der Erzaehler deuten die Splitter aus drei voellig verschiedenen Blickwinkeln, doch die Krone reagiert nicht wie ein Werkzeug, sondern wie ein Schloss, das sich an seine fehlenden Teile erinnert.
 
 ## Kapitel 22: Elvas Wahrheit
 
@@ -108,7 +108,7 @@ Die Zwerge erscheinen vor Waldkirch, und die Menschen deuten es als den zweiten 
 
 ## Kapitel 27: Die falsche Schlacht
 
-Die Schlacht beginnt, bevor Taron jemanden ueberzeugen kann. Oswin kaempft, aber diesmal nicht, um Zwerge zu toeten, sondern um Menschen und Zwerge lange genug auseinanderzuhalten, damit Taron und Mira zum Eidstein gelangen; als alles kippt, hebt Taron die Rauchbombe trotzdem noch auf, was Oswin beinahe den Verstand kostet.
+Die Schlacht beginnt, bevor Taron jemanden ueberzeugen kann. Oswin kaempft, aber diesmal nicht, um Zwerge zu toeten, sondern um Menschen und Zwerge lange genug auseinanderzuhalten, damit Taron und Brokk zum Eidstein gelangen; als alles kippt, hebt Taron die Rauchbombe trotzdem noch auf, was Oswin beinahe den Verstand kostet.
 
 ## Kapitel 28: Unter der Burg
 
@@ -118,13 +118,13 @@ Taron kehrt in den Dungeon zurueck, wo der Hunger von Waldkirch noch immer lauer
 
 Unter Waldkirch finden sie den Eidstein, gebrochen und von fremder Schutzdaemonenmagie verfaelscht. Der Zwergenkoenig bekommt die drei Splitter, und ihr Zusammenkommen loest die letzten Riegel des Gefaengnisses, das den anderen Erzaehler bisher nur halb frei liess.
 
-## Kapitel 30: Nicht die Richtige
+## Kapitel 30: Nicht fuer eine Seite
 
-Mira versucht, den Eid zu erneuern, scheitert aber, weil sie den Akt als Aufgabe der Auserwaehlten begreift. Taron erkennt, dass gerade sein falscher Status wichtig ist: Er gehoert keiner Machtlinie, keinem Orden und keinem alten Anspruch.
+Brokk versucht, den Eid im Namen der Zwerge zu erneuern, scheitert aber, weil er noch immer fuer eine Seite spricht. Taron erkennt, dass gerade sein falscher Status wichtig ist: Er gehoert keiner Machtlinie, keinem Orden und keinem alten Anspruch.
 
 ## Kapitel 31: Der Erzaehler tritt vor
 
-Als der andere Schutzdaemon Taron uebernehmen will, sperrt er die Gruppe mit seinen Dienern in der Kammer des Eidsteins ein; Taron liegt blutend am Boden, Oswin ist entwaffnet, Mira scheitert am falschen Anspruch, und alles sieht so endgueltig schlecht aus, dass selbst der Erzaehler fuer einen Moment keinen Kommentar findet. Dann uebernimmt der Erzaehler Taron mit einem gewaltigen Schutzzauber: Die Luft wird still, jedes gesprochene Wort klingt wie ein Urteil, und alle feindlichen Wesen im Raum fallen in einem einzigen, furchtbaren Augenblick tot zu Boden.
+Als der andere Schutzdaemon Taron uebernehmen will, sperrt er die Gruppe mit seinen Dienern in der Kammer des Eidsteins ein; Taron liegt blutend am Boden, Oswin ist entwaffnet, Brokk scheitert am alten Zwergeneid, und alles sieht so endgueltig schlecht aus, dass selbst der Erzaehler fuer einen Moment keinen Kommentar findet. Dann uebernimmt der Erzaehler Taron mit einem gewaltigen Schutzzauber: Die Luft wird still, jedes gesprochene Wort klingt wie ein Urteil, und alle feindlichen Wesen im Raum fallen in einem einzigen, furchtbaren Augenblick tot zu Boden.
 
 Taron ist nicht dankbar, sondern wuetend, weil genau diese Macht im Dungeon, in Graumark und an einem Dutzend anderer Stellen hilfreich gewesen waere. Der Erzaehler versucht, das mit trockenen Spruechen zu ueberspielen, aber seine Stimme ist bruechig, leise und fuer Sekunden wieder fast die Stimme aus Tarons Kindheit; Taron begreift, dass dieser Schutz nie kostenlos war und dass der Erzaehler sich mit jedem direkten Eingriff selbst verbraucht.
 
