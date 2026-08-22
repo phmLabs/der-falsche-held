@@ -164,9 +164,9 @@ Merlan erklaert ausserdem, dass fast alles, was heute "Magie" genannt wird, in W
 
 Merlan liest die Prophezeiung sachlich neu. Er erklaert, dass sie nicht beweist, dass Taron ein grosser Held oder Kaempfer ist, sondern dass Taron eine alte Bedingung erfuellt: Er ist jemand ohne Machtlinie, ohne Orden, ohne Anspruch und damit vielleicht genau die falsche Person, die eine gebrochene Ordnung nicht sofort wieder im Sinne einer Seite benutzt. Merlan hilft ihnen mit Deutung, Warnungen und einer Richtung, kommt aber nicht mit.
 
-Zum Abschied gibt Merlan Taron ein kleines, versiegeltes Glas mit Eidrauch. Er nennt es keine Magie, jedenfalls nicht im heutigen Sinn: Es ist eine empfindliche Mischung aus Stoffkunde, altem Weihrauch, Metallstaub und einer Formel, die Merlan nur halb versteht. Wenn man das Glas zerbricht, macht der Rauch fuer wenige Atemzuege verborgene Bindungen sichtbar und kann Wesen stoeren, die an einen falschen Eid gebunden sind. Es funktioniert nur einmal.
+Zum Abschied gibt Merlan Taron eine kleine Rauchbombe. Er nennt sie keine Magie, weil sie keine ist: nur eine unangenehm wirksame Mischung aus Stoffkunde, trockenem Pulver, schlechtem Geruch und der Erfahrung, dass Menschen mit traenenden Augen selten ordentlich zielen. Wenn man sie zerbricht, fuellt sie fuer kurze Zeit einen Raum oder eine Gasse mit dichtem, beissendem Rauch. Sie funktioniert nur einmal und ist zum Weglaufen gedacht, nicht zum Siegen.
 
-Taron hebt es danach immer wieder auf, weil der naechste Moment vielleicht noch schlimmer werden koennte. Oswin wird darueber zunehmend wuetend, vor allem in Kaempfen, in denen ein einmaliger Vorteil sehr angenehm gewesen waere. Am Ende denkt kaum noch jemand an das Glas; gerade dann rettet es ihnen den Arsch, weil es den falschen Eid sichtbar macht, bevor der letzte Schlag oder Befehl vollendet werden kann.
+Taron hebt sie danach immer wieder auf, weil der naechste Moment vielleicht noch schlimmer werden koennte. Oswin wird darueber zunehmend wuetend, vor allem in Kaempfen, in denen etwas dichter Rauch sehr angenehm gewesen waere. Am Ende denkt kaum noch jemand an die Rauchbombe; gerade dann rettet sie ihnen den Arsch, weil niemand im entscheidenden Augenblick sieht, wohin Taron laeuft.
 
 ## Spaetere Schluesselszene: Der Preis des Schutzes
 
