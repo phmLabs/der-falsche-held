@@ -32,7 +32,7 @@ Merlan warnt vor dem Turm von Abendriss als altem Siegel und bleibt in Hohensteg
 
 ## Kapitel 8: Der erste Splitter
 
-Taron und Oswin erreichen den Turm von Abendriss und finden den ersten Splitter der Nachtkrone. Taron ueberlebt die Pruefung nicht durch Tapferkeit, sondern durch eine Mischung aus Panik, Oswins Koennen, Merlans Warnung und einem Hinweis des Erzaehlers, der zu genau ist, um Zufall zu sein.
+Taron und Oswin erreichen den Turm von Abendriss und finden den ersten Splitter der Nachtkrone. Taron ueberlebt die Pruefung nicht durch Tapferkeit, sondern durch eine Mischung aus Panik, Oswins Koennen, Merlans Warnung und einem Hinweis des Erzaehlers; als der Erzaehler die Ausstrahlung des Splitters spuert, wird er zum ersten Mal wirklich still.
 
 ## Kapitel 9: Die, die gemeint war
 
@@ -48,7 +48,7 @@ Elva folgt der Gruppe, weil sie Schuldgefuehle hat, Taron in die Prophezeiung ge
 
 ## Kapitel 12: Der zweite Splitter
 
-Der zweite Splitter liegt in einer verlassenen Kapelle an der Grenze zu Graumark. Dort zeigt sich, dass die Nachtkrone nicht nur Macht speichert, sondern alte Schwuere sichtbar machen kann.
+Der zweite Splitter liegt in einer verlassenen Kapelle an der Grenze zu Graumark. Dort zeigt sich, dass die Nachtkrone nicht nur bewahrt, sondern einschliesst: In den Splittern steckt kein einfacher Zauber, sondern der Rest einer alten Gefangenschaft.
 
 ## Kapitel 13: Graumark schweigt
 
@@ -60,7 +60,7 @@ Taron, Oswin und Mira geraten fast in eine Konfrontation mit einem Zwergentrupp.
 
 ## Kapitel 15: Der Zwerg mit dem gebrochenen Eid
 
-Ein Zwergenhauptmann namens Brokk nimmt die Gruppe gefangen, laesst sie aber leben, weil Taron den Splitter traegt. Brokk erklaert, dass die Zwerge vor zehn Jahren unter Waldkirch ein Zeichen gefunden haben, das beweist, dass ein alter Eid gebrochen wurde.
+Ein Zwergenhauptmann namens Brokk nimmt die Gruppe gefangen, laesst sie aber leben, weil Taron den Splitter traegt. Brokk erklaert, dass der Zwergenkoenig seit Jahren eine Stimme hoert, die ihn zu den Splittern fuehrt und ihm einredet, nur ihre Sammlung koenne das Volk retten.
 
 ## Kapitel 16: Was unter Waldkirch lag
 
@@ -72,7 +72,7 @@ Oswin wird mit Zwergen konfrontiert, die nicht zu seinem Bild vom Feind passen. 
 
 ## Kapitel 18: Die dritte Hand
 
-Die Gruppe findet Hinweise, dass weder Menschen noch Zwerge den Eid allein gebrochen haben. Eine dritte Macht hat Prophezeiungen, Grenzberichte und Erinnerungen verdreht, damit beide Voelker einander fuer schuldig halten.
+Die Gruppe findet Hinweise, dass weder Menschen noch Zwerge den Eid allein gebrochen haben. Eine dritte Macht hat Prophezeiungen, Grenzberichte und Erinnerungen verdreht, und unser Erzaehler begreift langsam, dass der Zwergenkoenig von einem Wesen beraten wird, das seiner eigenen Art erschreckend nahesteht.
 
 ## Kapitel 19: Der Erzaehler schweigt falsch
 
@@ -84,7 +84,7 @@ In Ellingen, dem zweiten unterworfenen Nachbarland, findet die Gruppe den dritte
 
 ## Kapitel 21: Mira und die falsche Krone
 
-Mit den gesammelten Splittern sucht die Gruppe Merlan erneut auf, weil niemand mehr so tun kann, als sei die Prophezeiung nur ein frommer Vers. Mira versucht, die Splitter zu benutzen, um ihre eigene Auserwaehltheit zu beweisen, doch Merlans sachliche Deutung und die unvollstaendige Reaktion der Nachtkrone zeigen, dass Heldentum, Blutlinie und Bestimmung nicht dasselbe sind.
+Mit den gesammelten Splittern sucht die Gruppe Merlan erneut auf, weil niemand mehr so tun kann, als sei die Prophezeiung nur ein frommer Vers. Mira versucht, die Splitter zu benutzen, um ihre eigene Auserwaehltheit zu beweisen, doch die Krone reagiert nicht wie ein Werkzeug, sondern wie ein Schloss, das sich an seine fehlenden Teile erinnert.
 
 ## Kapitel 22: Elvas Wahrheit
 
@@ -96,7 +96,7 @@ Merlan erklaert aus den Splittern und den alten Randnotizen, dass die Stimme wah
 
 ## Kapitel 24: Der andere
 
-Die Gruppe findet Spuren eines zweiten Schutzdaemons, der nicht schuetzt, sondern kontrolliert. Dieser andere hat moeglicherweise den Eidstein beschaedigt und Menschen wie Zwerge gegeneinander gelenkt.
+Die Gruppe erkennt, dass der Zwergenkoenig einen eigenen Erzaehler hat: einen Schutzdaemon, der nicht schuetzt, sondern kontrolliert. Dieser andere wurde einst in die Splitter gebannt, spricht aber durch Risse seiner Gefangenschaft und hat die Zwerge wie die Menschen auf Wege gelenkt, die seine Befreiung vorbereiten.
 
 ## Kapitel 25: Rueckkehr nach Waldkirch
 
@@ -116,7 +116,7 @@ Taron kehrt in den Dungeon zurueck, wo der Hunger von Waldkirch noch immer lauer
 
 ## Kapitel 29: Der Eidstein
 
-Unter Waldkirch finden sie den Eidstein, gebrochen und von fremder Schutzdaemonenmagie verfaelscht. Die Splitter der Nachtkrone koennen ihn oeffnen, aber nicht heilen, solange Menschen und Zwerge einander noch als alleinige Schuldige sehen.
+Unter Waldkirch finden sie den Eidstein, gebrochen und von fremder Schutzdaemonenmagie verfaelscht. Die Splitter der Nachtkrone koennen ihn oeffnen, aber ihr Zusammenkommen loest zugleich die letzten Riegel des Gefaengnisses, das den anderen Erzaehler im Zwergenkoenig bisher nur halb frei liess.
 
 ## Kapitel 30: Nicht die Richtige
 
@@ -130,7 +130,7 @@ Taron ist nicht dankbar, sondern wuetend, weil genau diese Macht im Dungeon, in 
 
 ## Kapitel 32: Was wirklich geschah
 
-Der Eidstein zeigt Menschen und Zwergen die Wahrheit ueber den Krieg vor zehn Jahren. Die Zwerge flohen damals nicht, sondern fanden den beschaedigten Eidstein, und beide Seiten wurden seitdem von einer dritten Macht in Richtung Krieg geschoben.
+Der Eidstein zeigt Menschen und Zwergen die Wahrheit ueber den Krieg vor zehn Jahren. Die Zwerge flohen damals nicht, sondern fanden Spuren des beschaedigten Gefaengnisses; ihr Koenig wurde seitdem von der eingeschlossenen Stimme gefuehrt, und beide Seiten wurden Schritt fuer Schritt in Richtung Krieg geschoben.
 
 ## Kapitel 33: Stille auf dem Schlachtfeld
 
@@ -142,4 +142,4 @@ Taron, Mira, Brokk, Albrecht und Elva sprechen keinen grossen Friedenszauber, so
 
 ## Kapitel 35: Natuerlich war das geplant
 
-Waldkirch steht noch, aber nichts ist wieder wie vorher: Menschen und Zwerge muessen miteinander verhandeln, Oswin muss mit alten Feinden reisen koennen, und Taron kann nicht mehr behaupten, er habe mit alldem nichts zu tun. Der Erzaehler behauptet, alles sei geplant gewesen, waehrend die letzte Spur des anderen Schutzdaemons zeigt, dass Buch zwei bereits unterwegs ist.
+Waldkirch steht noch, aber nichts ist wieder wie vorher: Menschen und Zwerge muessen miteinander verhandeln, Oswin muss mit alten Feinden reisen koennen, und Taron kann nicht mehr behaupten, er habe mit alldem nichts zu tun. Der Erzaehler behauptet, alles sei geplant gewesen, waehrend der befreite boese Erzaehler aus dem Zwergenkoenig verschwindet und als eigentliche Gefahr fuer Band zwei in die Welt tritt.

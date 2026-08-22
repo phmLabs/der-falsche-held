@@ -168,6 +168,18 @@ Zum Abschied gibt Merlan Taron eine kleine Rauchbombe. Er nennt sie keine Magie,
 
 Oswin erkennt sofort, was Merlan ihnen da gibt. Er hat solche Rauchmittel in den Zwergenkriegen gesehen, selten und meist in Haenden von Leuten, die vorher bezahlt wurden und nachher nicht mehr auffindbar waren. Seiner Meinung nach haben solche Dinger mehr als einmal ueber Sieg oder Niederlage entschieden. Taron hebt sie danach trotzdem immer wieder auf, weil der naechste Moment vielleicht noch schlimmer werden koennte. Oswin wird darueber zunehmend wuetend, vor allem in Kaempfen, in denen etwas dichter Rauch sehr angenehm gewesen waere. Am Ende denkt kaum noch jemand an die Rauchbombe; gerade dann rettet sie ihnen den Arsch, weil niemand im entscheidenden Augenblick sieht, wohin Taron laeuft.
 
+## Neue Hauptachse: Die Splitter als Gefaengnis
+
+Die Splitter der Nachtkrone sind nicht einfach Artefakte, die Macht sammeln oder den Frieden wiederherstellen. Sie sind Bruchstuecke eines alten Gefaengnisses, in dem ein boeser Schutzdaemon eingeschlossen wurde. Wer sie sammelt, bringt nicht nur die Loesung naeher, sondern auch den Gefangenen.
+
+Der Zwergenkoenig hoert ebenfalls eine Stimme. Fuer die Zwerge ist das ein heiliges Zeichen, aehnlich wie Tarons Erzaehler fuer die Menschen irgendwann als Zeichen gedeutet wird. Der Unterschied: Die Stimme im Zwergenkoenig schuetzt nicht. Sie lenkt, verhaertet, verdreht und macht aus alter Wut eine scheinbar klare Wahrheit.
+
+Als Taron den ersten Splitter findet, bemerkt unser Erzaehler dessen Ausstrahlung. Er wird fuer einen Moment ungewoehnlich still und erkennt, dass in den Splittern etwas eingesperrt ist, das seiner eigenen Art aehnelt, aber verdorben ist. Er sagt Taron nicht alles, weil er selbst noch nicht weiss, ob er sich irrt, und weil er Angst davor hat, dass Taron dann sofort alles hinschmeisst.
+
+Damit wird auch klarer, was die Zwerge vor zehn Jahren unter Waldkirch gesucht haben: Sie suchten nicht Gold oder Land, sondern Spuren dieser alten Splitter und des gebrochenen Gefaengnisses. Der boese Erzaehler im Zwergenkoenig hat ihre Suche gelenkt und sie glauben lassen, sie muessten die Splitter sichern, um ihr Volk zu retten. In Wahrheit bereiten sie seine Befreiung vor.
+
+Wenn die Splitter spaeter zusammengebracht werden, merken Taron und die anderen zu spaet, was sie angerichtet haben. Der Daemon wird frei, der Zwergenkoenig bleibt gebrochen zurueck, und die unmittelbare Schlacht kann zwar beendet werden, aber die eigentliche Macht verschwindet in die Welt. Das gibt Band 1 ein abgeschlossenes Ende im Krieg, aber oeffnet Band 2 mit einer deutlich groesseren Gefahr.
+
 ## Spaetere Schluesselszene: Der Preis des Schutzes
 
 In der Kammer des Eidsteins geraet Taron spaeter in eine Lage, aus der es keinen normalen Ausweg mehr gibt. Der andere Schutzdaemon hat ihn fast, die Gefaehrten koennen nicht mehr helfen, und die feindlichen Wesen im Raum ruecken so sicher naeher, als haette die Geschichte bereits entschieden, wer hier stirbt.

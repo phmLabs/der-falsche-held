@@ -253,13 +253,13 @@ Koenig Albrecht herrscht ueber ein Reich, das gerne groesser, reicher und wenige
 
 ---
 
-## Die Bedrohung: Der Schattenkoenig
+## Die Bedrohung: Der andere Erzaehler
 
-**Rolle:** Uralte Gefahr, mythischer Gegenspieler  
-**Status:** Angeblich vor Jahrhunderten besiegt  
+**Rolle:** Boeser Schutzdaemon, Stimme im Zwergenkoenig, Gegenspieler des Erzaehlers  
+**Status:** In den Splittern der Nachtkrone eingeschlossen, aber durch Risse seiner Gefangenschaft handlungsfaehig  
 
-Der Schattenkoenig ist der Name fuer eine alte Macht, die einst versuchte, das Reich in eine ewige, stille Nacht zu ziehen. Ob er ein Mensch, ein Magier, ein Daemon oder eine politische Uebertreibung war, ist umstritten. Sicher ist nur: Seine Zeichen kehren zurueck.
+Der andere Erzaehler ist ein Schutzdaemon, der seine Aufgabe verdreht hat. Er schuetzt nicht, sondern kontrolliert. Seit Jahren sitzt er als Stimme im Kopf des Zwergenkoenigs und deutet jedes Zeichen so, dass die Zwerge glauben, sie muessten die Splitter sammeln, um ihr Volk zu retten.
 
-**Wirkung auf die Geschichte:** Die Angst vor seiner Rueckkehr sorgt dafuer, dass das Volk bereit ist, beinahe jeden als Retter zu akzeptieren. Sogar Taron. Besonders Taron, was aus Tarons Sicht fuer den geistigen Zustand des Reiches spricht.
+**Wirkung auf die Geschichte:** Die Splitter der Nachtkrone sind nicht nur Schluessel oder Beweise, sondern Bruchstuecke seines Gefaengnisses. Menschen und Zwerge halten sie fuer Teile einer Loesung, waehrend ihre Sammlung ihn Schritt fuer Schritt naeher an die Freiheit bringt.
 
-**Moeglicher Twist:** Der Schattenkoenig ist nicht die eigentliche Gefahr. Oder er ist zurueck, aber laengst nicht so schlimm wie die Institutionen, die in seinem Namen Macht sammeln.
+**Twist:** Unser Erzaehler merkt erst beim ersten Splitter, welche Ausstrahlung in den Bruchstuecken steckt. Am Ende, wenn die Splitter zusammenkommen, wird der andere Erzaehler frei. Der Krieg von Band eins kann beendet werden, aber die groessere Gefahr verschwindet in Band zwei.
