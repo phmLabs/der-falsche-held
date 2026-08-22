@@ -1,20 +1,24 @@
+# Kapitel 5: Ein Ritter und ein Vorschlag
+
 Sir Oswin von Hohenklamm sah am Morgen weniger aus wie ein Mann, der eine Reise begann, und mehr wie ein Mann, der mit seinem eigenen Kopf in Verhandlungen stand.
 
-Er saß auf seinem Pferd, das den unpassend stolzen Namen Sternfall trug, und hielt sich aufrecht. Die Sonne lag hell über den Mauern der Freien Burg Hohensteg. Händler beluden Karren. Ein Hund bellte jemanden an, der es vermutlich verdiente. Der Wirt vom Blauen Eber stand in der Tür und sah ihnen nach, als warte er darauf, dass einer von ihnen noch etwas bezahlen müsse.
+Er saß auf seinem Pferd, das den unpassend stolzen Namen Sternfall trug, und hielt sich aufrecht, obwohl sein Gesicht eine andere Abstimmung verloren hatte. Die Sonne lag hell über den Mauern der Freien Burg Hohensteg. Händler beluden Karren. Ein Hund bellte jemanden an, der es vermutlich verdiente. Der Wirt vom Blauen Eber stand in der Tür und sah ihnen nach, als warte er darauf, dass einer von ihnen noch etwas bezahlen müsse.
 
 „Wenn Ihr Euch übergeben müsst“, sagte Taron, „macht es bitte nicht in meine Richtung.“
 
 Oswin öffnete ein Auge. „Junge, ich bin Ritter.“
 
-Das beantwortete die Bitte nicht, aber Oswin fügte hinzu, ein Ritter übergebe sich nicht. Und falls doch, dann mit Haltung. Der Erzähler schwieg dazu, was Taron für beinahe verdächtig hielt.
+Das beantwortete die Bitte nicht, aber Oswin fügte hinzu, ein Ritter übergebe sich nicht. Zumindest nicht öffentlich. Und falls doch, dann mit Haltung. Der Erzähler schwieg dazu, was Taron für beinahe verdächtig hielt.
 
 „Ich genieße den Augenblick“, sagte die Stimme schließlich. „Jemand anderes ist für die Unwürde zuständig.“
 
 Oswin nahm Tarons Gespräche mit der leeren Luft überraschend gelassen. Er nannte die Stimme „Niemand“, bot an, sie grüßen zu lassen, und erklärte auf Nachfrage, er selbst habe keine Stimme im Kopf. Nur seine eigene, sagte er, und die sei schon oft zu viel.
 
-Sie ritten durch das Tor von Hohensteg und auf die westliche Straße hinaus. Für eine Weile sagte niemand etwas. 
+Sie ritten durch das Tor von Hohensteg und auf die westliche Straße hinaus. Für eine Weile sagte niemand etwas. Das lag zum Teil daran, dass der Morgen kühl und klar war, zum Teil daran, dass Oswin jeden Hufschlag offenbar persönlich nahm.
 
 Nüchtern sah Oswin anders aus. Nicht weniger gutaussehend, was Taron ungerecht fand, aber schärfer. Die Müdigkeit blieb, doch darunter lag etwas Geübtes. Sein Rücken war gerade. Seine Hände lagen ruhig an den Zügeln. Das Schwert an seiner Seite war nicht Schmuck, sondern Verlängerung eines Körpers, der wusste, wofür es gemacht war.
+
+Leider wusste Oswin das ebenfalls.
 
 Noch lästiger war, dass auch andere Menschen es wussten. Schon beim Aufbruch hatte die Tochter des Stallmeisters Oswin ein Tuch gereicht, das er nicht gebraucht hatte, und die Bäckerin von gegenüber hatte ihm ein zweites Frühstück angeboten, obwohl er so aussah, als würde ihn schon das erste persönlich verfolgen. Oswin hatte beides mit der müden Höflichkeit eines Mannes angenommen, dem Bewunderung vertrauter war als Vernunft.
 
@@ -30,7 +34,7 @@ Taron hielt Kummer an.
 
 Oswin stieg ab, kniete am Straßenrand nieder und strich mit zwei Fingern über den Boden.
 
-„Vier Reiter“, sagte er. „Gestern Abend.“
+„Vier Reiter“, sagte er. „Gestern Abend. Vielleicht kurz vor Regen.“
 
 Taron sah Erde.
 
@@ -52,6 +56,12 @@ Nicht dramatisch. Nicht wütend. Nur müde.
 
 „Bitte nicht“, sagte er.
 
+Der Bogenschütze nannte ihn alt.
+
+Oswin war vierunddreißig.
+
+Es war erstaunlich, wie sehr ein einziges falsches Wort die Luft verändern konnte.
+
 Danach geschah vieles sehr schnell. Oswin zog sein Schwert nicht sofort. Er trat zuerst einen Stein hoch, fing ihn mit der linken Hand und warf ihn dem Bogenschützen gegen die Stirn. Der Pfeil ging in die Äste. Dann war Oswins Schwert draußen, und der erste Mann mit Messer hatte plötzlich sehr viel weniger Messer und sehr viel mehr Angst.
 
 Taron sah, wie Oswin sich bewegte. Nicht elegant. Nein, das war falsch. Sehr präzise. Nicht, weil er gut dabei aussah, obwohl er das auf ärgerliche Weise tat, sondern weil kein Teil der Bewegung überflüssig war. Ein Schritt. Eine Drehung. Der Griff eines Handgelenks. Ein Knauf gegen einen Kiefer. Die flache Seite der Klinge an einen Hals.
@@ -64,11 +74,15 @@ Am Ende lagen zwei Männer im Staub, einer kniete mit den Händen über dem Kopf
 
 „Geht“, sagte er.
 
-Sie gingen. Schnell.
+Sie gingen.
 
-Taron atmete aus. Für einen Moment war da keine Kneipe, kein Bier, kein Kater. Nur ein Ritter. Ein echter.
+Schnell.
 
-Oswin erklärte, die Männer seien hungrig, schlecht ausgebildet und dumm gewesen. Das sei keine Seltenheit und habe nicht den Tod verdient Dann stieg er wieder auf und sagte beiläufig, er zähle nicht jeden armseligen Straßenräuber.
+Taron atmete aus. Für einen Moment war da keine Kneipe, kein Bier, kein Kater. Nur ein Ritter.
+
+Ein echter.
+
+Oswin erklärte, die Männer seien hungrig, schlecht ausgebildet und dumm gewesen. Das sei keine Seltenheit, die man ausrotten müsse. Dann stieg er wieder auf und sagte beiläufig, er zähle nicht jeden armseligen Straßenräuber.
 
 „Du zählst?“, fragte Taron.
 
@@ -87,6 +101,10 @@ Oswin sah nach Westen.
 Taron sagte nichts.
 
 „Zweihundertneunundvierzig, wenn man Hauptmann Drogan mitzählt“, sagte Oswin. „Aber er fiel von einer Mauer, bevor ich richtig fertig war. Ich lasse ihn ungern gelten.“
+
+Das war gewissenhaft.
+
+Auf eine Weise, die Taron nicht länger verfolgen wollte.
 
 „Zwergenkriege?“, fragte er trotzdem.
 
@@ -114,13 +132,15 @@ Das war ein harter Themenwechsel.
 
 Oswin nannte es Strategie.
 
-Zauberer, erklärte er, könne man immer gebrauchen. Wenn sie gut waren, retteten sie einem das Leben. Wenn sie mittelmäßig waren, lasen sie alte Schrift. Wenn sie schlecht waren, konnten sie meistens noch Bohnen warm oder Bier kalt zaubern.
+Zauberer, erklärte er, könne man immer gebrauchen. Wobei er, wie er nach Tarons Blick hinzufügte, nicht zwingend einen Mann meinte, der Feuer aus den Händen warf und dabei Namen alter Könige rief. Manchmal reichte jemand, der alte Schrift lesen, schlechte Zeichen erkennen oder einem erklären konnte, warum eine Prophezeiung weniger eindeutig war, als Priester es gern behaupteten.
+
+Wenn sie gut waren, retteten sie einem das Leben. Wenn sie mittelmäßig waren, lasen sie alte Schrift. Wenn sie schlecht waren, konnten sie meistens noch Bohnen warm oder Bier kalt zaubern.
 
 „Das ist deine magische Rangordnung?“, fragte Taron.
 
 „Sie hat sich bewährt.“
 
-Taron wollte keinen Zauberer. Er wollte auch keinen Turm, keinen Splitter, keine Prophezeiung und keinen Ritter mit einer sehr beunruhigenden Liste. 
+Taron wollte keinen Zauberer. Er wollte auch keinen Turm, keinen Splitter, keine Prophezeiung und keinen Ritter mit einer sehr beunruhigenden Liste. Oswin fand, Taron sei dennoch reich an allem, was unfair genug formuliert war, dass Taron kurz keine Antwort fand.
 
 Der Erzähler hielt den Zauberer ebenfalls für eine gute Idee.
 
@@ -212,6 +232,10 @@ Der Wirt sah ihn an. „Du hast nicht gefragt.“
 
 „Für dich vielleicht. Für uns ist es Merlan.“
 
+„Er ist also kein Zauberer?“
+
+Der Wirt verzog das Gesicht, als habe Taron ihn gebeten, eine sehr alte Rechnung gerecht aufzuteilen. „Kommt darauf an, wen du fragst. Wenn du Merlan fragst: nein. Wenn du jemanden fragst, dessen Scheune er mit blauem Rauch von Mäusen befreit hat: ja. Wenn du mich fragst: Er weiß Dinge, die andere nicht wissen, und das reicht für die meisten Leute.“
+
 „Merlan.“
 
 „Merlan Graufinger.“
@@ -250,7 +274,7 @@ Oswin nahm seinen Helm vom Tresen, wo er ihn offenbar abgelegt hatte, ohne dass 
 
 „Siehst du?“, sagte der Ritter. „Schon haben wir einen Zauberer.“
 
-„Wir haben eine Wegbeschreibung zu einem Haus, das möglicherweise nicht mehr existiert.“
+„Wir haben eine Wegbeschreibung zu einem Haus, das möglicherweise nicht mehr existiert, und zu einem Mann, der vermutlich beleidigt ist, wenn man ihn Zauberer nennt.“
 
 „Das ist bei Zauberern beinahe dasselbe.“
 
