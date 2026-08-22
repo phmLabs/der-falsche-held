@@ -122,6 +122,14 @@ Taron dachte an die Kriegshörner aus seiner Erinnerung.
 
 Oswin zählte seine Toten, sagte er, weil er sonst vergessen würde, dass es einzelne gewesen waren. Nicht nur eine Wand. Nicht nur Eisenmasken. Jeder eine Entscheidung. Jeder eine Last. Manche mussten sterben, daran zweifelte er nicht. Aber wenn ein Mann anfing, seine Toten nicht mehr zu zählen, sollte ihm niemand mehr ein Schwert geben.
 
+Beim ersten hatte er noch geglaubt, danach würde jemand etwas sagen. Ein Hauptmann vielleicht. Ein Priester. Irgendein älterer Ritter mit einer Stimme, die wusste, wie man einem neunzehnjährigen Jungen erklärte, dass er gerade etwas Notwendiges getan hatte und trotzdem nie wieder ganz derselbe sein würde. Aber niemand sagte etwas. Die Schlacht fraß den Augenblick einfach weiter, und Oswin blieb nur der Zwerg im Schlamm, dessen Hand noch an einem zerrissenen Lederriemen hing.
+
+Also merkte Oswin ihn sich.
+
+Nicht den Namen. Den hatte er nie erfahren. Nur die Kerbe am Helm, die dunkle Narbe über dem linken Auge und den Umstand, dass der Zwerg im Sterben nicht nach einem Gott gerufen hatte, sondern nach jemandem, der vermutlich zu Hause auf ihn wartete.
+
+Später kamen mehr dazu. Zu viele. Oswin begann zu zählen, weil keine Beichte lang genug war und kein Wein tief genug. Die Zahl war keine Prahlerei. Sie war eine Strafe, die er nüchtern besser aussprechen konnte als betrunken.
+
 Der Erzähler schwieg.
 
 Taron auch.

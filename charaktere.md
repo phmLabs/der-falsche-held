@@ -165,7 +165,7 @@ Sir Oswin ist ein tapferer, starker und auffallend gutaussehender Ritter, der le
 - Kennt Strassen, Burgen und militaerische Gefahren.
 - Bleibt ruhig, wenn andere panisch werden.
 - Hat betrunken offenbar einen besseren moralischen Kompass als viele Menschen nuechtern.
-- Zaehlt die Zwerge, die er getoetet hat, nicht aus Stolz, sondern weil er sie nicht zu einer namenlosen Masse machen will.
+- Zaehlt die Zwerge, die er getoetet hat, nicht aus Stolz, sondern als Suehne: damit sie Einzelne bleiben und damit er sich selbst nicht erlaubt, seine Toten in einer heldischen Masse verschwinden zu lassen.
 
 **Schwaechen:**
 
@@ -234,7 +234,7 @@ Als Brokk Taron gefangen nimmt und merkt, dass auch dieser mit "Niemandem" spric
 
 **Beziehung zu Taron:** Brokk laesst Taron und Oswin entkommen und schliesst sich ihnen als neuer Gefaehrte an, weil er den alten Koenig zurueckhaben will. Taron findet das zunaechst furchtbar, weil er nicht einmal der Hoffnung der Menschen gewachsen ist und nun auch noch die Hoffnung eines Zwergs tragen soll.
 
-**Beziehung zu Oswin:** Oswin hat viele Zwerge getoetet und Brokk viele Menschen. Ihre Zusammenarbeit beginnt mit Hass, Disziplin und sehr genauen Erinnerungen daran, wer wen in welcher Schlacht beinahe umgebracht haette. Als sie merken, dass ihre Zahlen erschreckend nah beieinander liegen, macht sie das zuerst misstrauischer. Spaeter wird genau daraus ein bruechiger Respekt: Beide wissen, was der andere kann, und beide wissen, was es gekostet hat. Im Finale zaehlen sie noch immer, aber anders: nicht nur, wen sie getoetet haben, sondern wie viele Menschen und Zwerge sie durch harte, manchmal toedliche Entscheidungen gerettet haben.
+**Beziehung zu Oswin:** Oswin hat viele Zwerge getoetet und Brokk viele Menschen. Ihre Zusammenarbeit beginnt mit Hass, Disziplin und sehr genauen Erinnerungen daran, wer wen in welcher Schlacht beinahe umgebracht haette. Als sie merken, dass ihre Zahlen erschreckend nah beieinander liegen, macht sie das zuerst misstrauischer. Spaeter wird genau daraus ein bruechiger Respekt: Beide wissen, was der andere kann, und beide wissen, was es gekostet hat. Fuer Oswin ist seine Zahl Suehne, keine Prahlerei. Im Finale zaehlen sie noch immer, aber anders: nicht nur, wen sie getoetet haben, sondern wie viele Menschen und Zwerge sie durch harte, manchmal toedliche Entscheidungen gerettet haben.
 
 ---
 

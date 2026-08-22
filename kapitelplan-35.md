@@ -68,7 +68,7 @@ Brokk beschreibt, was die Zwerge vor zehn Jahren unter Waldkirch suchten: Spuren
 
 ## Kapitel 17: Oswins Zahl
 
-Oswin und Brokk geraten aneinander, weil beide fast gleich viele der jeweils anderen Seite getoetet haben und beide diese Toten zaehlen. Anfangs macht diese Aehnlichkeit sie misstrauisch, doch langsam erkennen sie, dass sie nicht aus Stolz zaehlen, sondern weil sie verhindern wollen, dass die Toten zu einer namenlosen Masse werden.
+Oswin und Brokk geraten aneinander, weil beide fast gleich viele der jeweils anderen Seite getoetet haben und beide diese Toten zaehlen. Eine Rueckblende zeigt Oswins ersten getoeteten Zwerg und macht klar, dass seine Zahl keine Prahlerei ist, sondern Suehne. Anfangs macht die Aehnlichkeit ihrer Zahlen sie misstrauisch, doch langsam erkennen sie, dass beide verhindern wollen, dass die Toten zu einer namenlosen Masse werden.
 
 ## Kapitel 18: Die dritte Hand
 

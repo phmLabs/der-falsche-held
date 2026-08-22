@@ -150,7 +150,7 @@ An der Bar trifft Taron Sir Oswin von Hohenklamm: stark, gutaussehend, ein echte
 
 Oswin wird genauer vorgestellt: Er ist ein Weiberheld-Typ, gutaussehend, stark und im Kern ein echter Ritter, aber vom Alkohol und den Zwergenkriegen gezeichnet. Er hat keine Stimme im Kopf und findet Tarons Gespraeche mit "Niemandem" zwar seltsam, aber nicht seltsamer als vieles andere.
 
-Auf der Strasse zeigt Oswin, dass er wirklich gut im Rittern ist: Er liest Spuren, erkennt Gefahr und erledigt Wegelagerer schnell und kontrolliert, ohne sie zu toeten. Danach erfahren wir, dass er in den Zwergenkriegen gekaempft hat und mitzählt, wie viele Boese er getoetet hat. Es sind viele. Er zaehlt, weil er nicht vergessen will, dass es einzelne waren.
+Auf der Strasse zeigt Oswin, dass er wirklich gut im Rittern ist: Er liest Spuren, erkennt Gefahr und erledigt Wegelagerer schnell und kontrolliert, ohne sie zu toeten. Danach erfahren wir, dass er in den Zwergenkriegen gekaempft hat und mitzählt, wie viele Boese er getoetet hat. Es sind viele. Eine kurze Rueckblende zeigt seinen ersten getoeteten Zwerg und den Moment, in dem Oswin begriff, dass niemand ihm die Last abnehmen wuerde. Er zaehlt als Suehne, nicht aus Stolz, weil er nicht vergessen will, dass es einzelne waren.
 
 Oswin schlaegt vor, einen Zauberer zu suchen. Seiner Meinung nach kann man Zauberer immer brauchen, selbst wenn sie nur Bohnen warm oder Bier kalt zaubern koennen. Taron hat keine Lust, aber der Erzaehler haelt es fuer eine gute Idee und macht "la la la"-Geraeusche, bis Taron nachgibt.
 
@@ -184,7 +184,7 @@ Brokk Eisenhand wird dabei zum entscheidenden neuen Gefaehrten. Taron und Oswin 
 
 Brokk macht klar, dass mit dem Koenig auch das Zwergenreich selbst veraendert wurde. Frueher wurde in den Hallen gesungen, gegessen, gestritten und gefeiert; selbst ein harter Koenig wusste, wann ein Volk trinken, trauern oder lachen musste. Seit die Stimme kam, wurden Lieder zu Laerm, Feste zu Verschwendung und Zweifel zu Ungehorsam. Fuer Brokk geht es deshalb nicht nur um Politik, sondern um die Rueckkehr eines ganzen verlorenen Lebens.
 
-Zwischen Oswin und Brokk ist am Anfang fast alles Spannung. Oswin zaehlt die Zwerge, die er getoetet hat; Brokk zaehlt die Menschen. Als sie feststellen, dass ihre Zahlen aehnlich hoch sind, ist das kein Moment der Versoehnung, sondern ein sehr stiller Grund, die Hand naeher an der Waffe zu lassen. Erst spaeter merken sie, dass sie aus demselben Grund zaehlen: damit aus Feinden wieder Einzelne werden.
+Zwischen Oswin und Brokk ist am Anfang fast alles Spannung. Oswin zaehlt die Zwerge, die er getoetet hat; Brokk zaehlt die Menschen. Als sie feststellen, dass ihre Zahlen aehnlich hoch sind, ist das kein Moment der Versoehnung, sondern ein sehr stiller Grund, die Hand naeher an der Waffe zu lassen. Erst spaeter merken sie, dass ihre Zahlen aus verwandtem Schmerz kommen: bei Oswin als Suehne, bei Brokk als Weigerung, aus Feinden nur noch Masse zu machen.
 
 Im Kampf ergaenzen sie sich besser, als beide zugeben wollen. Oswin liest offene Bewegung, Geschwindigkeit und Luecken; Brokk liest Stand, Druck und Linien. Zusammen werden sie gefaehrlich, weil sie genau die Art Krieg kennen, die der andere ueberlebt hat.
 
