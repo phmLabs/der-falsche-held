@@ -160,6 +160,8 @@ Taron behauptet, in einem komischen Kaff wie Hohensteg werde man sowieso keinen 
 
 Taron und Oswin suchen Merlan in der Erwartung, einen Zauberer zu finden, der Feuer, Licht oder wenigstens warme Bohnen beisteuert. Stattdessen finden sie einen Prophezeiungsgelehrten, der an Weissagungen glaubt, aber ihre Auslegung sehr viel ernster nimmt als die Priester von Waldkirch.
 
+Merlan erklaert ausserdem, dass fast alles, was heute "Magie" genannt wird, in Wahrheit Stoffkunde ist: Kraeuter, Salze, Metalle, Rauch, Hitze und Reaktionen, die Leute erschrecken, weil sie sie nicht verstehen. Das macht echte Magie fuer ihn nicht unwahrscheinlicher, sondern seltener und ernster. Er spricht beiläufig von alten Wesen, Eidtraegern und Schutzmaechten, als gehoerten sie zu einer verantwortungsvoll gelesenen Theologie, ohne direkt auf den Erzaehler zu zeigen.
+
 Merlan liest die Prophezeiung sachlich neu. Er erklaert, dass sie nicht beweist, dass Taron ein grosser Held oder Kaempfer ist, sondern dass Taron eine alte Bedingung erfuellt: Er ist jemand ohne Machtlinie, ohne Orden, ohne Anspruch und damit vielleicht genau die falsche Person, die eine gebrochene Ordnung nicht sofort wieder im Sinne einer Seite benutzt. Merlan hilft ihnen mit Deutung, Warnungen und einer Richtung, kommt aber nicht mit.
 
 ## Spaetere Schluesselszene: Der Preis des Schutzes

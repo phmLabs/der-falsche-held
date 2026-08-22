@@ -22,11 +22,11 @@ Oswin zeigt auf der Strasse, dass er trotz Alkohol und Kater ein echter Ritter i
 
 ## Kapitel 6: Merlan Graufingers Haus
 
-Taron und Oswin finden Merlans Haus am alten Brunnen, aus dessen Esse eine Farbe steigt, die laut Wirt nichts Gutes bedeutet. Merlan entpuppt sich nicht als klassischer Zauberer, sondern als Prophezeiungsgelehrter, der an Weissagungen glaubt und gerade deshalb sehr ungehalten ist, wenn Menschen sie bequem falsch lesen.
+Taron und Oswin finden Merlans Haus am alten Brunnen, aus dessen Esse eine Farbe steigt, die laut Wirt nichts Gutes bedeutet. Merlan entpuppt sich nicht als klassischer Zauberer, sondern als Prophezeiungsgelehrter und Stoffkundiger: Fuer ihn ist die meiste heutige Magie Chemie, was ausdruecklich nicht bedeutet, dass es keine echte Magie gibt.
 
 ## Kapitel 7: Bohnen warm, Bier kalt
 
-Merlan liest die Waldkircher Prophezeiung neu und erklaert, dass sie Taron nicht als grossen Kaempfer ausweist, sondern als jemanden ohne Machtlinie, Orden oder alten Anspruch. Er gibt ihnen eine sachlichere Deutung, warnt vor dem Turm von Abendriss als altem Siegel und bleibt in Hohensteg zurueck, weil er Reisen fuer eine ueberschaetzte Methode des Denkens haelt.
+Merlan liest die Waldkircher Prophezeiung neu und erklaert, dass sie Taron nicht als grossen Kaempfer ausweist, sondern als jemanden ohne Machtlinie, Orden oder alten Anspruch. Nebenbei erwaehnt er alte Wesen, Eidtraeger und Schutzmaechte als vergessenen Teil der Ueberlieferung, warnt vor dem Turm von Abendriss als altem Siegel und bleibt in Hohensteg zurueck, weil er Reisen fuer eine ueberschaetzte Methode des Denkens haelt.
 
 ## Kapitel 8: Der erste Splitter
 
