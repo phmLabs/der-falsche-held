@@ -108,7 +108,7 @@ Die Zwerge erscheinen vor Waldkirch, und die Menschen deuten es als den zweiten 
 
 ## Kapitel 27: Die falsche Schlacht
 
-Die Schlacht beginnt, bevor Taron jemanden ueberzeugen kann. Oswin und Brokk kaempfen erst nebeneinander, weil sie muessen, und dann erschreckend gut, weil ihre Erfahrungen ineinandergreifen: Oswin bricht Bewegung, Brokk haelt Linien. Diesmal kaempfen sie nicht, um die andere Seite zu toeten, sondern um Menschen und Zwerge lange genug auseinanderzuhalten, damit Taron zum Eidstein gelangt; als alles kippt, hebt Taron die Rauchbombe trotzdem noch auf, was Oswin beinahe den Verstand kostet.
+Die Schlacht beginnt, bevor Taron jemanden ueberzeugen kann. Oswin und Brokk kaempfen erst nebeneinander, weil sie muessen, und dann erschreckend gut, weil ihre Erfahrungen ineinandergreifen: Oswin bricht Bewegung, Brokk haelt Linien. Sie toeten weiterhin, wenn es noetig ist, aber zum ersten Mal zaehlen sie dabei auch, wen sie durch diese Schlaege retten; als alles kippt, hebt Taron die Rauchbombe trotzdem noch auf, was Oswin beinahe den Verstand kostet.
 
 ## Kapitel 28: Unter der Burg
 
@@ -135,6 +135,8 @@ Der boese Erzaehler wird frei, verschwindet aus dem Zwergenkoenig und laesst ihn
 ## Kapitel 33: Stille auf dem Schlachtfeld
 
 Der Kampf wird wild und unuebersichtlich, weil beide Seiten glauben, gerade das Schlimmste gesehen zu haben. Taron zerbricht endlich Merlans fast vergessene Rauchbombe und rettet sich im dichten beissenden Rauch vor den Zwergen, die ihn fuer den Moerder ihres Koenigs halten.
+
+Oswin und Brokk halten im Chaos eine Flanke und zaehlen dabei nicht mehr nur Tote, sondern Gerettete: ein Zwerg, den Oswin vor einem Menschen schuetzt; ein Mensch, den Brokk vor einem Zwerg rettet. Sie sprechen die Zahlen knapp aus, als waeren es Befehle, und merken erst spaeter, dass sie eine neue Liste begonnen haben.
 
 ## Kapitel 34: Der neue Eid
 

@@ -188,6 +188,8 @@ Zwischen Oswin und Brokk ist am Anfang fast alles Spannung. Oswin zaehlt die Zwe
 
 Im Kampf ergaenzen sie sich besser, als beide zugeben wollen. Oswin liest offene Bewegung, Geschwindigkeit und Luecken; Brokk liest Stand, Druck und Linien. Zusammen werden sie gefaehrlich, weil sie genau die Art Krieg kennen, die der andere ueberlebt hat.
 
+Im Finale veraendert sich ihre Zaehlweise. Sie toeten weiterhin, wenn sie muessen, aber sie zaehlen nicht mehr nur die Gegner, die fallen. Wenn Brokk einen Menschen niederstreckt, der gerade einen Zwerg erschlagen wuerde, zaehlt Oswin den geretteten Zwerg. Wenn Oswin einen Zwerg aufhaelt, der einen jungen Soldaten zerhacken wuerde, zaehlt Brokk den geretteten Menschen. Ihre alten Zahlen verschwinden nicht, aber daneben beginnt eine neue Liste.
+
 Wenn die Splitter spaeter zusammengebracht werden, merken Taron und die anderen zu spaet, was sie angerichtet haben. Der Daemon wird frei, der Zwergenkoenig bricht zusammen, und die Zwerge glauben, die Menschen haetten ihren Koenig getoetet. Dadurch beginnt der eigentliche Kampf erst recht.
 
 In diesem Chaos kommt endlich Merlans Rauchbombe zum Einsatz. Taron benutzt sie nicht als heldische Waffe, sondern genau so, wie sie gedacht war: um nicht sofort getoetet zu werden. Im dichten Rauch entkommt er lange genug, damit der Kampf nicht in den ersten Minuten alles entscheidet.
