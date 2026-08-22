@@ -174,7 +174,7 @@ Die Splitter der Nachtkrone sind nicht einfach Artefakte, die Macht sammeln oder
 
 Der Zwergenkoenig hoert ebenfalls eine Stimme. Fuer die Zwerge ist das ein heiliges Zeichen, aehnlich wie Tarons Erzaehler fuer die Menschen irgendwann als Zeichen gedeutet wird. Der Unterschied: Die Stimme im Zwergenkoenig schuetzt nicht. Sie lenkt, verhaertet, verdreht und macht aus alter Wut eine scheinbar klare Wahrheit.
 
-Als Taron den ersten Splitter findet, bemerkt unser Erzaehler dessen Ausstrahlung. Er wird fuer einen Moment ungewoehnlich still und erkennt, dass in den Splittern etwas eingesperrt ist, das seiner eigenen Art aehnelt, aber verdorben ist. Er sagt Taron nicht alles, weil er selbst noch nicht weiss, ob er sich irrt, und weil ihn ein alter Eid daran hindert, bestimmte Wahrheiten einfach auszusprechen. Taron muss manche Dinge selbst erkennen, sonst waeren sie nur Befehle einer weiteren Stimme.
+Als Taron den ersten Splitter findet, bemerkt unser Erzaehler dessen Ausstrahlung. Er wird fuer einen Moment ungewoehnlich still und erkennt, dass in den Splittern etwas eingesperrt ist, das seiner eigenen Art aehnelt, aber verdorben ist. Er sagt Taron nicht alles, weil er selbst noch nicht weiss, ob er sich irrt, und weil ihn ein alter Eid daran hindert, bestimmte Wahrheiten einfach auszusprechen. Taron muss manche Dinge selbst erkennen, sonst waeren sie nur Befehle einer weiteren Stimme. Wenn der Erzaehler gegen diese Regel verstoesst, muss er seinen Wirt verlassen, also Taron.
 
 Damit wird auch klarer, was die Zwerge vor zehn Jahren unter Waldkirch gesucht haben: Sie suchten nicht Gold oder Land, sondern Spuren dieser alten Splitter und des gebrochenen Gefaengnisses. Der boese Erzaehler im Zwergenkoenig hat ihre Suche gelenkt und sie glauben lassen, sie muessten die Splitter sichern, um ihr Volk zu retten. In Wahrheit bereiten sie seine Befreiung vor.
 
@@ -183,6 +183,8 @@ Wenn die Splitter spaeter zusammengebracht werden, merken Taron und die anderen 
 In diesem Chaos kommt endlich Merlans Rauchbombe zum Einsatz. Taron benutzt sie nicht als heldische Waffe, sondern genau so, wie sie gedacht war: um nicht sofort getoetet zu werden. Im dichten Rauch entkommt er lange genug, damit der Kampf nicht in den ersten Minuten alles entscheidet.
 
 Als der Zwergenkoenig wieder erwacht, ist die fremde Stimme fort. Er begreift, wie sehr er in den letzten Jahren fehlgeleitet wurde, und befiehlt seinen Leuten, die Waffen fallen zu lassen. Der Befehl beendet nicht alle Feindschaft, aber er beendet die Schlacht. Das erste Buch endet danach ruhiger: Die wichtigsten Figuren sitzen noch einmal zusammen und versuchen zu verstehen, was wirklich passiert ist, waehrend der befreite Daemon bereits in die Welt verschwunden ist.
+
+Taron ist danach wuetend auf den Erzaehler, weil er nicht klar gesagt hat, dass in den Splittern ein Daemon steckt. Der Erzaehler versucht erst, mit einem trockenen Spruch auszuweichen, sagt dann aber die Wahrheit: Haette er es ausgesprochen, haette er seinen Eid gebrochen und Taron verlassen muessen. Das macht Tarons Wut nicht sofort kleiner, aber sie bekommt eine andere Form.
 
 ## Spaetere Schluesselszene: Der Preis des Schutzes
 

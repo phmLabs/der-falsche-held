@@ -76,7 +76,7 @@ Die Gruppe findet Hinweise, dass weder Menschen noch Zwerge den Eid allein gebro
 
 ## Kapitel 19: Der Erzaehler schweigt falsch
 
-Taron fragt den Erzaehler direkt, ob er weiss, was die dritte Macht ist. Der Erzaehler weicht aus, aber sein Schweigen verrät, dass er nicht nur Angst vor der Antwort hat, sondern an einen alten Eid gebunden ist, der ihm verbietet, manche Wahrheiten einfach auszusprechen.
+Taron fragt den Erzaehler direkt, ob er weiss, was die dritte Macht ist. Der Erzaehler weicht aus, aber sein Schweigen verrät, dass er nicht nur Angst vor der Antwort hat, sondern an einen alten Eid gebunden ist; wuerde er manche Wahrheiten einfach aussprechen, muesste er seinen Wirt verlassen.
 
 ## Kapitel 20: Die Stadt ohne Glocken
 
@@ -142,4 +142,4 @@ Der Zwergenkoenig erwacht wieder, hoert zum ersten Mal seit Jahren keine fremde 
 
 ## Kapitel 35: Natuerlich war das geplant
 
-Waldkirch steht noch, aber nichts ist wieder wie vorher: Menschen und Zwerge sitzen nach der Schlacht zum ersten Mal zusammen und versuchen zu verstehen, was mit den Splittern, dem Zwergenkoenig und den beiden Stimmen wirklich passiert ist. Der Erzaehler behauptet, alles sei geplant gewesen, waehrend der befreite boese Erzaehler als eigentliche Gefahr fuer Band zwei in die Welt verschwunden ist.
+Waldkirch steht noch, aber nichts ist wieder wie vorher: Menschen und Zwerge sitzen nach der Schlacht zum ersten Mal zusammen und versuchen zu verstehen, was mit den Splittern, dem Zwergenkoenig und den beiden Stimmen wirklich passiert ist. Taron ist wuetend, weil der Erzaehler nicht vor dem Daemon gewarnt hat; erst jetzt gibt der Erzaehler zu, dass ein Eidbruch ihn gezwungen haette, seinen Wirt zu verlassen, bevor er behauptet, alles sei geplant gewesen.

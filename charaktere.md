@@ -51,6 +51,7 @@ Das ist fuer beide Seiten unbefriedigend, allerdings aus unterschiedlichen Gruen
 
 - Er kann die Handlung kommentieren, aber nicht offen erklaeren, warum er existiert.
 - Er ist an einen alten Eid gebunden und darf nicht alles aussprechen, was er weiss. Bestimmte Wahrheiten muessen von Taron selbst erkannt, erfragt oder entschieden werden.
+- Wenn er diesen Eid bricht, muss er seinen Wirt verlassen. Fuer den Erzaehler waere das nicht nur Strafe, sondern der Verlust seiner Bindung an Taron.
 - Er weiss sehr viel, sagt aber selten das Nuetzliche zuerst.
 - Er kann falsch liegen, tut aber so, als sei auch das beabsichtigt gewesen.
 - Er benutzt Tarons Reaktionen gern, um Missverstaendnisse zu verschlimmern.
