@@ -1,5 +1,3 @@
-# Kapitel 5: Ein Ritter und ein Vorschlag
-
 Sir Oswin von Hohenklamm sah am Morgen weniger aus wie ein Mann, der eine Reise begann, und mehr wie ein Mann, der mit seinem eigenen Kopf in Verhandlungen stand.
 
 Er saß auf seinem Pferd, das den unpassend stolzen Namen Sternfall trug, und hielt sich aufrecht, obwohl sein Gesicht eine andere Abstimmung verloren hatte. Die Sonne lag hell über den Mauern der Freien Burg Hohensteg. Händler beluden Karren. Ein Hund bellte jemanden an, der es vermutlich verdiente. Der Wirt vom Blauen Eber stand in der Tür und sah ihnen nach, als warte er darauf, dass einer von ihnen noch etwas bezahlen müsse.
@@ -30,8 +28,6 @@ Die Straße führte durch hügeliges Land. Links lagen Felder, rechts ein Streif
 
 Einmal hob er die Hand.
 
-Taron hielt Kummer an.
-
 Oswin stieg ab, kniete am Straßenrand nieder und strich mit zwei Fingern über den Boden.
 
 „Vier Reiter“, sagte er. „Gestern Abend. Vielleicht kurz vor Regen.“
@@ -42,9 +38,9 @@ Oswin sah offenbar ein ganzes Gespräch, das der Boden ohne Tarons Beteiligung g
 
 „Gefahr?“, fragte Taron.
 
-„Vielleicht.“
+„Wahrscheinlich.“
 
-Das war eine unangenehm ehrliche Antwort. Der Erzähler fand sie gut. Taron fand sie weniger gut, weil ehrliche Antworten selten beruhigender sind als Lügen, sondern nur schwerer zu ignorieren.
+Das war eine unangenehm ehrliche Antwort. Der Erzähler fand sie gut. Taron weniger, weil ehrliche Antworten selten beruhigender sind als Lügen, sondern nur schwerer zu ignorieren.
 
 Eine Stunde später bekamen sie tatsächlich Wegelagerer.
 
