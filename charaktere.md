@@ -194,6 +194,7 @@ Merlan erklaert moderne Magie als eine Art Stoffkunde: Kraeuter, Metalle, Saeure
 
 - Liest die Prophezeiung sachlich neu und zeigt, dass Waldkirch aus einer alten Warnung eine bequeme Heldenauszeichnung gemacht hat.
 - Erklaert Taron und Oswin, dass die Weissagung den "Auserwaehlten" nicht als besten Kaempfer beschreibt, sondern als jemanden, der ohne alten Anspruch zwischen den Eiden stehen kann.
+- Erkennt, dass der Satz "Die Schluessel bringen Freiheit" keine Beruhigung ist, solange ein alter Weinfleck genau verdeckt, wem diese Freiheit eigentlich gilt.
 - Erwaehnt beiläufig alte Wesen, Eidtraeger und Schutzmaechte als Teil der theologischen Ueberlieferung, ohne dabei direkt zu erkennen oder auszusprechen, dass Tarons Stimme eine davon sein koennte.
 - Kommt nicht mit auf die Reise, weil er seine Arbeit, seine Abschriften und vermutlich auch seinen Ofen fuer wichtiger haelt als heldenhaftes Sterben auf schlechten Wegen.
 - Wird spaeter wieder wichtig, wenn Menschenschluessel, Zwergenschluessel und Schutzschluessel zusammen gedacht werden muessen und jemand deuten muss, was das Eidenschloss wirklich ist.

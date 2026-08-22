@@ -390,7 +390,11 @@ Bruder Malchior entrollte die Prophezeiung auf dem Tisch. Diesmal lagen kleine S
 
 „Der Stall liegt östlich.“
 
-„Dort, wo der schwarze Stern sank“, fuhr Malchior fort, „steht der Turm von Abendriss. In seinem Schatten ruht der Menschenschlüssel, einer der drei Eidschlüssel. Der Auserwählte muss ihn bergen, bevor die dritte Glocke des Mondes schweigt.“
+„Dort, wo der schwarze Stern sank“, fuhr Malchior fort, „steht der Turm von Abendriss. In seinem Schatten ruht der Menschenschlüssel, einer der drei Eidschlüssel. Die Schlüssel bringen Freiheit. Der Auserwählte muss ihn bergen, bevor die dritte Glocke des Mondes schweigt.“
+
+Er tippte auf eine dunkle Stelle im Pergament.
+
+„Hier stand vermutlich noch ein sehr kurzes Wort. Aber vor zweihundert Jahren hat jemand offenbar beschlossen, dass Rotwein ebenfalls zur Auslegung gehört.“
 
 Taron wartete.
 
