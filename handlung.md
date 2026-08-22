@@ -174,7 +174,7 @@ Die Splitter der Nachtkrone sind nicht einfach Artefakte, die Macht sammeln oder
 
 Der Zwergenkoenig hoert ebenfalls eine Stimme. Fuer die Zwerge ist das ein heiliges Zeichen, aehnlich wie Tarons Erzaehler fuer die Menschen irgendwann als Zeichen gedeutet wird. Der Unterschied: Die Stimme im Zwergenkoenig schuetzt nicht. Sie lenkt, verhaertet, verdreht und macht aus alter Wut eine scheinbar klare Wahrheit.
 
-Als Taron den ersten Splitter findet, bemerkt unser Erzaehler dessen Ausstrahlung. Er wird fuer einen Moment ungewoehnlich still und erkennt, dass in den Splittern etwas eingesperrt ist, das seiner eigenen Art aehnelt, aber verdorben ist. Er sagt Taron nicht alles, weil er selbst noch nicht weiss, ob er sich irrt, und weil er Angst davor hat, dass Taron dann sofort alles hinschmeisst.
+Als Taron den ersten Splitter findet, bemerkt unser Erzaehler dessen Ausstrahlung. Er wird fuer einen Moment ungewoehnlich still und erkennt, dass in den Splittern etwas eingesperrt ist, das seiner eigenen Art aehnelt, aber verdorben ist. Er sagt Taron nicht alles, weil er selbst noch nicht weiss, ob er sich irrt, und weil ihn ein alter Eid daran hindert, bestimmte Wahrheiten einfach auszusprechen. Taron muss manche Dinge selbst erkennen, sonst waeren sie nur Befehle einer weiteren Stimme.
 
 Damit wird auch klarer, was die Zwerge vor zehn Jahren unter Waldkirch gesucht haben: Sie suchten nicht Gold oder Land, sondern Spuren dieser alten Splitter und des gebrochenen Gefaengnisses. Der boese Erzaehler im Zwergenkoenig hat ihre Suche gelenkt und sie glauben lassen, sie muessten die Splitter sichern, um ihr Volk zu retten. In Wahrheit bereiten sie seine Befreiung vor.
 

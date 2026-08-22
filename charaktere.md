@@ -50,13 +50,14 @@ Das ist fuer beide Seiten unbefriedigend, allerdings aus unterschiedlichen Gruen
 **Regeln fuer den Erzaehler:**
 
 - Er kann die Handlung kommentieren, aber nicht offen erklaeren, warum er existiert.
+- Er ist an einen alten Eid gebunden und darf nicht alles aussprechen, was er weiss. Bestimmte Wahrheiten muessen von Taron selbst erkannt, erfragt oder entschieden werden.
 - Er weiss sehr viel, sagt aber selten das Nuetzliche zuerst.
 - Er kann falsch liegen, tut aber so, als sei auch das beabsichtigt gewesen.
 - Er benutzt Tarons Reaktionen gern, um Missverstaendnisse zu verschlimmern.
 - Er kann in aeusserster Lebensgefahr direkt eingreifen und Taron fuer einen Moment uebernehmen, aber jeder solche Eingriff schwaecht ihn massiv und macht ihn verwundbarer fuer andere Schutzmaechte.
 - Er ueberspielt diese Schwaeche mit Witzen, bis selbst Taron merkt, dass die Stimme nicht mehr stabil klingt.
 
-**Moegliches Geheimnis:** Der Erzaehler ist kein neutraler Chronist, sondern eine Art Schutzdaemon des Auserwaehlten. Er war vielleicht nie wirklich weg, sondern nur von Taron verdraengt. Seine Kommentare, Luegen, Ablenkungen und scheinbar boshaften Spitzen dienen rueckblickend oft dazu, Taron am Leben zu halten oder ihn in genau die falsche Richtung zu schicken, die sich spaeter als richtig erweist.
+**Moegliches Geheimnis:** Der Erzaehler ist kein neutraler Chronist, sondern eine Art Schutzdaemon des Auserwaehlten. Er war vielleicht nie wirklich weg, sondern nur von Taron verdraengt. Seine Kommentare, Luegen, Ablenkungen und scheinbar boshaften Spitzen dienen rueckblickend oft dazu, Taron am Leben zu halten oder ihn in genau die falsche Richtung zu schicken, die sich spaeter als richtig erweist. Dass er vieles verschweigt, ist nicht nur Spott oder Taktik, sondern auch Folge seines Eids.
 
 **End-Twist:** Am Ende stellt sich heraus, dass der Erzaehler Taron die ganze Zeit beschuetzt hat. Als das Chaos ueberstanden ist, behauptet er kuehl, selbstverstaendlich sei alles geplant gewesen: jeder Unfall, jede Verwechslung, jede Bloßstellung und auch die Sache mit der Ziegenmilch. Ob das stimmt, bleibt zweifelhaft. Der Erzaehler besteht jedoch darauf, dass Zweifel in diesem Fall nur ein Mangel an literarischer Bildung seien.
 

@@ -76,7 +76,7 @@ Die Gruppe findet Hinweise, dass weder Menschen noch Zwerge den Eid allein gebro
 
 ## Kapitel 19: Der Erzaehler schweigt falsch
 
-Taron fragt den Erzaehler direkt, ob er weiss, was die dritte Macht ist. Der Erzaehler weicht aus, aber sein Schweigen verrät, dass er nicht nur Angst vor der Antwort hat, sondern vor sich selbst.
+Taron fragt den Erzaehler direkt, ob er weiss, was die dritte Macht ist. Der Erzaehler weicht aus, aber sein Schweigen verrät, dass er nicht nur Angst vor der Antwort hat, sondern an einen alten Eid gebunden ist, der ihm verbietet, manche Wahrheiten einfach auszusprechen.
 
 ## Kapitel 20: Die Stadt ohne Glocken
 
