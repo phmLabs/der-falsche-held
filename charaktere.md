@@ -196,7 +196,7 @@ Merlan erklaert moderne Magie als eine Art Stoffkunde: Kraeuter, Metalle, Saeure
 - Erklaert Taron und Oswin, dass die Weissagung den "Auserwaehlten" nicht als besten Kaempfer beschreibt, sondern als jemanden, der ohne alten Anspruch zwischen den Eiden stehen kann.
 - Erwaehnt beiläufig alte Wesen, Eidtraeger und Schutzmaechte als Teil der theologischen Ueberlieferung, ohne dabei direkt zu erkennen oder auszusprechen, dass Tarons Stimme eine davon sein koennte.
 - Kommt nicht mit auf die Reise, weil er seine Arbeit, seine Abschriften und vermutlich auch seinen Ofen fuer wichtiger haelt als heldenhaftes Sterben auf schlechten Wegen.
-- Wird spaeter wieder wichtig, wenn die Splitter der Nachtkrone gesammelt sind und jemand deuten muss, was sie zusammen wirklich zeigen.
+- Wird spaeter wieder wichtig, wenn Menschenschluessel, Zwergenschluessel und Schutzschluessel zusammen gedacht werden muessen und jemand deuten muss, was das Eidenschloss wirklich ist.
 - Gibt Taron eine kleine Rauchbombe mit, reine Stoffkunde und ausdruecklich keine Magie, aber selten genug, dass die meisten Menschen sie fuer Zauberei halten wuerden. Sie kann genau einmal fuer dichten, beissenden Rauch sorgen und soll bei einer Flucht helfen.
 - Kann vielleicht Bohnen warm oder Bier kalt halten, aber nur, wenn niemand daraus eine Lehre ueber Magie ableitet.
 
@@ -266,10 +266,10 @@ Koenig Albrecht herrscht ueber ein Reich, das gerne groesser, reicher und wenige
 ## Die Bedrohung: Der andere Erzaehler
 
 **Rolle:** Boeser Schutzdaemon, Stimme im Zwergenkoenig, Gegenspieler des Erzaehlers  
-**Status:** In den Splittern der Nachtkrone eingeschlossen, aber durch Risse seiner Gefangenschaft handlungsfaehig  
+**Status:** Hinter dem Eidenschloss eingeschlossen, aber durch Risse seiner Gefangenschaft handlungsfaehig  
 
-Der andere Erzaehler ist ein Schutzdaemon, der seine Aufgabe verdreht hat. Er schuetzt nicht, sondern kontrolliert. Seit Jahren sitzt er als Stimme im Kopf des Zwergenkoenigs und deutet jedes Zeichen so, dass die Zwerge glauben, sie muessten die Splitter sammeln, um ihr Volk zu retten.
+Der andere Erzaehler ist ein Schutzdaemon, der seine Aufgabe verdreht hat. Er schuetzt nicht, sondern kontrolliert. Seit Jahren sitzt er als Stimme im Kopf des Zwergenkoenigs und deutet jedes Zeichen so, dass die Zwerge glauben, sie muessten die drei Eidschluessel sammeln, um ihr Volk zu retten.
 
-**Wirkung auf die Geschichte:** Die Splitter der Nachtkrone sind nicht nur Schluessel oder Beweise, sondern Bruchstuecke seines Gefaengnisses. Menschen und Zwerge halten sie fuer Teile einer Loesung, waehrend ihre Sammlung ihn Schritt fuer Schritt naeher an die Freiheit bringt.
+**Wirkung auf die Geschichte:** Das Eidenschloss ist nicht nur Zeichen eines alten Friedens, sondern das Schloss seines Gefaengnisses. Menschenschluessel, Zwergenschluessel und Schutzschluessel wirken wie Teile einer Loesung, bringen ihn aber Schritt fuer Schritt naeher an die Freiheit.
 
-**Twist:** Unser Erzaehler merkt erst beim ersten Splitter, welche Ausstrahlung in den Bruchstuecken steckt. Am Ende, wenn die Splitter zusammenkommen, wird der andere Erzaehler frei. Der Krieg von Band eins kann beendet werden, aber die groessere Gefahr verschwindet in Band zwei.
+**Twist:** Unser Erzaehler merkt erst beim Menschenschluessel, welche Ausstrahlung an den Eidschluesseln haengt. Am Ende, wenn alle drei Schluessel im Eidenschloss zusammenkommen, wird der andere Erzaehler frei. Der Krieg von Band eins kann beendet werden, aber die groessere Gefahr verschwindet in Band zwei.

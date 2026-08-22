@@ -26,29 +26,29 @@ Taron und Oswin finden Merlans Haus am alten Brunnen, aus dessen Esse eine Farbe
 
 ## Kapitel 7: Pulver und Prophezeiungen
 
-Merlan liest die Waldkircher Prophezeiung neu und erklaert, dass sie Taron nicht als grossen Kaempfer ausweist, sondern als jemanden ohne Machtlinie, Orden oder alten Anspruch. Er erkennt ausserdem, dass Taron nicht einen, sondern drei Splitter suchen muss; Taron wird wuetend, und der Erzaehler erinnert ihn genussvoll an seinen angeblich so einfachen Plan aus Kapitel 4.
+Merlan liest die Waldkircher Prophezeiung neu und erklaert, dass sie Taron nicht als grossen Kaempfer ausweist, sondern als jemanden ohne Machtlinie, Orden oder alten Anspruch. Er erkennt ausserdem, dass Taron nicht einen einzelnen Gegenstand, sondern drei Eidschluessel braucht: den Menschenschluessel, den Zwergenschluessel und den Schutzschluessel; Taron wird wuetend, und der Erzaehler erinnert ihn genussvoll an seinen angeblich so einfachen Plan aus Kapitel 4.
 
 Nebenbei erwaehnt Merlan alte Wesen, Eidtraeger und Schutzmaechte als vergessenen Teil der Ueberlieferung, gibt Taron eine seltene, aber nichtmagische Rauchbombe fuer die Flucht, und Oswin erkennt sie als Kriegswerkzeug, das in Schlachten schon ueber Sieg und Niederlage entschieden hat. Merlan warnt vor dem Turm von Abendriss als altem Siegel und bleibt in Hohensteg zurueck, weil Reisen fuer ihn eine ueberschaetzte Methode des Denkens ist.
 
-## Kapitel 8: Der erste Splitter
+## Kapitel 8: Der Menschenschluessel
 
-Taron und Oswin erreichen den Turm von Abendriss und finden den ersten Splitter der Nachtkrone. Taron ueberlebt die Pruefung nicht durch Tapferkeit, sondern durch eine Mischung aus Panik, Oswins Koennen, Merlans Warnung und einem Hinweis des Erzaehlers; als der Erzaehler die Ausstrahlung des Splitters spuert, wird er zum ersten Mal wirklich still.
+Taron und Oswin erreichen den Turm von Abendriss und finden den Menschenschluessel, den alten Schluessel der Menschen zum Eidenschloss. Taron ueberlebt die Pruefung nicht durch Tapferkeit, sondern durch eine Mischung aus Panik, Oswins Koennen, Merlans Warnung und einem Hinweis des Erzaehlers; als der Erzaehler die Ausstrahlung des Schluessels spuert, wird er zum ersten Mal wirklich still.
 
-## Kapitel 9: Die Spur der Zwerge
+## Kapitel 9: Die Spur des Schutzschluessels
 
-Nach dem ersten Splitter finden Taron und Oswin Hinweise, dass Zwerge denselben Ort beobachtet haben. Oswin will sofort verfolgen, Taron will sofort nicht verfolgen, und der Erzaehler findet beide Plaene auf unterschiedliche Weise enttaeuschend.
+Nach dem Menschenschluessel finden Taron und Oswin Hinweise auf den Schutzschluessel, den dritten Schluessel des Eidenschlosses. Oswin will sofort weiter, Taron will sofort nicht weiter, und der Erzaehler findet beide Plaene auf unterschiedliche Weise enttaeuschend.
 
-## Kapitel 10: Brokk Eisenhand
+## Kapitel 10: Hauptmann Brokk Eisenhand
 
-Brokk Eisenhand nimmt Taron und Oswin gefangen, weil Taron den Splitter traegt. Als Brokk merkt, dass Taron mit "Niemandem" spricht, erschrickt er: Auch der Zwergenkoenig begann so, bevor er sich veraenderte.
+Der Zwergenhauptmann Brokk Eisenhand nimmt Taron und Oswin beim Schutzschluessel gefangen, weil beide Seiten ihn suchen und Taron bereits den Menschenschluessel traegt. Als Brokk merkt, dass Taron mit "Niemandem" spricht, erschrickt er: Auch der Zwergenkoenig begann so, bevor er sich veraenderte.
 
 ## Kapitel 11: Elva kommt nach
 
 Elva folgt der Gruppe, weil sie Schuldgefuehle hat, Taron in die Prophezeiung gestossen zu haben. Taron und Elva versuchen beide, ihre Gefuehle zu ignorieren, was ihnen nur sehr auffaellig gelingt.
 
-## Kapitel 12: Der zweite Splitter
+## Kapitel 12: Der Schutzschluessel
 
-Brokk laesst Taron und Oswin entkommen und begleitet sie als neuer Gefaehrte, weil er den alten Zwergenkoenig zurueckhaben will und in Taron eine gefaehrliche Hoffnung sieht. Gemeinsam finden sie den zweiten Splitter in einer verlassenen Kapelle an der Grenze zu Graumark, wo sich zeigt, dass die Nachtkrone nicht nur bewahrt, sondern einschliesst.
+Brokk laesst Taron und Oswin entkommen und begleitet sie als neuer Gefaehrte, weil er den alten Zwergenkoenig zurueckhaben will und in Taron eine gefaehrliche Hoffnung sieht. Gemeinsam sichern sie den Schutzschluessel in einer verlassenen Kapelle an der Grenze zu Graumark, wo sich zeigt, dass das Eidenschloss nicht nur bewahrt, sondern einschliesst.
 
 ## Kapitel 13: Graumark schweigt
 
@@ -60,7 +60,7 @@ Taron, Oswin und Brokk geraten fast in eine Konfrontation mit einem Zwergentrupp
 
 ## Kapitel 15: Der Zwerg mit dem gebrochenen Eid
 
-Brokk erzaehlt, dass der Zwergenkoenig seit Jahren eine Stimme hoert, die ihn zu den Splittern fuehrt und ihm einredet, nur ihre Sammlung koenne das Volk retten. Fuer Brokk ist das kein politisches Geheimnis mehr, sondern der Verlust eines Freundes und eines ganzen alten Zwergenlebens aus Liedern, langen Tafeln und Streit, der nicht immer in Krieg endete.
+Brokk erzaehlt, dass der Zwergenkoenig seit Jahren eine Stimme hoert, die ihn zu den Eidschluesseln fuehrt und ihm einredet, nur ihre Sammlung koenne das Volk retten. Den Zwergenschluessel besitzen die Zwerge bereits. Fuer Brokk ist das kein politisches Geheimnis mehr, sondern der Verlust eines Freundes und eines ganzen alten Zwergenlebens aus Liedern, langen Tafeln und Streit, der nicht immer in Krieg endete.
 
 ## Kapitel 16: Was unter Waldkirch lag
 
@@ -80,11 +80,11 @@ Taron fragt den Erzaehler direkt, ob er weiss, was die dritte Macht ist. Der Erz
 
 ## Kapitel 20: Die Stadt ohne Glocken
 
-In Ellingen, dem zweiten unterworfenen Nachbarland, findet die Gruppe den dritten Splitter. Die Stadt wirkt friedlich, doch alle Glocken wurden entfernt, weil ihr Klang alte Eidmagie weckt.
+In Ellingen, dem zweiten unterworfenen Nachbarland, findet die Gruppe alte Hinweise darauf, wie Menschenschluessel, Zwergenschluessel und Schutzschluessel zusammen zum Eidenschloss gehoeren. Die Stadt wirkt friedlich, doch alle Glocken wurden entfernt, weil ihr Klang alte Eidmagie weckt.
 
 ## Kapitel 21: Das Schloss erinnert sich
 
-Mit den gesammelten Splittern sucht die Gruppe Merlan erneut auf, weil niemand mehr so tun kann, als sei die Prophezeiung nur ein frommer Vers. Merlan, Brokk und der Erzaehler deuten die Splitter aus drei voellig verschiedenen Blickwinkeln, doch die Krone reagiert nicht wie ein Werkzeug, sondern wie ein Schloss, das sich an seine fehlenden Teile erinnert.
+Mit zwei Schluesseln und dem Wissen, dass die Zwerge den dritten besitzen, sucht die Gruppe Merlan erneut auf, weil niemand mehr so tun kann, als sei die Prophezeiung nur ein frommer Vers. Merlan, Brokk und der Erzaehler deuten die Eidschluessel aus drei voellig verschiedenen Blickwinkeln, doch das Eidenschloss wirkt nicht wie ein Werkzeug, sondern wie ein Gefaengnis, das sich an seine fehlenden Schluessel erinnert.
 
 ## Kapitel 22: Elvas Wahrheit
 
@@ -92,11 +92,11 @@ Elva zwingt Taron, endlich auszusprechen, dass er nicht nur weglaufen will, sond
 
 ## Kapitel 23: Der Schutzdaemon
 
-Merlan erklaert aus den Splittern und den alten Randnotizen, dass die Stimme wahrscheinlich ein Schutzdaemon ist, ein gebundenes Wesen, das eigentlich einen Eidtraeger schuetzen soll. Taron erkennt, dass sein Freund aus der Kindheit nicht eingebildet war, sondern Teil einer alten Ordnung.
+Merlan erklaert aus den Schluesseln und den alten Randnotizen, dass die Stimme wahrscheinlich ein Schutzdaemon ist, ein gebundenes Wesen, das eigentlich einen Eidtraeger schuetzen soll. Taron erkennt, dass sein Freund aus der Kindheit nicht eingebildet war, sondern Teil einer alten Ordnung.
 
 ## Kapitel 24: Der andere
 
-Die Gruppe erkennt, dass der Zwergenkoenig einen eigenen Erzaehler hat: einen Schutzdaemon, der nicht schuetzt, sondern kontrolliert. Dieser andere wurde einst in die Splitter gebannt, spricht aber durch Risse seiner Gefangenschaft und hat die Zwerge wie die Menschen auf Wege gelenkt, die seine Befreiung vorbereiten.
+Die Gruppe erkennt, dass der Zwergenkoenig einen eigenen Erzaehler hat: einen Schutzdaemon, der nicht schuetzt, sondern kontrolliert. Dieser andere wurde einst hinter dem Eidenschloss gebannt, spricht aber durch Risse seiner Gefangenschaft und hat die Zwerge wie die Menschen auf Wege gelenkt, die seine Befreiung vorbereiten.
 
 ## Kapitel 25: Rueckkehr nach Waldkirch
 
@@ -116,7 +116,7 @@ Taron kehrt in den Dungeon zurueck, wo der Hunger von Waldkirch noch immer lauer
 
 ## Kapitel 29: Der Eidstein
 
-Unter Waldkirch finden sie den Eidstein, gebrochen und von fremder Schutzdaemonenmagie verfaelscht. Der Zwergenkoenig bekommt die drei Splitter, und ihr Zusammenkommen loest die letzten Riegel des Gefaengnisses, das den anderen Erzaehler bisher nur halb frei liess.
+Unter Waldkirch finden sie den Eidstein und das Eidenschloss, gebrochen und von fremder Schutzdaemonenmagie verfaelscht. Der Zwergenkoenig bringt Zwergenschluessel, Menschenschluessel und Schutzschluessel zusammen, und ihr Zusammenkommen loest die letzten Riegel des Gefaengnisses, das den anderen Erzaehler bisher nur halb frei liess.
 
 ## Kapitel 30: Nicht fuer eine Seite
 
@@ -144,4 +144,4 @@ Der Zwergenkoenig erwacht wieder, hoert zum ersten Mal seit Jahren keine fremde 
 
 ## Kapitel 35: Natuerlich war das geplant
 
-Waldkirch steht noch, aber nichts ist wieder wie vorher: Menschen und Zwerge sitzen nach der Schlacht zum ersten Mal zusammen und versuchen zu verstehen, was mit den Splittern, dem Zwergenkoenig und den beiden Stimmen wirklich passiert ist. Taron ist wuetend, weil der Erzaehler nicht vor dem Daemon gewarnt hat; erst jetzt gibt der Erzaehler zu, dass ein Eidbruch ihn gezwungen haette, seinen Wirt zu verlassen, bevor er behauptet, alles sei geplant gewesen.
+Waldkirch steht noch, aber nichts ist wieder wie vorher: Menschen und Zwerge sitzen nach der Schlacht zum ersten Mal zusammen und versuchen zu verstehen, was mit dem Eidenschloss, den drei Schluesseln, dem Zwergenkoenig und den beiden Stimmen wirklich passiert ist. Taron ist wuetend, weil der Erzaehler nicht vor dem Daemon gewarnt hat; erst jetzt gibt der Erzaehler zu, dass ein Eidbruch ihn gezwungen haette, seinen Wirt zu verlassen, bevor er behauptet, alles sei geplant gewesen.

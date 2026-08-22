@@ -140,7 +140,7 @@ Wenn sie gut waren, retteten sie einem das Leben. Wenn sie mittelmäßig waren, 
 
 „Sie hat sich bewährt.“
 
-Taron wollte keinen Zauberer. Er wollte auch keinen Turm, keinen Splitter, keine Prophezeiung und keinen Ritter mit einer sehr beunruhigenden Liste. Oswin fand, Taron sei dennoch reich an allem, was unfair genug formuliert war, dass Taron kurz keine Antwort fand.
+Taron wollte keinen Zauberer. Er wollte auch keinen Turm, keinen Schlüssel, keine Prophezeiung und keinen Ritter mit einer sehr beunruhigenden Liste. Oswin fand, Taron sei dennoch reich an allem, was unfair genug formuliert war, dass Taron kurz keine Antwort fand.
 
 Der Erzähler hielt den Zauberer ebenfalls für eine gute Idee.
 
