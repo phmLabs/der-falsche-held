@@ -132,7 +132,9 @@ Das war ein harter Themenwechsel.
 
 Oswin nannte es Strategie.
 
-Zauberer, erklärte er, könne man immer gebrauchen. Wenn sie gut waren, retteten sie einem das Leben. Wenn sie mittelmäßig waren, lasen sie alte Schrift. Wenn sie schlecht waren, konnten sie meistens noch Bohnen warm oder Bier kalt zaubern.
+Zauberer, erklärte er, könne man immer gebrauchen. Wobei er, wie er nach Tarons Blick hinzufügte, nicht zwingend einen Mann meinte, der Feuer aus den Händen warf und dabei Namen alter Könige rief. Manchmal reichte jemand, der alte Schrift lesen, schlechte Zeichen erkennen oder einem erklären konnte, warum eine Prophezeiung weniger eindeutig war, als Priester es gern behaupteten.
+
+Wenn sie gut waren, retteten sie einem das Leben. Wenn sie mittelmäßig waren, lasen sie alte Schrift. Wenn sie schlecht waren, konnten sie meistens noch Bohnen warm oder Bier kalt zaubern.
 
 „Das ist deine magische Rangordnung?“, fragte Taron.
 
@@ -230,6 +232,10 @@ Der Wirt sah ihn an. „Du hast nicht gefragt.“
 
 „Für dich vielleicht. Für uns ist es Merlan.“
 
+„Er ist also kein Zauberer?“
+
+Der Wirt verzog das Gesicht, als habe Taron ihn gebeten, eine sehr alte Rechnung gerecht aufzuteilen. „Kommt darauf an, wen du fragst. Wenn du Merlan fragst: nein. Wenn du jemanden fragst, dessen Scheune er mit blauem Rauch von Mäusen befreit hat: ja. Wenn du mich fragst: Er weiß Dinge, die andere nicht wissen, und das reicht für die meisten Leute.“
+
 „Merlan.“
 
 „Merlan Graufinger.“
@@ -268,7 +274,7 @@ Oswin nahm seinen Helm vom Tresen, wo er ihn offenbar abgelegt hatte, ohne dass 
 
 „Siehst du?“, sagte der Ritter. „Schon haben wir einen Zauberer.“
 
-„Wir haben eine Wegbeschreibung zu einem Haus, das möglicherweise nicht mehr existiert.“
+„Wir haben eine Wegbeschreibung zu einem Haus, das möglicherweise nicht mehr existiert, und zu einem Mann, der vermutlich beleidigt ist, wenn man ihn Zauberer nennt.“
 
 „Das ist bei Zauberern beinahe dasselbe.“
 
