@@ -209,6 +209,8 @@ Merlan erklaert moderne Magie als eine Art Stoffkunde: Kraeuter, Metalle, Saeure
 
 Brokk Eisenhand ist ein Zwergenhauptmann, der frueher ein enger Vertrauter und vielleicht Freund des Zwergenkoenigs war. Er kannte den Koenig, bevor die Stimme kam: streng, hart, aber gerecht. In den letzten Jahren hat Brokk gesehen, wie aus diesem Koenig jemand wurde, der Befehle gab, als wuerde er sie von einem unsichtbaren Richter empfangen.
 
+Seitdem ist auch das Leben der Zwerge kaelter geworden. Brokk erinnert sich an Hallen voller Lieder, lange Essen, laute Feste und Streit, der am Ende mit Bier statt Blut beendet wurde. Unter dem veraenderten Koenig wurden die Lieder seltener, die Tafeln kuerzer und die Befehle haerter, bis selbst Freude wie mangelnde Disziplin wirkte.
+
 Als Brokk Taron gefangen nimmt und merkt, dass auch dieser mit "Niemandem" spricht, sieht er zum ersten Mal eine Moeglichkeit, das Muster zu verstehen. Taron ist fuer ihn kein Held und kein Freund, sondern eine gefaehrliche Hoffnung: Vielleicht gibt es eine Stimme, die nicht kontrolliert. Vielleicht kann der alte Koenig zurueckkommen.
 
 **Persoenlichkeit:** pflichtbewusst, misstrauisch, direkt, schwer zu erschuettern. Brokk ist kein heimlicher Menschenfreund. Er verachtet viel an Lichtenhain, aber er verachtet noch mehr, was aus seinem Koenig geworden ist.
@@ -218,6 +220,7 @@ Als Brokk Taron gefangen nimmt und merkt, dass auch dieser mit "Niemandem" spric
 - Kennt die Zwergenheere, ihre Befehlswege und die politische Bedeutung des Koenigs.
 - Kann kaempfen und in einer Schlacht Ordnung halten.
 - Weiss, wie der Zwergenkoenig frueher war, und erkennt deshalb die Veraenderung.
+- Erinnert sich an die alte Waerme der Zwergenhallen und weiss, dass sein Volk nicht immer nur aus Marsch, Befehl und Graben bestand.
 - Hat genug Autoritaet, um spaeter den Befehl des erwachten Koenigs glaubhaft weiterzutragen.
 
 **Schwaechen:**

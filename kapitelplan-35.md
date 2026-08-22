@@ -52,7 +52,7 @@ Brokk laesst Taron und Oswin entkommen und begleitet sie als neuer Gefaehrte, we
 
 ## Kapitel 13: Graumark schweigt
 
-Die Gruppe betritt das von den Zwergen unterworfene Graumark und erwartet rohe Besatzung. Stattdessen finden sie ein strenges, stilles Land, in dem die Zwerge nach etwas graben, das sie offenbar wichtiger finden als Eroberung.
+Die Gruppe betritt das von den Zwergen unterworfene Graumark und erwartet rohe Besatzung. Stattdessen finden sie ein strenges, stilles Land, in dem die Zwerge nach etwas graben, das sie offenbar wichtiger finden als Eroberung; Brokk sagt, dass selbst seine eigenen Hallen frueher voller Lieder, Essen und Feste waren und erst seit dem veraenderten Koenig so kalt geworden sind.
 
 ## Kapitel 14: Beinahe Krieg
 
@@ -60,7 +60,7 @@ Taron, Oswin und Brokk geraten fast in eine Konfrontation mit einem Zwergentrupp
 
 ## Kapitel 15: Der Zwerg mit dem gebrochenen Eid
 
-Brokk erzaehlt, dass der Zwergenkoenig seit Jahren eine Stimme hoert, die ihn zu den Splittern fuehrt und ihm einredet, nur ihre Sammlung koenne das Volk retten. Fuer Brokk ist das kein politisches Geheimnis mehr, sondern der Verlust eines Freundes, den er vielleicht zu spaet zu retten versucht.
+Brokk erzaehlt, dass der Zwergenkoenig seit Jahren eine Stimme hoert, die ihn zu den Splittern fuehrt und ihm einredet, nur ihre Sammlung koenne das Volk retten. Fuer Brokk ist das kein politisches Geheimnis mehr, sondern der Verlust eines Freundes und eines ganzen alten Zwergenlebens aus Liedern, langen Tafeln und Streit, der nicht immer in Krieg endete.
 
 ## Kapitel 16: Was unter Waldkirch lag
 

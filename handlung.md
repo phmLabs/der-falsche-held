@@ -182,6 +182,8 @@ Damit wird auch klarer, was die Zwerge vor zehn Jahren unter Waldkirch gesucht h
 
 Brokk Eisenhand wird dabei zum entscheidenden neuen Gefaehrten. Er nimmt Taron und Oswin zunaechst gefangen, laesst sie aber entkommen und begleitet sie, weil er den alten Zwergenkoenig zurueckhaben will. Brokk war dem Koenig frueher nah und hat miterlebt, wie er sich veraenderte, haerter wurde und schliesslich mit "Niemandem" sprach. In Taron sieht Brokk keine einfache Rettung, sondern eine gefaehrliche Hoffnung: Wenn es eine Stimme gibt, die nicht kontrolliert, kann vielleicht auch sein Koenig wieder frei werden.
 
+Brokk macht klar, dass mit dem Koenig auch das Zwergenreich selbst veraendert wurde. Frueher wurde in den Hallen gesungen, gegessen, gestritten und gefeiert; selbst ein harter Koenig wusste, wann ein Volk trinken, trauern oder lachen musste. Seit die Stimme kam, wurden Lieder zu Laerm, Feste zu Verschwendung und Zweifel zu Ungehorsam. Fuer Brokk geht es deshalb nicht nur um Politik, sondern um die Rueckkehr eines ganzen verlorenen Lebens.
+
 Wenn die Splitter spaeter zusammengebracht werden, merken Taron und die anderen zu spaet, was sie angerichtet haben. Der Daemon wird frei, der Zwergenkoenig bricht zusammen, und die Zwerge glauben, die Menschen haetten ihren Koenig getoetet. Dadurch beginnt der eigentliche Kampf erst recht.
 
 In diesem Chaos kommt endlich Merlans Rauchbombe zum Einsatz. Taron benutzt sie nicht als heldische Waffe, sondern genau so, wie sie gedacht war: um nicht sofort getoetet zu werden. Im dichten Rauch entkommt er lange genug, damit der Kampf nicht in den ersten Minuten alles entscheidet.
