@@ -26,9 +26,9 @@ Taron und Oswin finden Merlans Haus am alten Brunnen, aus dessen Esse eine Farbe
 
 ## Kapitel 7: Pulver und Prophezeiungen
 
-Merlan liest die Waldkircher Prophezeiung neu und erklaert, dass sie Taron nicht als grossen Kaempfer ausweist, sondern als jemanden ohne Machtlinie, Orden oder alten Anspruch. Nebenbei erwaehnt er alte Wesen, Eidtraeger und Schutzmaechte als vergessenen Teil der Ueberlieferung, gibt Taron eine seltene, aber nichtmagische Rauchbombe fuer die Flucht, und Oswin erkennt sie als Kriegswerkzeug, das in Schlachten schon ueber Sieg und Niederlage entschieden hat.
+Merlan liest die Waldkircher Prophezeiung neu und erklaert, dass sie Taron nicht als grossen Kaempfer ausweist, sondern als jemanden ohne Machtlinie, Orden oder alten Anspruch. Er erkennt ausserdem, dass Taron nicht einen, sondern drei Splitter suchen muss; Taron wird wuetend, und der Erzaehler erinnert ihn genussvoll an seinen angeblich so einfachen Plan aus Kapitel 4.
 
-Merlan warnt vor dem Turm von Abendriss als altem Siegel und bleibt in Hohensteg zurueck, weil Reisen fuer ihn eine ueberschaetzte Methode des Denkens ist.
+Nebenbei erwaehnt Merlan alte Wesen, Eidtraeger und Schutzmaechte als vergessenen Teil der Ueberlieferung, gibt Taron eine seltene, aber nichtmagische Rauchbombe fuer die Flucht, und Oswin erkennt sie als Kriegswerkzeug, das in Schlachten schon ueber Sieg und Niederlage entschieden hat. Merlan warnt vor dem Turm von Abendriss als altem Siegel und bleibt in Hohensteg zurueck, weil Reisen fuer ihn eine ueberschaetzte Methode des Denkens ist.
 
 ## Kapitel 8: Der erste Splitter
 
