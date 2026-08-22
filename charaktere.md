@@ -183,7 +183,7 @@ Sir Oswin ist ein tapferer, starker und auffallend gutaussehender Ritter, der le
 
 Merlan Graufinger gilt in Hohensteg als oertlicher Zauberer, was mehr ueber Hohensteg sagt als ueber Merlan. In Wahrheit ist er ein Gelehrter alter Weissagungen, Eide und heiliger Abschriften, der an Prophezeiungen glaubt, aber nicht an die bequemen Lesarten, die Priester, Koenige und verängstigte Doerfer daraus machen. Fuer die Leute im Dorf ist er trotzdem ein Zauberer, ungefaehr wie schlechtes Wetter oder ein Wirt, der alles weiss. Merlan wohnt in einem kleinen Haus mit schiefer Esse, aus der je nach Lage gruen, blau, schwarz oder gar kein Rauch kommt; niemand weiss, ob das Magie ist oder nur schlechter Ofenbau.
 
-Merlan erklaert moderne Magie als eine Art Stoffkunde: Kraeuter, Metalle, Saeuren, Salze, Rauch, Hitze, Gaerung und Reaktionen, die fuer Unkundige wie Zauberei wirken. Das bedeutet fuer ihn nicht, dass es keine echte Magie gibt. Im Gegenteil: Er findet es gefaehrlich, beides zu verwechseln, weil man dann alte Maechte fuer Taschenspielerei haelt und Taschenspielerei fuer Offenbarung.
+Merlan erklaert moderne Magie als eine Art Stoffkunde: Kraeuter, Metalle, Saeuren, Salze, Rauch, Hitze, Gaerung und Reaktionen, die fuer Unkundige wie Zauberei wirken. Manche dieser Mittel sind so selten, teuer oder gefaehrlich herzustellen, dass das Volk sie erst recht fuer Magie haelt. Das bedeutet fuer ihn nicht, dass es keine echte Magie gibt. Im Gegenteil: Er findet es gefaehrlich, beides zu verwechseln, weil man dann alte Maechte fuer Taschenspielerei haelt und Taschenspielerei fuer Offenbarung.
 
 **Persoenlichkeit:** sachlich, glaeubig, trocken, schwer zu beeindrucken. Er ist kein Pfarrer und kein Prediger, sondern eher ein theologischer Fachmensch: ehrfuerchtig gegenueber dem Heiligen, gnadenlos gegenueber schlechten Fussnoten.
 
@@ -194,7 +194,7 @@ Merlan erklaert moderne Magie als eine Art Stoffkunde: Kraeuter, Metalle, Saeure
 - Erwaehnt beiläufig alte Wesen, Eidtraeger und Schutzmaechte als Teil der theologischen Ueberlieferung, ohne dabei direkt zu erkennen oder auszusprechen, dass Tarons Stimme eine davon sein koennte.
 - Kommt nicht mit auf die Reise, weil er seine Arbeit, seine Abschriften und vermutlich auch seinen Ofen fuer wichtiger haelt als heldenhaftes Sterben auf schlechten Wegen.
 - Wird spaeter wieder wichtig, wenn die Splitter der Nachtkrone gesammelt sind und jemand deuten muss, was sie zusammen wirklich zeigen.
-- Gibt Taron eine kleine Rauchbombe mit, reine Stoffkunde und ausdruecklich keine Magie. Sie kann genau einmal fuer dichten, beissenden Rauch sorgen und soll bei einer Flucht helfen.
+- Gibt Taron eine kleine Rauchbombe mit, reine Stoffkunde und ausdruecklich keine Magie, aber selten genug, dass die meisten Menschen sie fuer Zauberei halten wuerden. Sie kann genau einmal fuer dichten, beissenden Rauch sorgen und soll bei einer Flucht helfen.
 - Kann vielleicht Bohnen warm oder Bier kalt halten, aber nur, wenn niemand daraus eine Lehre ueber Magie ableitet.
 
 ---
