@@ -26,7 +26,7 @@ Taron und Oswin finden Merlans Haus am alten Brunnen, aus dessen Esse eine Farbe
 
 ## Kapitel 7: Bohnen warm, Bier kalt
 
-Merlan liest die Waldkircher Prophezeiung neu und erklaert, dass sie Taron nicht als grossen Kaempfer ausweist, sondern als jemanden ohne Machtlinie, Orden oder alten Anspruch. Nebenbei erwaehnt er alte Wesen, Eidtraeger und Schutzmaechte als vergessenen Teil der Ueberlieferung, warnt vor dem Turm von Abendriss als altem Siegel und bleibt in Hohensteg zurueck, weil er Reisen fuer eine ueberschaetzte Methode des Denkens haelt.
+Merlan liest die Waldkircher Prophezeiung neu und erklaert, dass sie Taron nicht als grossen Kaempfer ausweist, sondern als jemanden ohne Machtlinie, Orden oder alten Anspruch. Nebenbei erwaehnt er alte Wesen, Eidtraeger und Schutzmaechte als vergessenen Teil der Ueberlieferung, gibt Taron ein nur einmal verwendbares Glas Eidrauch, warnt vor dem Turm von Abendriss als altem Siegel und bleibt in Hohensteg zurueck, weil er Reisen fuer eine ueberschaetzte Methode des Denkens haelt.
 
 ## Kapitel 8: Der erste Splitter
 
@@ -54,7 +54,7 @@ Die Gruppe betritt das von den Zwergen unterworfene Graumark und erwartet rohe B
 
 ## Kapitel 14: Beinahe Krieg
 
-Taron, Oswin und Mira geraten fast in eine Konfrontation mit einem Zwergentrupp. Oswin will kaempfen, Mira will beweisen, dass sie die Lage kontrolliert, und Taron verhindert die Eskalation hauptsaechlich, weil er im falschen Moment stolpert.
+Taron, Oswin und Mira geraten fast in eine Konfrontation mit einem Zwergentrupp. Oswin will kaempfen, Mira will beweisen, dass sie die Lage kontrolliert, und Taron verhindert die Eskalation hauptsaechlich, weil er im falschen Moment stolpert; Oswin ist danach wuetend, weil Taron Merlans Eidrauch wieder nicht benutzt hat.
 
 ## Kapitel 15: Der Zwerg mit dem gebrochenen Eid
 
@@ -106,7 +106,7 @@ Die Zwerge erscheinen vor Waldkirch, und die Menschen deuten es als den zweiten 
 
 ## Kapitel 27: Die falsche Schlacht
 
-Die Schlacht beginnt, bevor Taron jemanden ueberzeugen kann. Oswin kaempft, aber diesmal nicht, um Zwerge zu toeten, sondern um Menschen und Zwerge lange genug auseinanderzuhalten, damit Taron und Mira zum Eidstein gelangen.
+Die Schlacht beginnt, bevor Taron jemanden ueberzeugen kann. Oswin kaempft, aber diesmal nicht, um Zwerge zu toeten, sondern um Menschen und Zwerge lange genug auseinanderzuhalten, damit Taron und Mira zum Eidstein gelangen; als alles kippt, hebt Taron den Eidrauch trotzdem noch auf, was Oswin beinahe den Verstand kostet.
 
 ## Kapitel 28: Unter der Burg
 
@@ -132,7 +132,7 @@ Der Eidstein zeigt Menschen und Zwergen die Wahrheit ueber den Krieg vor zehn Ja
 
 ## Kapitel 33: Stille auf dem Schlachtfeld
 
-Die Wahrheit beendet den Krieg nicht sofort, aber sie nimmt ihm die Gewissheit. Waffen sinken, Befehle stocken, und Taron schafft es, gerade genug Zeit zu gewinnen, damit niemand den naechsten Schlag zum Anfang eines neuen Jahrhunderts Blutvergiessen macht.
+Die Wahrheit beendet den Krieg nicht sofort, aber sie nimmt ihm die Gewissheit. Als ein letzter falscher Befehl die Schlacht doch wieder entzuenden soll, zerbricht Taron endlich Merlans vergessenes Glas Eidrauch; der Rauch macht die fremde Bindung fuer alle sichtbar, Waffen sinken, Befehle stocken, und Taron gewinnt gerade genug Zeit, damit niemand den naechsten Schlag zum Anfang eines neuen Jahrhunderts Blutvergiessen macht.
 
 ## Kapitel 34: Der neue Eid
 

@@ -194,6 +194,7 @@ Merlan erklaert moderne Magie als eine Art Stoffkunde: Kraeuter, Metalle, Saeure
 - Erwaehnt beiläufig alte Wesen, Eidtraeger und Schutzmaechte als Teil der theologischen Ueberlieferung, ohne dabei direkt zu erkennen oder auszusprechen, dass Tarons Stimme eine davon sein koennte.
 - Kommt nicht mit auf die Reise, weil er seine Arbeit, seine Abschriften und vermutlich auch seinen Ofen fuer wichtiger haelt als heldenhaftes Sterben auf schlechten Wegen.
 - Wird spaeter wieder wichtig, wenn die Splitter der Nachtkrone gesammelt sind und jemand deuten muss, was sie zusammen wirklich zeigen.
+- Gibt Taron ein kleines versiegeltes Glas mit Eidrauch mit, eine einmalige Mischung aus Stoffkunde und alter Formel. Zerbrochen macht es fuer wenige Atemzuege verborgene Bindungen sichtbar und kann Wesen, die an falsche Eide gebunden sind, irritieren oder aufhalten.
 - Kann vielleicht Bohnen warm oder Bier kalt halten, aber nur, wenn niemand daraus eine Lehre ueber Magie ableitet.
 
 ---
