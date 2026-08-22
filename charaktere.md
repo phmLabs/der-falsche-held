@@ -74,6 +74,8 @@ Elva Kesseldorn arbeitet in der Burgkueche und besitzt eine gefaehrliche Kombina
 
 **Persoenlichkeit:** direkt, mutig, scharfzuengig, loyal, schwer einzuschuechtern. Elva hat wenig Geduld fuer Adelige, Priester oder Maenner, die behaupten, Dinge seien "Schicksal", wenn sie eigentlich nur schlecht geplant wurden.
 
+Nach Tarons Aufbruch bleibt Elva in Waldkirch und bekommt ueber Kueche, Vorratswege und Dienstbotenflure mit, wie der Koenig und Malchior ueber ihn sprechen, wenn keine feierliche Menge zuhoert. Als sie hoert, dass Tarons Leiden als vertretbarer Preis fuer die Freiheit des Landes gilt, macht sie sich auf die Suche nach ihm. Dadurch ist sie kein zufaelliger Reiseanhang, sondern diejenige, die Taron zeigt, wie schnell ein Mensch in einer Prophezeiung zum Werkzeug wird.
+
 **Staerken:**
 
 - Sehr praktisch und schnell im Denken.

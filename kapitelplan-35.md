@@ -42,9 +42,9 @@ Nach dem Menschenschluessel finden Taron und Oswin Hinweise auf den Schutzschlue
 
 Der Zwergenhauptmann Brokk Eisenhand nimmt Taron und Oswin beim Schutzschluessel gefangen, weil beide Seiten ihn suchen und Taron bereits den Menschenschluessel traegt. Als Brokk merkt, dass Taron mit "Niemandem" spricht, erschrickt er: Auch der Zwergenkoenig begann so, bevor er sich veraenderte.
 
-## Kapitel 11: Elva kommt nach
+## Kapitel 11: Was Elva hoert
 
-Elva folgt der Gruppe, weil sie Schuldgefuehle hat, Taron in die Prophezeiung gestossen zu haben. Taron und Elva versuchen beide, ihre Gefuehle zu ignorieren, was ihnen nur sehr auffaellig gelingt.
+In Waldkirch hoert Elva in der Burgkueche, wie Koenig Albrecht und Malchior die Prophezeiung weiterdeuten und dabei erschreckend ruhig sagen, dass Tarons Leiden ein tragbarer Preis sei, wenn das Land dadurch Freiheit gewinnt. Elva, die ihn mit der Milch ueberhaupt erst in diese Rolle gestossen hat, beschliesst, ihm diese Wahrheit zu sagen, und macht sich auf die Suche nach ihm.
 
 ## Kapitel 12: Der Schutzschluessel
 
@@ -86,9 +86,9 @@ In Ellingen, dem zweiten unterworfenen Nachbarland, findet die Gruppe alte Hinwe
 
 Mit zwei Schluesseln und dem Wissen, dass die Zwerge den dritten besitzen, sucht die Gruppe Merlan erneut auf, weil niemand mehr so tun kann, als sei die Prophezeiung nur ein frommer Vers. Merlan, Brokk und der Erzaehler deuten die Eidschluessel aus drei voellig verschiedenen Blickwinkeln, doch das Eidenschloss wirkt nicht wie ein Werkzeug, sondern wie ein Gefaengnis, das sich an seine fehlenden Schluessel erinnert; dabei wird klarer, dass der Weinfleck ausgerechnet die wichtigste Stelle der Weissagung verdeckt haben koennte.
 
-## Kapitel 22: Elvas Wahrheit
+## Kapitel 22: Elvas Warnung
 
-Elva zwingt Taron, endlich auszusprechen, dass er nicht nur weglaufen will, sondern Angst hat, alle zu enttaeuschen. Dabei wird klar, dass sie ihn nicht liebt, weil er ein Held sein koennte, sondern weil er trotz allem nicht ganz verschwindet.
+Auf dem Rueckweg nach Waldkirch findet Elva Taron und sagt ihm, was sie in der Burg gehoert hat: Fuer Koenig und Priester ist er laengst nicht mehr Taron, sondern ein notwendiges Opfer mit brauchbarem Namen. Das trifft Taron haerter als ein Befehl, weil es seine Angst bestaetigt, nur noch als Werkzeug gesehen zu werden; Elva macht klar, dass sie ihn nicht deshalb gesucht hat, weil er ein Held ist, sondern weil er Taron ist.
 
 ## Kapitel 23: Der Schutzdaemon
 

@@ -138,6 +138,8 @@ Er spielt den Auftrag im Kopf durch und macht ihn sich laecherlich einfach: hinr
 
 Dieser Gedanke fuehrt ihn zu Elva. Er gesteht sich selbst ein, dass er sie liebt, will aber sofort nicht weiter daran denken.
 
+Elva bleibt zunaechst in Waldkirch und wird dort zur zweiten Perspektive auf die Burg. In der Kueche und auf den Dienstwegen bekommt sie mit, wie Koenig Albrecht und Malchior ueber Taron sprechen, sobald er nicht mehr im Raum ist. Sie sagen nicht grausam, sondern geradezu vernuenftig, dass ein wenig Leiden des Auserwaehlten tragbar sei, wenn dadurch das ganze Land Freiheit gewinne. Weil Elva weiss, dass Taron nie wirklich gefragt wurde, macht sie sich spaeter auf die Suche nach ihm.
+
 Auf dem Ritt fragt Taron den Erzaehler, warum er ihn damals verlassen hat und wo er war. Die Antwort ist kurz und trauriger als sonst. Taron merkt, dass die letzten zehn Jahre auch fuer die Stimme schmerzhaft waren, und fragt nicht weiter.
 
 Der Weg zum Turm von Abendriss dauert etwa zwei Tagesritte. Am ersten Abend erreicht Taron die Freie Burg Hohensteg und das Gasthaus Zum Blauen Eber. Er versucht, als Auserwaehlter kostenlos ein Zimmer zu bekommen, scheitert aber an einem sehr praktischen Wirt.
@@ -191,6 +193,8 @@ Im Kampf ergaenzen sie sich besser, als beide zugeben wollen. Oswin liest offene
 Im Finale veraendert sich ihre Zaehlweise. Sie toeten weiterhin, wenn sie muessen, aber sie zaehlen nicht mehr nur die Gegner, die fallen. Wenn Brokk einen Menschen niederstreckt, der gerade einen Zwerg erschlagen wuerde, zaehlt Oswin den geretteten Zwerg. Wenn Oswin einen Zwerg aufhaelt, der einen jungen Soldaten zerhacken wuerde, zaehlt Brokk den geretteten Menschen. Ihre alten Zahlen verschwinden nicht, aber daneben beginnt eine neue Liste.
 
 Wenn die drei Eidschluessel spaeter am Eidenschloss zusammengebracht werden, merken Taron und die anderen zu spaet, was sie angerichtet haben. Der Daemon wird frei, der Zwergenkoenig bricht zusammen, und die Zwerge glauben, die Menschen haetten ihren Koenig getoetet. Dadurch beginnt der eigentliche Kampf erst recht.
+
+Elva findet Taron auf dem Rueckweg nach Waldkirch und bringt ihm keine romantische Geste, sondern eine Warnung: In der Burg ist er fuer viele bereits weniger Mensch als Zeichen, Werkzeug und moegliches Opfer. Das macht sie organischer fuer die Handlung, weil sie nicht einfach mitreist, sondern aus Waldkirch genau die Information bringt, die Taron am meisten trifft.
 
 In diesem Chaos kommt endlich Merlans Rauchbombe zum Einsatz. Taron benutzt sie nicht als heldische Waffe, sondern genau so, wie sie gedacht war: um nicht sofort getoetet zu werden. Im dichten Rauch entkommt er lange genug, damit der Kampf nicht in den ersten Minuten alles entscheidet.
 
