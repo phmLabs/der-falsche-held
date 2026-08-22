@@ -22,15 +22,15 @@ Oswin zeigt auf der Strasse, dass er trotz Alkohol und Kater ein echter Ritter i
 
 ## Kapitel 6: Merlan Graufingers Haus
 
-Taron und Oswin finden Merlans Haus am alten Brunnen, aus dessen Esse eine Farbe steigt, die laut Wirt nichts Gutes bedeutet. Merlan entpuppt sich als seltsamer, praktischer und gefaehrlich kompetenter Zauberer, der behauptet, er habe sie bereits erwartet, obwohl niemand ihn eingeladen hat.
+Taron und Oswin finden Merlans Haus am alten Brunnen, aus dessen Esse eine Farbe steigt, die laut Wirt nichts Gutes bedeutet. Merlan entpuppt sich nicht als klassischer Zauberer, sondern als Prophezeiungsgelehrter, der an Weissagungen glaubt und gerade deshalb sehr ungehalten ist, wenn Menschen sie bequem falsch lesen.
 
 ## Kapitel 7: Bohnen warm, Bier kalt
 
-Merlan demonstriert Magie auf eine Weise, die gleichzeitig beeindruckend und peinlich alltagsnah ist. Er erkennt Spuren alter Eidmagie an Tarons Ausruestung und erklaert, dass der Turm von Abendriss nicht nur ein Ort, sondern ein Siegel ist.
+Merlan liest die Waldkircher Prophezeiung neu und erklaert, dass sie Taron nicht als grossen Kaempfer ausweist, sondern als jemanden ohne Machtlinie, Orden oder alten Anspruch. Er gibt ihnen eine sachlichere Deutung, warnt vor dem Turm von Abendriss als altem Siegel und bleibt in Hohensteg zurueck, weil er Reisen fuer eine ueberschaetzte Methode des Denkens haelt.
 
 ## Kapitel 8: Der erste Splitter
 
-Die Gruppe erreicht den Turm von Abendriss und findet den ersten Splitter der Nachtkrone. Taron ueberlebt die Pruefung nicht durch Tapferkeit, sondern durch eine Mischung aus Panik, Oswins Koennen, Merlans Magie und einem Hinweis des Erzaehlers, der zu genau ist, um Zufall zu sein.
+Taron und Oswin erreichen den Turm von Abendriss und finden den ersten Splitter der Nachtkrone. Taron ueberlebt die Pruefung nicht durch Tapferkeit, sondern durch eine Mischung aus Panik, Oswins Koennen, Merlans Warnung und einem Hinweis des Erzaehlers, der zu genau ist, um Zufall zu sein.
 
 ## Kapitel 9: Die, die gemeint war
 
@@ -62,7 +62,7 @@ Ein Zwergenhauptmann namens Brokk nimmt die Gruppe gefangen, laesst sie aber leb
 
 ## Kapitel 16: Was unter Waldkirch lag
 
-Merlan erkennt, dass die Zwerge den Eidstein gefunden haben, ein uraltes Artefakt eines Friedensbundes zwischen Menschen, Zwergen und Schutzmaechten. Der Eidstein war beschaedigt, und beide Seiten besitzen nur Bruchstuecke der Wahrheit.
+Brokk beschreibt, was die Zwerge vor zehn Jahren unter Waldkirch gefunden haben: den Eidstein, ein uraltes Artefakt eines Friedensbundes zwischen Menschen, Zwergen und Schutzmaechten. Die Gruppe begreift noch nicht alles, aber Merlans fruehere Deutung der Prophezeiung bekommt ploetzlich ein gefaehrliches Gewicht.
 
 ## Kapitel 17: Oswins Zahl
 
@@ -82,7 +82,7 @@ In Ellingen, dem zweiten unterworfenen Nachbarland, findet die Gruppe den dritte
 
 ## Kapitel 21: Mira und die falsche Krone
 
-Mira versucht, die Splitter zu benutzen, um ihre eigene Auserwaehltheit zu beweisen. Die Nachtkrone reagiert auf sie, aber nicht vollstaendig, und zeigt, dass Heldentum, Blutlinie und Bestimmung nicht dasselbe sind.
+Mit den gesammelten Splittern sucht die Gruppe Merlan erneut auf, weil niemand mehr so tun kann, als sei die Prophezeiung nur ein frommer Vers. Mira versucht, die Splitter zu benutzen, um ihre eigene Auserwaehltheit zu beweisen, doch Merlans sachliche Deutung und die unvollstaendige Reaktion der Nachtkrone zeigen, dass Heldentum, Blutlinie und Bestimmung nicht dasselbe sind.
 
 ## Kapitel 22: Elvas Wahrheit
 
@@ -90,7 +90,7 @@ Elva zwingt Taron, endlich auszusprechen, dass er nicht nur weglaufen will, sond
 
 ## Kapitel 23: Der Schutzdaemon
 
-Merlan erklaert, dass die Stimme wahrscheinlich ein Schutzdaemon ist, ein gebundenes Wesen, das eigentlich einen Eidtraeger schuetzen soll. Taron erkennt, dass sein Freund aus der Kindheit nicht eingebildet war, sondern Teil einer alten Ordnung.
+Merlan erklaert aus den Splittern und den alten Randnotizen, dass die Stimme wahrscheinlich ein Schutzdaemon ist, ein gebundenes Wesen, das eigentlich einen Eidtraeger schuetzen soll. Taron erkennt, dass sein Freund aus der Kindheit nicht eingebildet war, sondern Teil einer alten Ordnung.
 
 ## Kapitel 24: Der andere
 
@@ -122,7 +122,7 @@ Mira versucht, den Eid zu erneuern, scheitert aber, weil sie den Akt als Aufgabe
 
 ## Kapitel 31: Der Erzaehler tritt vor
 
-Als der andere Schutzdaemon Taron uebernehmen will, sperrt er die Gruppe mit seinen Dienern in der Kammer des Eidsteins ein; Taron liegt blutend am Boden, Oswin ist entwaffnet, Merlans Magie bricht, und alles sieht so endgueltig schlecht aus, dass selbst der Erzaehler fuer einen Moment keinen Kommentar findet. Dann uebernimmt der Erzaehler Taron mit einem gewaltigen Schutzzauber: Die Luft wird still, jedes gesprochene Wort klingt wie ein Urteil, und alle feindlichen Wesen im Raum fallen in einem einzigen, furchtbaren Augenblick tot zu Boden.
+Als der andere Schutzdaemon Taron uebernehmen will, sperrt er die Gruppe mit seinen Dienern in der Kammer des Eidsteins ein; Taron liegt blutend am Boden, Oswin ist entwaffnet, Mira scheitert am falschen Anspruch, und alles sieht so endgueltig schlecht aus, dass selbst der Erzaehler fuer einen Moment keinen Kommentar findet. Dann uebernimmt der Erzaehler Taron mit einem gewaltigen Schutzzauber: Die Luft wird still, jedes gesprochene Wort klingt wie ein Urteil, und alle feindlichen Wesen im Raum fallen in einem einzigen, furchtbaren Augenblick tot zu Boden.
 
 Taron ist nicht dankbar, sondern wuetend, weil genau diese Macht im Dungeon, in Graumark und an einem Dutzend anderer Stellen hilfreich gewesen waere. Der Erzaehler versucht, das mit trockenen Spruechen zu ueberspielen, aber seine Stimme ist bruechig, leise und fuer Sekunden wieder fast die Stimme aus Tarons Kindheit; Taron begreift, dass dieser Schutz nie kostenlos war und dass der Erzaehler sich mit jedem direkten Eingriff selbst verbraucht.
 

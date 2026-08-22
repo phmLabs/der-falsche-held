@@ -156,6 +156,12 @@ Oswin schlaegt vor, einen Zauberer zu suchen. Seiner Meinung nach kann man Zaube
 
 Taron behauptet, in einem komischen Kaff wie Hohensteg werde man sowieso keinen Magier finden. Der Wirt vom Blauen Eber antwortet ganz selbstverstaendlich, dass es natuerlich einen Zauberer im Dorf gibt: Merlan Graufinger. Er sagt das, als sei er die ganze Zeit Teil des Gespraechs gewesen. War er nicht.
 
+## Folge fuer Kapitel 6 und 7: Der falsche Zauberer
+
+Taron und Oswin suchen Merlan in der Erwartung, einen Zauberer zu finden, der Feuer, Licht oder wenigstens warme Bohnen beisteuert. Stattdessen finden sie einen Prophezeiungsgelehrten, der an Weissagungen glaubt, aber ihre Auslegung sehr viel ernster nimmt als die Priester von Waldkirch.
+
+Merlan liest die Prophezeiung sachlich neu. Er erklaert, dass sie nicht beweist, dass Taron ein grosser Held oder Kaempfer ist, sondern dass Taron eine alte Bedingung erfuellt: Er ist jemand ohne Machtlinie, ohne Orden, ohne Anspruch und damit vielleicht genau die falsche Person, die eine gebrochene Ordnung nicht sofort wieder im Sinne einer Seite benutzt. Merlan hilft ihnen mit Deutung, Warnungen und einer Richtung, kommt aber nicht mit.
+
 ## Spaetere Schluesselszene: Der Preis des Schutzes
 
 In der Kammer des Eidsteins geraet Taron spaeter in eine Lage, aus der es keinen normalen Ausweg mehr gibt. Der andere Schutzdaemon hat ihn fast, die Gefaehrten koennen nicht mehr helfen, und die feindlichen Wesen im Raum ruecken so sicher naeher, als haette die Geschichte bereits entschieden, wer hier stirbt.

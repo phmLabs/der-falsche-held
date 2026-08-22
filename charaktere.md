@@ -177,19 +177,21 @@ Sir Oswin ist ein tapferer, starker und auffallend gutaussehender Ritter, der le
 
 ## Merlan Graufinger
 
-**Rolle:** Zauberer in der Freien Burg Hohensteg  
+**Rolle:** Prophezeiungsgelehrter in der Freien Burg Hohensteg, von allen "Zauberer" genannt  
 **Alter:** Unklar, vermutlich aelter, als seine Haltung zugibt  
 **Herkunft:** Kleines Haus am alten Brunnen von Hohensteg  
 
-Merlan Graufinger ist der oertliche Zauberer von Hohensteg. Fuer Taron klingt das unglaublich, fuer die Leute im Dorf ist es eine Selbstverstaendlichkeit, ungefaehr wie schlechtes Wetter oder ein Wirt, der alles weiss. Merlan wohnt in einem kleinen Haus mit schiefer Esse, aus der je nach Lage gruen, blau, schwarz oder gar kein Rauch kommt.
+Merlan Graufinger gilt in Hohensteg als oertlicher Zauberer, was mehr ueber Hohensteg sagt als ueber Merlan. In Wahrheit ist er ein Gelehrter alter Weissagungen, Eide und heiliger Abschriften, der an Prophezeiungen glaubt, aber nicht an die bequemen Lesarten, die Priester, Koenige und verängstigte Doerfer daraus machen. Fuer die Leute im Dorf ist er trotzdem ein Zauberer, ungefaehr wie schlechtes Wetter oder ein Wirt, der alles weiss. Merlan wohnt in einem kleinen Haus mit schiefer Esse, aus der je nach Lage gruen, blau, schwarz oder gar kein Rauch kommt; niemand weiss, ob das Magie ist oder nur schlechter Ofenbau.
 
-**Persoenlichkeit:** noch offen. Er sollte nicht zu klassisch ehrwuerdig sein, sondern praktisch, seltsam und ein wenig gefaehrlich auf eine Weise, an die Hohensteg sich gewoehnt hat.
+**Persoenlichkeit:** sachlich, glaeubig, trocken, schwer zu beeindrucken. Er ist kein Pfarrer und kein Prediger, sondern eher ein theologischer Fachmensch: ehrfuerchtig gegenueber dem Heiligen, gnadenlos gegenueber schlechten Fussnoten.
 
 **Moegliche Funktionen:**
 
-- Kann der Gruppe magische Grundkenntnisse, Warnungen oder ein nutzlos wirkendes Artefakt mitgeben.
-- Kann tatsaechlich nuetzlich sein, aber nie genau so, wie Taron es gern haette.
-- Kann Bohnen warm oder Bier kalt zaubern, falls alle anderen Qualifikationen versagen.
+- Liest die Prophezeiung sachlich neu und zeigt, dass Waldkirch aus einer alten Warnung eine bequeme Heldenauszeichnung gemacht hat.
+- Erklaert Taron und Oswin, dass die Weissagung den "Auserwaehlten" nicht als besten Kaempfer beschreibt, sondern als jemanden, der ohne alten Anspruch zwischen den Eiden stehen kann.
+- Kommt nicht mit auf die Reise, weil er seine Arbeit, seine Abschriften und vermutlich auch seinen Ofen fuer wichtiger haelt als heldenhaftes Sterben auf schlechten Wegen.
+- Wird spaeter wieder wichtig, wenn die Splitter der Nachtkrone gesammelt sind und jemand deuten muss, was sie zusammen wirklich zeigen.
+- Kann vielleicht Bohnen warm oder Bier kalt halten, aber nur, wenn niemand daraus eine Lehre ueber Magie ableitet.
 
 ---
 
