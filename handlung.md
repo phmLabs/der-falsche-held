@@ -178,7 +178,11 @@ Als Taron den ersten Splitter findet, bemerkt unser Erzaehler dessen Ausstrahlun
 
 Damit wird auch klarer, was die Zwerge vor zehn Jahren unter Waldkirch gesucht haben: Sie suchten nicht Gold oder Land, sondern Spuren dieser alten Splitter und des gebrochenen Gefaengnisses. Der boese Erzaehler im Zwergenkoenig hat ihre Suche gelenkt und sie glauben lassen, sie muessten die Splitter sichern, um ihr Volk zu retten. In Wahrheit bereiten sie seine Befreiung vor.
 
-Wenn die Splitter spaeter zusammengebracht werden, merken Taron und die anderen zu spaet, was sie angerichtet haben. Der Daemon wird frei, der Zwergenkoenig bleibt gebrochen zurueck, und die unmittelbare Schlacht kann zwar beendet werden, aber die eigentliche Macht verschwindet in die Welt. Das gibt Band 1 ein abgeschlossenes Ende im Krieg, aber oeffnet Band 2 mit einer deutlich groesseren Gefahr.
+Wenn die Splitter spaeter zusammengebracht werden, merken Taron und die anderen zu spaet, was sie angerichtet haben. Der Daemon wird frei, der Zwergenkoenig bricht zusammen, und die Zwerge glauben, die Menschen haetten ihren Koenig getoetet. Dadurch beginnt der eigentliche Kampf erst recht.
+
+In diesem Chaos kommt endlich Merlans Rauchbombe zum Einsatz. Taron benutzt sie nicht als heldische Waffe, sondern genau so, wie sie gedacht war: um nicht sofort getoetet zu werden. Im dichten Rauch entkommt er lange genug, damit der Kampf nicht in den ersten Minuten alles entscheidet.
+
+Als der Zwergenkoenig wieder erwacht, ist die fremde Stimme fort. Er begreift, wie sehr er in den letzten Jahren fehlgeleitet wurde, und befiehlt seinen Leuten, die Waffen fallen zu lassen. Der Befehl beendet nicht alle Feindschaft, aber er beendet die Schlacht. Das erste Buch endet danach ruhiger: Die wichtigsten Figuren sitzen noch einmal zusammen und versuchen zu verstehen, was wirklich passiert ist, waehrend der befreite Daemon bereits in die Welt verschwunden ist.
 
 ## Spaetere Schluesselszene: Der Preis des Schutzes
 

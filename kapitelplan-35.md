@@ -116,7 +116,7 @@ Taron kehrt in den Dungeon zurueck, wo der Hunger von Waldkirch noch immer lauer
 
 ## Kapitel 29: Der Eidstein
 
-Unter Waldkirch finden sie den Eidstein, gebrochen und von fremder Schutzdaemonenmagie verfaelscht. Die Splitter der Nachtkrone koennen ihn oeffnen, aber ihr Zusammenkommen loest zugleich die letzten Riegel des Gefaengnisses, das den anderen Erzaehler im Zwergenkoenig bisher nur halb frei liess.
+Unter Waldkirch finden sie den Eidstein, gebrochen und von fremder Schutzdaemonenmagie verfaelscht. Der Zwergenkoenig bekommt die drei Splitter, und ihr Zusammenkommen loest die letzten Riegel des Gefaengnisses, das den anderen Erzaehler bisher nur halb frei liess.
 
 ## Kapitel 30: Nicht die Richtige
 
@@ -130,16 +130,16 @@ Taron ist nicht dankbar, sondern wuetend, weil genau diese Macht im Dungeon, in 
 
 ## Kapitel 32: Was wirklich geschah
 
-Der Eidstein zeigt Menschen und Zwergen die Wahrheit ueber den Krieg vor zehn Jahren. Die Zwerge flohen damals nicht, sondern fanden Spuren des beschaedigten Gefaengnisses; ihr Koenig wurde seitdem von der eingeschlossenen Stimme gefuehrt, und beide Seiten wurden Schritt fuer Schritt in Richtung Krieg geschoben.
+Der boese Erzaehler wird frei, verschwindet aus dem Zwergenkoenig und laesst ihn bewusstlos zurueck. Die Zwerge glauben, die Menschen haetten ihren Koenig getoetet; die Wahrheit ueber den Krieg vor zehn Jahren blitzt zwar auf, aber niemand hat Zeit, sie zu begreifen, weil die Schlacht sofort losbricht.
 
 ## Kapitel 33: Stille auf dem Schlachtfeld
 
-Die Wahrheit beendet den Krieg nicht sofort, aber sie nimmt ihm die Gewissheit. Als ein letzter falscher Befehl die Schlacht doch wieder entzuenden soll, zerbricht Taron endlich Merlans fast vergessene Rauchbombe; im dichten beissenden Rauch verschwindet er genau lange genug, um den entscheidenden Schlag oder Befehl zu verhindern, und gewinnt die Sekunden, in denen Waffen sinken und niemand den naechsten Schlag zum Anfang eines neuen Jahrhunderts Blutvergiessen macht.
+Der Kampf wird wild und unuebersichtlich, weil beide Seiten glauben, gerade das Schlimmste gesehen zu haben. Taron zerbricht endlich Merlans fast vergessene Rauchbombe und rettet sich im dichten beissenden Rauch vor den Zwergen, die ihn fuer den Moerder ihres Koenigs halten.
 
 ## Kapitel 34: Der neue Eid
 
-Taron, Mira, Brokk, Albrecht und Elva sprechen keinen grossen Friedenszauber, sondern einen vorlaeufigen, fragilen Waffenstillstand. Die Nachtkrone und der Eidstein binden nicht alle an Frieden, sondern an Wahrheit: Wer den Krieg fortsetzt, muss wissen, wofuer er wirklich kaempft.
+Der Zwergenkoenig erwacht wieder, hoert zum ersten Mal seit Jahren keine fremde Stimme mehr und erkennt, wie sehr er fehlgeleitet wurde. Er befiehlt den Zwergen, die Waffen fallen zu lassen, und zwingt damit auch die Menschen in einen vorlaeufigen, fragilen Waffenstillstand.
 
 ## Kapitel 35: Natuerlich war das geplant
 
-Waldkirch steht noch, aber nichts ist wieder wie vorher: Menschen und Zwerge muessen miteinander verhandeln, Oswin muss mit alten Feinden reisen koennen, und Taron kann nicht mehr behaupten, er habe mit alldem nichts zu tun. Der Erzaehler behauptet, alles sei geplant gewesen, waehrend der befreite boese Erzaehler aus dem Zwergenkoenig verschwindet und als eigentliche Gefahr fuer Band zwei in die Welt tritt.
+Waldkirch steht noch, aber nichts ist wieder wie vorher: Menschen und Zwerge sitzen nach der Schlacht zum ersten Mal zusammen und versuchen zu verstehen, was mit den Splittern, dem Zwergenkoenig und den beiden Stimmen wirklich passiert ist. Der Erzaehler behauptet, alles sei geplant gewesen, waehrend der befreite boese Erzaehler als eigentliche Gefahr fuer Band zwei in die Welt verschwunden ist.
