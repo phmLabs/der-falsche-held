@@ -165,6 +165,7 @@ Sir Oswin ist ein tapferer, starker und auffallend gutaussehender Ritter, der le
 - Kennt Strassen, Burgen und militaerische Gefahren.
 - Bleibt ruhig, wenn andere panisch werden.
 - Hat betrunken offenbar einen besseren moralischen Kompass als viele Menschen nuechtern.
+- Zaehlt die Zwerge, die er getoetet hat, nicht aus Stolz, sondern weil er sie nicht zu einer namenlosen Masse machen will.
 
 **Schwaechen:**
 
@@ -221,6 +222,7 @@ Als Brokk Taron gefangen nimmt und merkt, dass auch dieser mit "Niemandem" spric
 - Kann kaempfen und in einer Schlacht Ordnung halten.
 - Weiss, wie der Zwergenkoenig frueher war, und erkennt deshalb die Veraenderung.
 - Erinnert sich an die alte Waerme der Zwergenhallen und weiss, dass sein Volk nicht immer nur aus Marsch, Befehl und Graben bestand.
+- Zaehlt die Menschen, die er getoetet hat, aus einem aehnlichen Grund wie Oswin: weil er fuerchtet, sonst nur noch Feinde zu sehen und keine Einzelnen.
 - Hat genug Autoritaet, um spaeter den Befehl des erwachten Koenigs glaubhaft weiterzutragen.
 
 **Schwaechen:**
@@ -231,7 +233,7 @@ Als Brokk Taron gefangen nimmt und merkt, dass auch dieser mit "Niemandem" spric
 
 **Beziehung zu Taron:** Brokk laesst Taron und Oswin entkommen und schliesst sich ihnen als neuer Gefaehrte an, weil er den alten Koenig zurueckhaben will. Taron findet das zunaechst furchtbar, weil er nicht einmal der Hoffnung der Menschen gewachsen ist und nun auch noch die Hoffnung eines Zwergs tragen soll.
 
-**Beziehung zu Oswin:** Oswin hat viele Zwerge getoetet und Brokk viele Menschen. Ihre Zusammenarbeit beginnt mit Hass, Disziplin und sehr genauen Erinnerungen daran, wer wen in welcher Schlacht beinahe umgebracht haette. Gerade dadurch kann Oswins Blick auf die Zwerge sich glaubwuerdig veraendern.
+**Beziehung zu Oswin:** Oswin hat viele Zwerge getoetet und Brokk viele Menschen. Ihre Zusammenarbeit beginnt mit Hass, Disziplin und sehr genauen Erinnerungen daran, wer wen in welcher Schlacht beinahe umgebracht haette. Als sie merken, dass ihre Zahlen erschreckend nah beieinander liegen, macht sie das zuerst misstrauischer. Spaeter wird genau daraus ein bruechiger Respekt: Beide wissen, was der andere kann, und beide wissen, was es gekostet hat. Gerade dadurch kann Oswins Blick auf die Zwerge sich glaubwuerdig veraendern.
 
 ---
 

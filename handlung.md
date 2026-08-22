@@ -184,6 +184,10 @@ Brokk Eisenhand wird dabei zum entscheidenden neuen Gefaehrten. Er nimmt Taron u
 
 Brokk macht klar, dass mit dem Koenig auch das Zwergenreich selbst veraendert wurde. Frueher wurde in den Hallen gesungen, gegessen, gestritten und gefeiert; selbst ein harter Koenig wusste, wann ein Volk trinken, trauern oder lachen musste. Seit die Stimme kam, wurden Lieder zu Laerm, Feste zu Verschwendung und Zweifel zu Ungehorsam. Fuer Brokk geht es deshalb nicht nur um Politik, sondern um die Rueckkehr eines ganzen verlorenen Lebens.
 
+Zwischen Oswin und Brokk ist am Anfang fast alles Spannung. Oswin zaehlt die Zwerge, die er getoetet hat; Brokk zaehlt die Menschen. Als sie feststellen, dass ihre Zahlen aehnlich hoch sind, ist das kein Moment der Versoehnung, sondern ein sehr stiller Grund, die Hand naeher an der Waffe zu lassen. Erst spaeter merken sie, dass sie aus demselben Grund zaehlen: damit aus Feinden wieder Einzelne werden.
+
+Im Kampf ergaenzen sie sich besser, als beide zugeben wollen. Oswin liest offene Bewegung, Geschwindigkeit und Luecken; Brokk liest Stand, Druck und Linien. Zusammen werden sie gefaehrlich, weil sie genau die Art Krieg kennen, die der andere ueberlebt hat.
+
 Wenn die Splitter spaeter zusammengebracht werden, merken Taron und die anderen zu spaet, was sie angerichtet haben. Der Daemon wird frei, der Zwergenkoenig bricht zusammen, und die Zwerge glauben, die Menschen haetten ihren Koenig getoetet. Dadurch beginnt der eigentliche Kampf erst recht.
 
 In diesem Chaos kommt endlich Merlans Rauchbombe zum Einsatz. Taron benutzt sie nicht als heldische Waffe, sondern genau so, wie sie gedacht war: um nicht sofort getoetet zu werden. Im dichten Rauch entkommt er lange genug, damit der Kampf nicht in den ersten Minuten alles entscheidet.

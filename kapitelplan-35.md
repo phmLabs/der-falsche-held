@@ -68,7 +68,7 @@ Brokk beschreibt, was die Zwerge vor zehn Jahren unter Waldkirch gefunden haben:
 
 ## Kapitel 17: Oswins Zahl
 
-Oswin wird mit Zwergen konfrontiert, die nicht zu seinem Bild vom Feind passen. Seine Liste der Getoeteten wird schwerer, weil er begreift, dass manche seiner Sicherheiten eher Narben als Wahrheiten waren.
+Oswin und Brokk geraten aneinander, weil beide fast gleich viele der jeweils anderen Seite getoetet haben und beide diese Toten zaehlen. Anfangs macht diese Aehnlichkeit sie misstrauisch, doch langsam erkennen sie, dass sie nicht aus Stolz zaehlen, sondern weil sie verhindern wollen, dass die Toten zu einer namenlosen Masse werden.
 
 ## Kapitel 18: Die dritte Hand
 
@@ -108,7 +108,7 @@ Die Zwerge erscheinen vor Waldkirch, und die Menschen deuten es als den zweiten 
 
 ## Kapitel 27: Die falsche Schlacht
 
-Die Schlacht beginnt, bevor Taron jemanden ueberzeugen kann. Oswin kaempft, aber diesmal nicht, um Zwerge zu toeten, sondern um Menschen und Zwerge lange genug auseinanderzuhalten, damit Taron und Brokk zum Eidstein gelangen; als alles kippt, hebt Taron die Rauchbombe trotzdem noch auf, was Oswin beinahe den Verstand kostet.
+Die Schlacht beginnt, bevor Taron jemanden ueberzeugen kann. Oswin und Brokk kaempfen erst nebeneinander, weil sie muessen, und dann erschreckend gut, weil ihre Erfahrungen ineinandergreifen: Oswin bricht Bewegung, Brokk haelt Linien. Diesmal kaempfen sie nicht, um die andere Seite zu toeten, sondern um Menschen und Zwerge lange genug auseinanderzuhalten, damit Taron zum Eidstein gelangt; als alles kippt, hebt Taron die Rauchbombe trotzdem noch auf, was Oswin beinahe den Verstand kostet.
 
 ## Kapitel 28: Unter der Burg
 
