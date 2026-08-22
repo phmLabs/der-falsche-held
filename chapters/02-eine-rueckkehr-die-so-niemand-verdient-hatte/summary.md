@@ -1,0 +1,5 @@
+- Taron kehrt verletzt nach Burg Waldkirch zurück, will im Stall arbeiten, wird von Bruder Malchior gefunden und vor König Albrecht geführt.
+- Trotz seiner Proteste erklären Albrecht, Malchior und Vogt Hademar ihn wegen seines Überlebens in der Tiefe zum Auserwählten, da das Reich nach vielen verlorenen Rittern Hoffnung braucht.
+- Er wird notdürftig ausgerüstet und erhält den Auftrag, nach Westen zum Turm von Abendriss zu reiten und den ersten Splitter der Nachtkrone vor der dritten Mondglocke zu bergen.
+- Widerstrebend reitet Taron auf dem alten Pferd Kummer los, hält außer Sicht an, um zu essen und die Prophezeiung infrage zu stellen.
+- Ein dreifaches Hornsignal von der Burg unterbricht ihn: Unklar bleibt, was dort geschieht und ob es ihn sofort betrifft – ebenso wie die wahre Erklärung für seine Entrückung und die Zuverlässigkeit der Prophezeiung.

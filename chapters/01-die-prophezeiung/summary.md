@@ -1,0 +1,5 @@
+- Auf Burg Waldkirch wird der Stallbursche Taron Falkenried nach einem über ihn gekippten Eimer Ziegenmilch von Bruder Malchior per Prophezeiung zum Auserwählten erklärt; König Albrecht verordnet als „Beweis“ eine Prüfung im Gewölbe gegen den „Hunger von Waldkirch“, und Taron wird von Rittern ohne brauchbare Waffe hinabgestoßen.
+- In den Katakomben flieht Taron vor der Kreatur, lässt sich teils von der Stimme/Erzähler in seinem Kopf dirigieren und trifft das Monster mit einer Schale kalter blauer Flamme, wird jedoch schwer verletzt, bevor die Welt abrupt „weggezogen“ wird.
+- Er erwacht bei der Heilerin Marta Grubenlicht: Ein höflicher, unheimlicher Mann in schattenhaftem Mantel hat ihn gebracht, bezahlt und einen besonderen Reiseumhang für ihn hinterlassen.
+- Mit Mantel und Proviant bricht Taron auf, hin- und hergerissen zwischen Rückkehr zur Burg und der Warnung des Erzählers, während er ahnt, dass jemand ihn gezielt zum Helden formen will.
+- Offene Fragen: Wer ist der geheimnisvolle Retter (möglicherweise der Erzähler), was genau geschah beim „Weltzug“, lebt der Hunger noch, und wird Taron zur Burg zurückkehren?

@@ -1,0 +1,5 @@
+- Beim erneuten Erklingen des Horns wird der 17-jährige, verletzte Taron in die Zeit zurückgerissen, als er mit sieben als Waisenknabe auf Burg Waldkirch lebte und von einer schützenden Stimme begleitet wurde.
+- Aus dem Westen kamen Zwergenheere; unter König Albrecht, Sir Berold und Bruder Malchior hielt Waldkirch stand und schlug sie zurück, worauf sie sich in den westlichen Ländern eingruben.
+- Danach brachte Bruder Malchior eine uralte Prophezeiung zurück, die einen kommenden, weder König noch Magier, Ritter noch Weisen verheißt, dessen Schritt das Schicksal stolpern lässt.
+- In den Wochen nach der Schlacht verstummte Tarons innere Stimme und verschwand, was ihn fortan zweifeln ließ.
+- Offene Fragen: Warum verschwand die Stimme; ist Taron der Gemeinte; was bedeutet das jetzige Hornsignal (droht ein neuer Angriff); und wer sind Tarons Eltern?
