@@ -60,7 +60,7 @@ Taron, Oswin und Brokk geraten fast in eine Konfrontation mit einem Zwergentrupp
 
 ## Kapitel 15: Der Zwerg mit dem gebrochenen Eid
 
-Brokk erzaehlt, dass der Zwergenkoenig seit Jahren eine Stimme hoert, die ihn zu den Eidschluesseln fuehrt und ihm einredet, nur ihre Sammlung koenne das Volk retten. Den Zwergenschluessel besitzen die Zwerge bereits: Sie holten ihn sich vor zehn Jahren im ueberfallenen Land zurueck, weshalb ihr Rueckzug vor Waldkirch nie echte Flucht war. Fuer Brokk ist das kein politisches Geheimnis mehr, sondern der Verlust eines Freundes und eines ganzen alten Zwergenlebens aus Liedern, langen Tafeln und Streit, der nicht immer in Krieg endete.
+Brokk erzaehlt, dass der Zwergenkoenig seit Jahren eine Stimme hoert, die ihn zu den Eidschluesseln fuehrt und ihm einredet, nur ihre Sammlung koenne das Volk retten. Eine kurze Rueckblende zeigt Brokk und den jungen Koenig frueher Seite an Seite in einem Kampf, den sie nicht aus Eroberung fuehrten, sondern um ein bedrohtes Dorf und ihre eigenen Leute zu schuetzen; damals war der Koenig hart, aber klar, und er stellte sich vor seine Schwachen statt hinter sie. Den Zwergenschluessel besitzen die Zwerge bereits: Sie holten ihn sich vor zehn Jahren im ueberfallenen Land zurueck, weshalb ihr Rueckzug vor Waldkirch nie echte Flucht war. Fuer Brokk ist das kein politisches Geheimnis mehr, sondern der Verlust eines Freundes und eines ganzen alten Zwergenlebens aus Liedern, langen Tafeln und Streit, der nicht immer in Krieg endete.
 
 ## Kapitel 16: Was unter Waldkirch lag
 

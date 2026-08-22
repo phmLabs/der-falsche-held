@@ -209,7 +209,7 @@ Merlan erklaert moderne Magie als eine Art Stoffkunde: Kraeuter, Metalle, Saeure
 **Alter:** 46  
 **Herkunft:** Westmark, Heer des Zwergenkoenigs  
 
-Brokk Eisenhand ist ein Zwergenhauptmann, der frueher ein enger Vertrauter und vielleicht Freund des Zwergenkoenigs war. Er kannte den Koenig, bevor die Stimme kam: streng, hart, aber gerecht. In den letzten Jahren hat Brokk gesehen, wie aus diesem Koenig jemand wurde, der Befehle gab, als wuerde er sie von einem unsichtbaren Richter empfangen.
+Brokk Eisenhand ist ein Zwergenhauptmann, der frueher ein enger Vertrauter und vielleicht Freund des Zwergenkoenigs war. Er kannte den Koenig, bevor die Stimme kam: streng, hart, aber gerecht. Brokk hat mit ihm in einem frueheren Kampf Seite an Seite fuer das Gute gestanden, nicht fuer Eroberung, sondern fuer Schutz. In den letzten Jahren hat Brokk gesehen, wie aus diesem Koenig jemand wurde, der Befehle gab, als wuerde er sie von einem unsichtbaren Richter empfangen.
 
 Seitdem ist auch das Leben der Zwerge kaelter geworden. Brokk erinnert sich an Hallen voller Lieder, lange Essen, laute Feste und Streit, der am Ende mit Bier statt Blut beendet wurde. Unter dem veraenderten Koenig wurden die Lieder seltener, die Tafeln kuerzer und die Befehle haerter, bis selbst Freude wie mangelnde Disziplin wirkte.
 
