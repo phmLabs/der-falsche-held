@@ -230,22 +230,14 @@ Taron starrte ihn an.
 
 „La la“, fügte er hinzu.
 
-„Ich gehe ja schon.“
-
 Oswin nahm seinen Helm vom Tresen, wo er ihn offenbar abgelegt hatte, ohne dass Taron es bemerkt hatte.
 
 „Siehst du?“, sagte der Ritter. „Schon haben wir einen Zauberer.“
 
 „Wir haben eine Wegbeschreibung zu einem Haus, das möglicherweise nicht mehr existiert, und zu einem Mann, der vermutlich beleidigt ist, wenn man ihn Zauberer nennt.“
 
-„Das ist bei Zauberern beinahe dasselbe.“
-
 Der Wirt nickte ernst.
 
 Taron sah von einem zum anderen.
 
 „Ich vermisse den Stall“, sagte er.
-
-„Das wird schlimmer werden“, sagte der Erzähler.
-
-Und weil alle drei Männer im Raum, auf sehr unterschiedliche Weise, wussten, dass das stimmte, sagte niemand etwas dagegen.
