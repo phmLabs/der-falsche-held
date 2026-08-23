@@ -2,7 +2,7 @@ Es gibt viele Arten, einem Zauberer zu begegnen. Im Dunkel einer Höhle, wenn es
 
 „Blau bedeutet ‚kommt herein‘“, sagte der Wirt am Vorabend, als hätte er Wetter angesagt. 
 
-Taron hatte sich das so gemerkt, wie man sich die Reihenfolge unfreundlicher Hunde im Dorf merkt. Nun stand er mit Sir Oswin von Hohenklamm vor einem Haus, das in Hohensteg auffällig unauffällig war. Die Fensterläden waren frisch gestrichen, der Garten geschnitten wie ein Bart vor einem Festtag, ein Pfad aus flachen Steinen führte sauber zur Tür. Nur der Schornstein gab dem Idyll etwas Rätselhaftes: das Blau war nicht das schadhafte Blau von nassem Holz, sondern ein helles, freundliches, fast absichtliches Blau.
+Taron hatte sich das so gemerkt, wie man sich die Reihenfolge unfreundlicher Hunde im Dorf merkt. Nun stand er mit Sir Oswin von Hohenklamm vor einem Haus, das in Hohensteg auffällig unauffällig war. Die Fensterläden waren frisch gestrichen, der Garten geschnitten wie ein Bart vor einem Festtag, ein Pfad aus flachen Steinen führte zur Tür. Nur der Schornstein gab dem Idyll etwas Rätselhaftes: das Blau war nicht das schadhafte Blau von nassem Holz, sondern ein helles, freundliches, fast absichtliches Blau.
 
 „Er liebt Gäste“, murmelte der Erzähler.
 
@@ -18,9 +18,9 @@ Sir Oswin nickte.
 
 Taron blinzelte. „Wir kennen uns nicht.“
 
-„Das lässt sich nicht immer vermeiden“, sagte Merlan mit der gelassenen Würde eines Mannes, dessen Tage länger sind als seine Listen. „Kommt herein. Der Rauch kühlt ab, und blau wird dann schnell zu nichts, und das ist kein geeignetes Zeichen für Begrüßung.“
+„Das lässt sich nicht immer vermeiden“, sagte Merlan mit der gelassenen Würde eines Mannes, dessen Tage länger sind als seine Listen. „Kommt herein.“
 
-Sie traten ein und erklärten sich damit selbst zu Bauerntrampeln. Nicht laut, nicht absichtlich; es geschah, weil Merlans Haus sauber war auf die Art, die einen dazu bringt, die Füße neu zu erfinden. Der Flur war schmal und hell, eine Bank stand da, die es nicht krumm nahm, wenn man sich setzte, ein Haken nahm Tarons Mantel an wie eine Ehre, nicht wie eine Last. In der Stube spiegelten sich Gläser in einer Vitrine, die keine Angeberei war, sondern ein ruhiges „Es kann auch so sein“. Auf dem Tisch lagen Bücher in Reihen, als wären Worte Möbel, und jedes Möbel an seinem Platz. In einem Eck tickte eine Uhr, die den Mut hatte, leise zu sein. Eine Kanne dampfte auf einem Ofen, dessen Kacheln blaues Kornblumenmuster trugen, das einen sofort dazu brachte, zuzugeben, dass man schon von weniger erschüttert worden war.
+Sie traten ein und erklärten sich damit selbst zu Bauerntrampeln. Nicht laut, nicht absichtlich; es geschah, weil Merlans Haus sauber war auf die Art, die einen dazu bringt, sich die Füße waschen zu wollen. Der Flur war schmal und hell, eine Bank stand da, die es nicht krumm nahm, wenn man sich setzte, ein Haken nahm Tarons Mantel an wie eine Ehre, nicht wie eine Last. In der Stube spiegelten sich Gläser in einer Vitrine. Auf dem Tisch lagen Bücher in Reihen, als wären Worte Möbel, und jedes Möbel an seinem Platz. In einem Eck tickte eine Uhr. Eine Kanne dampfte auf einem Ofen, dessen Kacheln blaues Kornblumenmuster trugen, das einen sofort dazu brachte, zuzugeben, dass man schon von weniger erschüttert worden war.
 
 „Setzt euch“, sagte Merlan. „Tee?“
 
