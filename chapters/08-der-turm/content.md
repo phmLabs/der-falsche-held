@@ -32,7 +32,7 @@ Oder das, was davon übrig war.
 
 „Oh“, sagte Taron.
 
-Oswin nickte.
+Oswin zog die Brauen zusammen.
 
 Sie ritten langsam weiter. Der Weg senkte sich zwischen Fichten hindurch. Je näher sie kamen, desto mehr Linien erschienen im Gras: Grundmauern, niedrige Steine, halb versunkene Stufen, ein rechteckiger Platz, auf dem nichts mehr stand. Der Turm war nicht allein. Er war nur der Teil, der sich am längsten geweigert hatte, zu fallen.
 
@@ -166,11 +166,11 @@ Taron sah auf die Steinchen.
 
 „Zeichen“, flüsterte er.
 
-Oswin nickte.
+Oswin berührte zwei Finger an seine Lippen.
 
 „Für sie.“
 
-Oswin nickte wieder.
+Dann zeigte er auf die Seitengänge.
 
 Der Erzähler sagte: „Endlich. Eine Wegbeschreibung, die nicht für euch gedacht ist. Das macht sie deutlich zuverlässiger.“
 
@@ -182,7 +182,7 @@ Oswin nahm ein Steinchen vom Ende der Linie und legte es zwei Handbreit daneben.
 
 Taron sah ihn entsetzt an. „Du veränderst ihr Zeichen?“
 
-Oswin nickte.
+Oswin schob das Steinchen noch ein Stück weiter.
 
 „Ist das klug?“
 
@@ -230,7 +230,7 @@ Taron sah zu ihm. Der Ritter betrachtete die Masken nicht wie ein Mann, der etwa
 
 „Die geben sie weiter“, sagte Taron.
 
-Oswin nickte.
+Oswin sah auf die Namen unter den Masken.
 
 „Väter an Söhne. Mütter an Töchter. Wer auch immer hier bleibt.“
 
@@ -266,7 +266,7 @@ Taron blieb stehen.
 
 „Der ist neu.“
 
-Oswin nickte.
+Oswin trat sofort näher.
 
 „Wie neu?“
 
@@ -304,7 +304,7 @@ Oswin bewegte sich vor ihn.
 
 „Hast du das gehört?“
 
-Oswin nickte.
+„Ja“, sagte Oswin.
 
 „Gut.“
 
@@ -328,11 +328,11 @@ Die Maske war weg.
 
 „Ich habe etwas gesehen.“
 
-Oswin nickte.
+„Ich auch“, sagte Oswin.
 
 „Du auch?“
 
-Oswin nickte wieder.
+„Leider.“
 
 „Dann hasse ich es weniger.“
 
@@ -402,11 +402,11 @@ Nichts.
 
 „Es sind Menschen“, sagte Taron.
 
-Oswin nickte.
+„Ja.“
 
 „Sie haben uns angegriffen.“
 
-Oswin nickte wieder.
+„Auch ja.“
 
 „Ich weiß.“
 
@@ -504,9 +504,9 @@ Oswin sah es.
 
 Nur für einen Augenblick.
 
-Er nickte.
+„Jetzt“, sagte er.
 
-Jetzt.
+Das eine Wort kam flach und hart.
 
 Taron zog das Päckchen halb heraus.
 
@@ -918,11 +918,11 @@ Taron griff nach der Rauchkugel.
 
 Diesmal schneller.
 
-Oswin sah es und nickte so heftig, wie ein Ritter nicken konnte, ohne den Kopf zu verlieren.
+Oswin sah es und rief: „Jetzt!“
 
-Jetzt.
+Nicht laut.
 
-Wirklich jetzt.
+Aber endgültig.
 
 Taron zog das Päckchen heraus. Seine Finger lagen auf dem Leder. Darin die Kugel. Der Schleier der entschlossenen Entfernung. Merlans seltenes Mittel. Ihr letzter Schutz.
 
@@ -1042,7 +1042,7 @@ Oswin zeigte noch einmal.
 
 „Ich weiß, dass du die Rauchkugel meintest.“
 
-Oswin nickte.
+„Offensichtlich nicht“, sagte Oswin.
 
 „Ich dachte, sie ist zu wichtig.“
 
@@ -1074,7 +1074,7 @@ Oswin stand auf, wankte kurz und fing sich. Seine Stirn blutete noch. Am Arm hat
 
 Oswin sah ihn an.
 
-Dann nickte er.
+Dann sagte er: „Gut.“
 
 Nicht freundlich.
 
