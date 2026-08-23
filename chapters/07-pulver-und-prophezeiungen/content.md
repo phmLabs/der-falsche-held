@@ -1,12 +1,10 @@
-# Kapitel 7: Pulver und Prophezeiungen
-
 Der Nachmittag begann mit einer Feder, drei Abschriften und Tarons sehr ernstem Wunsch, dass einer von ihnen log.
 
 Merlan schrieb nicht sofort. Er ordnete zuerst die Pergamente neu. Nicht, weil sie unordentlich gewesen wären. Nichts in diesem Haus war unordentlich. Merlan ordnete Dinge offenbar auch dann, wenn sie bereits ordentlich waren, nur um sicherzugehen, dass kein Zufall sich zu wohl fühlte.
 
-Taron saß inzwischen doch. Nicht freiwillig. Irgendwann hatte sein Körper entschieden, dass Stolz in einem stehenden Zustand mehr Kraft kostete als in einem sitzenden, und Taron hatte keine Kraft übrig, die nicht bereits für Schmerz, Verwirrung oder den Wunsch nach einem sehr kleinen Leben im Stall reserviert war.
+Taron saß. Nicht freiwillig. Irgendwann hatte sein Körper entschieden, dass Stolz in einem stehenden Zustand mehr Kraft kostete als in einem sitzenden, und Taron hatte keine Kraft übrig, die nicht bereits für Schmerz, Verwirrung oder den Wunsch nach einem sehr kleinen Leben im Stall reserviert war.
 
-Oswin saß neben ihm, trank den Tee und nickte gelegentlich. Der Tee roch nach Minze und nassem Stein. Oswin behandelte ihn wie ein militärisches Hindernis: ernst nehmen, nicht unterschätzen, schnell überwinden.
+Oswin saß neben ihm, trank den Tee und nickte gelegentlich. Der Tee roch nach Minze und nassem Stein. 
 
 „Also“, sagte Taron. „Wenn wir alles weglassen, was mir nicht gefällt, bleibt der Menschenschlüssel.“
 
