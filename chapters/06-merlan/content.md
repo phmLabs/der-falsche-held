@@ -18,21 +18,7 @@ Kummer und Sternfall, die an einem Pfosten angebunden waren, wirkten beide erlei
 
 Oswin nickte.
 
-„Also gehen wir.“
-
-Oswin sah zum Haus und nickte noch einmal.
-
-Der grüne Rauch quoll in einer dicken, gemütlichen Wolke aus der Esse, schwebte ein Stück zur Seite und formte dort für einen Augenblick etwas, das beinahe wie ein Gesicht aussah. Dann wurde es ein Kohlkopf und löste sich auf.
-
-Oswin hob eine Hand und machte eine kleine Bewegung, die vermutlich „vielleicht meinte er nicht klopfen, sondern nicht unvorbereitet klopfen“ bedeuten sollte.
-
-„Das ist nicht dasselbe.“
-
-Oswin nickte.
-
-„Richtig“, sagte Taron. „Es ist mutiger. Und mutiger ist oft ein höfliches Wort für dümmer.“
-
-„Noch ein weiser Satz“, sagte der Erzähler. „Diesmal leider deiner.“
+Der grüne Rauch quoll in einer dicken, gemütlichen Wolke aus dem Schornstein, schwebte ein Stück zur Seite und formte dort für einen Augenblick etwas, das beinahe wie ein Gesicht aussah. Dann wurde es ein Kohlkopf und löste sich auf.
 
 Taron verschränkte die Arme.
 
