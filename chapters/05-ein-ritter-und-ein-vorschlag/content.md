@@ -10,7 +10,7 @@ Das beantwortete die Bitte nicht, aber Oswin fügte hinzu, ein Ritter übergebe 
 
 „Ich genieße den Augenblick“, sagte die Stimme schließlich. „Jemand anderes ist für die Unwürde zuständig.“
 
-Oswin nahm Tarons Gespräche mit der leeren Luft überraschend gelassen. Er nannte die Stimme „Niemand“, bot an, sie grüßen zu lassen, und erklärte auf Nachfrage, er selbst habe keine Stimme im Kopf. Nur seine eigene, sagte er, und die sei schon oft zu viel.
+Oswin nahm Tarons Gespräche mit der leeren Luft überraschend gelassen. Er nannte die Stimme „Niemand“, bot an, sie grüßen zu lassen.
 
 Sie ritten durch das Tor von Hohensteg und auf die westliche Straße hinaus. Für eine Weile sagte niemand etwas. Das lag zum Teil daran, dass der Morgen kühl und klar war, zum Teil daran, dass Oswin jeden Hufschlag offenbar persönlich nahm.
 
