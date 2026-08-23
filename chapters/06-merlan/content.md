@@ -24,17 +24,11 @@ Taron verschränkte die Arme.
 
 „Wir warten“, sagte er. „Bis der Rauch eine bessere Farbe hat.“
 
-Oswin sah zur Esse und hob fragend die Braue.
-
-„Keine Ahnung. Eine, die nicht klingt, als müsste man danach den Arm abnehmen.“
-
 Sie warteten.
 
 Nach einer Weile öffnete sich die Haustür.
 
 Ein Mann trat heraus, der nicht aussah wie ein Zauberer.
-
-Das war verdächtig.
 
 Taron hatte keine genaue Vorstellung davon, wie Zauberer aussahen, aber er war sich ziemlich sicher, dass sie mindestens einen Hut brauchten. Vielleicht auch einen Stab. Oder eine Robe mit Sternen. Dieser Mann trug einen dunkelblauen Rock aus feinem Tuch, eine helle Weste, blanke Schuhe und eine schmale Brille mit silbernem Rand. An seinen Manschetten saß kein Fleck. Nicht ein einziger. Das war in Hohensteg beinahe prahlerisch.
 
