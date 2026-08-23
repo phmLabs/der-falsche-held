@@ -112,7 +112,7 @@ Die Schlacht beginnt, bevor Taron jemanden ueberzeugen kann. Oswin und Brokk kae
 
 ## Kapitel 28: Unter der Burg
 
-Taron kehrt in den Dungeon zurueck, wo der Hunger von Waldkirch noch immer lauert. Diesmal erkennt die Gruppe, dass das Monster nicht nur Bestie ist, sondern ein Waechter, der durch den beschaedigten Eid verdorben wurde.
+Taron kehrt in den Dungeon zurueck, wo der Hunger von Waldkirch noch immer lauert. Diesmal erkennt die Gruppe, dass das Monster nicht nur Bestie ist, sondern ein Waechter, der durch den beschaedigten Eid verdorben wurde; als es die Eidschluessel sieht, leuchten die alten Zeichen unter seiner Haut wieder auf, und der Hunger wird auf unheimliche Weise brav.
 
 ## Kapitel 29: Der Eidstein
 

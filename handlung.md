@@ -27,10 +27,10 @@ Der Erzaehler kommentiert die Szene mit kalter Sachlichkeit und behauptet nebenb
 
 ## Das Monster
 
-Das Monster im Dungeon sollte deutlich zu stark fuer Taron sein. Es ist kein fairer Gegner, sondern eine uralte Kreatur, die seit Jahren weggesperrt ist und nur deshalb nicht laengst alle getoetet hat, weil die Tuer sehr dick ist.
+Das Monster im Dungeon sollte deutlich zu stark fuer Taron sein. Es ist kein fairer Gegner, sondern eine uralte Kreatur, die seit Jahren weggesperrt ist und nur deshalb nicht laengst alle getoetet hat, weil die Tuer sehr dick ist. Spaeter stellt sich heraus, dass der Hunger urspruenglich kein Monster war, sondern ein Waechter des Eidenschlosses.
 
 **Arbeitsname:** Der Hunger von Waldkirch  
-**Art:** Uraltes Dungeon-Monster, halb Bestie, halb magischer Fluch  
+**Art:** Verdorbener Eid-Waechter, halb Bestie, halb magischer Fluch  
 **Wirkung:** Es soll nicht nur physisch bedrohlich sein, sondern Taron auch das Gefuehl geben, dass die Welt ihn bereits abgeschrieben hat.
 
 Moegliche Eigenschaften:
@@ -90,7 +90,7 @@ Der Erzaehler kommentiert daraufhin, dass dies eine bemerkenswert enge Definitio
 
 - Hat der Erzaehler Taron direkt aus dem Dungeon geholt oder jemanden damit beauftragt?
 - Ist die Frau zufaellig ausgewaehlt oder gibt es einen Grund, warum sie Taron aufnehmen konnte?
-- Hat das Monster Taron wirklich beinahe getoetet oder hat es ihn erkannt?
+- Hat das Monster Taron wirklich beinahe getoetet oder hat es ihn als falschen Traeger ohne sichtbare Schluessel nur nicht passieren lassen?
 - Wissen die Priester, dass Taron ueberlebt hat?
 - Wird sein Ueberleben als noch groesserer Beweis seiner Auserwaehltheit gedeutet?
 
@@ -193,6 +193,8 @@ Im Kampf ergaenzen sie sich besser, als beide zugeben wollen. Oswin liest offene
 Im Finale veraendert sich ihre Zaehlweise. Sie toeten weiterhin, wenn sie muessen, aber sie zaehlen nicht mehr nur die Gegner, die fallen. Wenn Brokk einen Menschen niederstreckt, der gerade einen Zwerg erschlagen wuerde, zaehlt Oswin den geretteten Zwerg. Wenn Oswin einen Zwerg aufhaelt, der einen jungen Soldaten zerhacken wuerde, zaehlt Brokk den geretteten Menschen. Ihre alten Zahlen verschwinden nicht, aber daneben beginnt eine neue Liste.
 
 Wenn die drei Eidschluessel spaeter am Eidenschloss zusammengebracht werden, merken Taron und die anderen zu spaet, was sie angerichtet haben. Der Daemon wird frei, der Zwergenkoenig bricht zusammen, und die Zwerge glauben, die Menschen haetten ihren Koenig getoetet. Dadurch beginnt der eigentliche Kampf erst recht.
+
+Auf dem Weg zum Eidenschloss muessen sie noch einmal am Hunger von Waldkirch vorbei. Diesmal sieht die Kreatur die Eidschluessel, und die alten Zeichen unter ihrer Haut reagieren. Der Hunger wird nicht besiegt, sondern fuer einen Moment wieder brav: kein zahmes Tier, eher ein Waechter, der endlich einen gueltigen Befehl erkennt und die Gruppe passieren laesst.
 
 Elva findet Taron auf dem Rueckweg nach Waldkirch und bringt ihm keine romantische Geste, sondern eine Warnung: In der Burg ist er fuer viele bereits weniger Mensch als Zeichen, Werkzeug und moegliches Opfer. Das macht sie organischer fuer die Handlung, weil sie nicht einfach mitreist, sondern aus Waldkirch genau die Information bringt, die Taron am meisten trifft.
 
