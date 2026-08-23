@@ -34,27 +34,27 @@ Merlan goss ein, ohne zu verschütten, ohne abzusetzen, ohne zu erwarten, dass j
 
 „Wir brauchen—“, begann Taron.
 
-„—keinen Zauberer“, sagte der Erzähler.
+„... einen Zauberer“, sagte der Erzähler.
 
-„—einen Rat“, beendete Taron. „Man schickt mich nach Westen. Turm von Abendriss. Splitter. Dritte Mondglocke.“
+" einene einen Rat“, sagte Taron. „Man schickt mich nach Westen. Turm von Abendriss. Schlüssel.“
 
 „Prophezeiung“, sagte Merlan nicht als Frage und schob Taron einen Teller mit dünn geschnittenen Äpfeln hin, die genauso schmeckten, wie sie aussahen.
 
 „Leider“, sagte Taron.
 
-Sir Oswin nickte, während er einen Apfel aß, als wäre jeder Bissen ein Schweigeeid.
+Sir Oswin nickte, während er einen Apfel aß.
 
 Merlan faltete die Hände. „Prophezeiungen stimmen oft. Nachher. Vorher sind sie Kunst. Danach sind sie Protokoll. Und im Dazwischen machen sie Männer nervös.“
 
 „Ich bin kein Mann“, sagte Taron, automatisch, wie jemand, der bei gefährlichen Gesprächen lieber über Formalitäten redet.
 
-„Noch nicht in vollem Maße“, sagte Merlan unkränkend. „Aber nervös genug, um vom Weg abzukommen, wenn die Straße gerade ist.“ Er sah Sir Oswin an. „Ihr widersprecht nicht?“
+„Noch nicht in vollem Maße“, sagte Merlan unkränkend. „Noch nervös genug, um vom Weg abzukommen, wenn die Straße gerade ist.“
 
 Sir Oswin nickte.
 
 „Gut“, sagte Merlan, als sei das ein wertvoller Beitrag zur Debatte.
 
-Merlan öffnete ein Buch. Nicht langsam, nicht mit Pose. Er wusste, wo die Seite war. Die Handschrift darauf war fein und eng, aber nicht prahlend, die Tinte grau mit einem Hauch von Braun, als wäre sie ermüdet, aber nicht nachtragend.
+Merlan öffnete ein Buch. Nicht langsam, nicht mit Pose. Er wusste, wo die Seite war. Die Handschrift darauf war fein und eng, aber nicht prahlend, die Tinte grau mit einem Hauch von Braun.
 
 „Bruder Malchior zitiert die mittlere Strophe des Fragmentes aus dem Zeitalter der Tränen“, sagte Merlan. „Er liebt die Mitte. Anfang und Ende sind unordentlich. Mitten behaupten Ordnung. ‚Wenn der schwarze Stern im Westen sinkt, und Milch das Haupt des Namenlosen tränkt…‘ – wir kennen das. Was er nicht zitiert, ist die Einfassung, die in manchen Abschriften fehlt.“
 
