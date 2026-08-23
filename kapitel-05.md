@@ -122,6 +122,14 @@ Taron dachte an die Kriegshörner aus seiner Erinnerung.
 
 Oswin zählte seine Toten, sagte er, weil er sonst vergessen würde, dass es einzelne gewesen waren. Nicht nur eine Wand. Nicht nur Eisenmasken. Jeder eine Entscheidung. Jeder eine Last. Manche mussten sterben, daran zweifelte er nicht. Aber wenn ein Mann anfing, seine Toten nicht mehr zu zählen, sollte ihm niemand mehr ein Schwert geben.
 
+Beim ersten hatte er noch geglaubt, danach würde jemand etwas sagen. Ein Hauptmann vielleicht. Ein Priester. Irgendein älterer Ritter mit einer Stimme, die wusste, wie man einem neunzehnjährigen Jungen erklärte, dass er gerade etwas Notwendiges getan hatte und trotzdem nie wieder ganz derselbe sein würde. Aber niemand sagte etwas. Die Schlacht fraß den Augenblick einfach weiter, und Oswin blieb nur der Zwerg im Schlamm, dessen Hand noch an einem zerrissenen Lederriemen hing.
+
+Also merkte Oswin ihn sich.
+
+Nicht den Namen. Den hatte er nie erfahren. Nur die Kerbe am Helm, die dunkle Narbe über dem linken Auge und den Umstand, dass der Zwerg im Sterben nicht nach einem Gott gerufen hatte, sondern nach jemandem, der vermutlich zu Hause auf ihn wartete.
+
+Später kamen mehr dazu. Zu viele. Oswin begann zu zählen, weil keine Beichte lang genug war und kein Wein tief genug. Die Zahl war keine Prahlerei. Sie war eine Strafe, die er nüchtern besser aussprechen konnte als betrunken.
+
 Der Erzähler schwieg.
 
 Taron auch.
@@ -132,13 +140,15 @@ Das war ein harter Themenwechsel.
 
 Oswin nannte es Strategie.
 
-Zauberer, erklärte er, könne man immer gebrauchen. Wenn sie gut waren, retteten sie einem das Leben. Wenn sie mittelmäßig waren, lasen sie alte Schrift. Wenn sie schlecht waren, konnten sie meistens noch Bohnen warm oder Bier kalt zaubern.
+Zauberer, erklärte er, könne man immer gebrauchen. Wobei er, wie er nach Tarons Blick hinzufügte, nicht zwingend einen Mann meinte, der Feuer aus den Händen warf und dabei Namen alter Könige rief. Manchmal reichte jemand, der alte Schrift lesen, schlechte Zeichen erkennen oder einem erklären konnte, warum eine Prophezeiung weniger eindeutig war, als Priester es gern behaupteten.
+
+Wenn sie gut waren, retteten sie einem das Leben. Wenn sie mittelmäßig waren, lasen sie alte Schrift. Wenn sie schlecht waren, konnten sie meistens noch Bohnen warm oder Bier kalt zaubern.
 
 „Das ist deine magische Rangordnung?“, fragte Taron.
 
 „Sie hat sich bewährt.“
 
-Taron wollte keinen Zauberer. Er wollte auch keinen Turm, keinen Splitter, keine Prophezeiung und keinen Ritter mit einer sehr beunruhigenden Liste. Oswin fand, Taron sei dennoch reich an allem, was unfair genug formuliert war, dass Taron kurz keine Antwort fand.
+Taron wollte keinen Zauberer. Er wollte auch keinen Turm, keinen Schlüssel, keine Prophezeiung und keinen Ritter mit einer sehr beunruhigenden Liste. Oswin fand, Taron sei dennoch reich an allem, was unfair genug formuliert war, dass Taron kurz keine Antwort fand.
 
 Der Erzähler hielt den Zauberer ebenfalls für eine gute Idee.
 
@@ -230,6 +240,10 @@ Der Wirt sah ihn an. „Du hast nicht gefragt.“
 
 „Für dich vielleicht. Für uns ist es Merlan.“
 
+„Er ist also kein Zauberer?“
+
+Der Wirt verzog das Gesicht, als habe Taron ihn gebeten, eine sehr alte Rechnung gerecht aufzuteilen. „Kommt darauf an, wen du fragst. Wenn du Merlan fragst: nein. Wenn du jemanden fragst, dessen Scheune er mit blauem Rauch von Mäusen befreit hat: ja. Wenn du mich fragst: Er weiß Dinge, die andere nicht wissen, und das reicht für die meisten Leute.“
+
 „Merlan.“
 
 „Merlan Graufinger.“
@@ -268,7 +282,7 @@ Oswin nahm seinen Helm vom Tresen, wo er ihn offenbar abgelegt hatte, ohne dass 
 
 „Siehst du?“, sagte der Ritter. „Schon haben wir einen Zauberer.“
 
-„Wir haben eine Wegbeschreibung zu einem Haus, das möglicherweise nicht mehr existiert.“
+„Wir haben eine Wegbeschreibung zu einem Haus, das möglicherweise nicht mehr existiert, und zu einem Mann, der vermutlich beleidigt ist, wenn man ihn Zauberer nennt.“
 
 „Das ist bei Zauberern beinahe dasselbe.“
 

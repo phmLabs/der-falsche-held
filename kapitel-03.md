@@ -202,6 +202,10 @@ Das war eine tröstliche Deutung.
 
 Sie war nicht unbedingt die richtige.
 
+Vielleicht war ein Heer, das plötzlich verschwand, nicht immer ein geschlagenes Heer.
+
+Vielleicht war es manchmal nur ein Heer, das hatte, weswegen es gekommen war.
+
 Seitdem war die Gefahr nie wirklich verschwunden.
 
 Sie war nur weiter weg gewesen.

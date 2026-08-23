@@ -68,11 +68,11 @@ Das war ein Unterschied, den Taron für wichtig hielt.
 
 Er legte den Proviantbeutel neben sich, nahm einen kleinen Stock und zeichnete in den Staub der Straße. Zuerst eine Burg. Dann eine Linie nach Westen. Dann einen Turm, der vermutlich Abendriss darstellen sollte, aber eher aussah wie ein schlecht gelaunter Pilz.
 
-„Also“, sagte Taron. „Ich reite hin. Ich finde den Turm. Ich gehe rein. Ich nehme diesen Splitter.“
+„Also“, sagte Taron. „Ich reite hin. Ich finde den Turm. Ich gehe rein. Ich nehme diesen Schlüssel.“
 
-„Der erste Splitter der Nachtkrone.“
+„Den Menschenschlüssel.“
 
-„Ich nehme irgendeinen Splitter, der wichtig aussieht. Dann gehe ich raus. Dann reite ich zurück. Fertig.“
+„Ich nehme irgendeinen Schlüssel, der wichtig aussieht. Dann gehe ich raus. Dann reite ich zurück. Fertig.“
 
 „Eine bemerkenswert schlanke Auslegung des Abenteuers.“
 
@@ -120,7 +120,7 @@ Er nahm den Stock und zog eine Linie durch den Bereich vor dem Turm.
 
 Taron betrachtete seinen Plan. Er war so einfach, dass sogar er ihm misstraute. Aber Einfachheit hatte etwas Verführerisches. Wenn man eine Aufgabe nur grob genug zeichnete, sah sie beinahe machbar aus.
 
-Er stellte sich vor, wie er zurückkehrte. Nicht triumphal. Das wäre übertrieben. Vielleicht ein wenig staubig, mit dem Splitter in der Hand und einem Gesichtsausdruck, der sagte: Seht ihr, es war gar nicht so schwer, und jetzt lasst mich bitte wieder Pferde füttern.
+Er stellte sich vor, wie er zurückkehrte. Nicht triumphal. Das wäre übertrieben. Vielleicht ein wenig staubig, mit dem Schlüssel in der Hand und einem Gesichtsausdruck, der sagte: Seht ihr, es war gar nicht so schwer, und jetzt lasst mich bitte wieder Pferde füttern.
 
 Dann dachte er an später.
 
@@ -422,7 +422,7 @@ Oswin sah Taron an. Sein Lächeln verschwand nicht, aber es sank tiefer.
 
 „Warum?“
 
-„Angeblich muss ich den ersten Splitter der Nachtkrone holen.“
+„Angeblich muss ich den Menschenschlüssel holen.“
 
 „Angeblich.“
 

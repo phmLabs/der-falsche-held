@@ -482,7 +482,7 @@ Taron griff nach der Schale. Die blaue Flamme brannte nicht heiß. Sie brannte k
 
 „Nein, auf deine Zweifel. Ja, auf das Monster.“
 
-Die Tür brach. Taron warf. Die Schale traf die Brust der Kreatur und zerbarst. Blaue Flamme breitete sich über die grauen Platten aus. Das Monster kreischte, bäumte sich auf und schlug gegen die Wände. Für einen Moment sah Taron alte Zeichen unter seiner Haut aufleuchten, Runen oder Narben oder beides.
+Die Tür brach. Taron warf. Die Schale traf die Brust der Kreatur und zerbarst. Blaue Flamme breitete sich über die grauen Platten aus. Das Monster kreischte, bäumte sich auf und schlug gegen die Wände. Für einen Moment sah Taron alte Zeichen unter seiner Haut aufleuchten, Runen oder Narben oder beides. Drei davon wirkten beinahe wie Schlüssellöcher, falls Schlüssellöcher wütend sein konnten.
 
 Dann traf ihn ein Arm. Er flog durch die Kammer und schlug gegen den Altar. Etwas knackte in ihm. Vielleicht eine Rippe. Vielleicht nur Hoffnung. Beides fühlte sich ähnlich an. Taron rutschte zu Boden. Die Welt wurde schmal. Das Monster brannte noch immer, aber es kam näher. Langsamer jetzt. Wütender. Seine milchigen Augen fanden ihn. Taron versuchte aufzustehen. Sein Körper verhandelte nicht.
 
@@ -538,7 +538,7 @@ Das war überraschend. Er war nicht tot.
 
 Das war noch überraschender.
 
-Neben dem Bett saß eine Frau mit runden Wangen, einem breiten Schoß und einem freundlichen Gesicht, das wirkte, als hätte es beschlossen, die Welt grundsätzlich erst einmal gut zu finden, bis sie sehr deutlich das Gegenteil bewies.
+Neben dem Bett saß eine rundliche Frau mit hochgekrempelten Ärmeln und einem Gesicht, das nicht erschrak, nur weil jemand aussah, als hätte ihn etwas Großes angekaut und wieder ausgespuckt.
 
 „Wo bin ich?“, krächzte Taron.
 

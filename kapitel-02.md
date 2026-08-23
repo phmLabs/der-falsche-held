@@ -390,7 +390,11 @@ Bruder Malchior entrollte die Prophezeiung auf dem Tisch. Diesmal lagen kleine S
 
 „Der Stall liegt östlich.“
 
-„Dort, wo der schwarze Stern sank“, fuhr Malchior fort, „steht der Turm von Abendriss. In seinem Schatten ruht der erste Splitter der Nachtkrone. Der Auserwählte muss ihn bergen, bevor die dritte Glocke des Mondes schweigt.“
+„Dort, wo der schwarze Stern sank“, fuhr Malchior fort, „steht der Turm von Abendriss. In seinem Schatten ruht der Menschenschlüssel, einer der drei Eidschlüssel. Die Schlüssel bringen Freiheit. Der Auserwählte muss ihn bergen, bevor die dritte Glocke des Mondes schweigt.“
+
+Er tippte auf eine dunkle Stelle im Pergament.
+
+„Hier stand vermutlich noch ein sehr kurzes Wort. Aber vor zweihundert Jahren hat jemand offenbar beschlossen, dass Rotwein ebenfalls zur Auslegung gehört.“
 
 Taron wartete.
 
@@ -406,15 +410,15 @@ Hademar schrieb etwas auf.
 
 „Das war keine Erklärung. Das waren Wörter, die sich in einer dunklen Gasse getroffen haben.“
 
-Malchior lächelte geduldig. „Der Turm von Abendriss liegt drei Tagesritte westlich. Dort findet Ihr den Splitter.“
+Malchior lächelte geduldig. „Der Turm von Abendriss liegt drei Tagesritte westlich. Dort findet Ihr den Schlüssel.“
 
-„Was ist die Nachtkrone?“
+„Was ist ein Eidschlüssel?“
 
 „Ein altes Artefakt.“
 
-„Was macht sie?“
+„Was macht er?“
 
-„Sie krönt die Nacht.“
+„Er schließt, was der Eid offen ließ.“
 
 „Das ist keine Antwort.“
 
@@ -544,7 +548,7 @@ Es war trocken, aber nicht beleidigend trocken. Das war für königlichen Provia
 
 „Planend.“
 
-Kummer rupfte Gras am Straßenrand. Der Wind strich über die Felder. In der Ferne lag der Westen, wo angeblich ein Turm namens Abendriss stand und ein Splitter der Nachtkrone auf ihn wartete.
+Kummer rupfte Gras am Straßenrand. Der Wind strich über die Felder. In der Ferne lag der Westen, wo angeblich ein Turm namens Abendriss stand und ein Menschenschlüssel auf ihn wartete.
 
 Taron kaute langsam.
 
