@@ -1,6 +1,6 @@
 Es gibt viele Arten, einem Zauberer zu begegnen. Im Dunkel einer Höhle, wenn es gerade tropft und jemand einen Schädel in der Hand wiegt. Auf einem Marktplatz, wenn er eine Orange in zwölf Teile blickt, ohne sie zu berühren, und dabei Spenden annimmt. Oder an einem Vormittag vor einem tadellosen Fachwerkhaus, über dessen Schornstein blauer Rauch zieht, als hätte der Himmel seine eigene Tinte verschüttet.
 
-„Blau bedeutet ‚kommt herein‘“, sagte der Wirt am Vorabend, als hätte er Wetter angesagt. 
+„Blau bedeutet ‚kommt herein‘“, sagte der Wirt am Vorabend.
 
 Taron hatte sich das so gemerkt, wie man sich die Reihenfolge unfreundlicher Hunde im Dorf merkt. Nun stand er mit Sir Oswin von Hohenklamm vor einem Haus, das in Hohensteg auffällig unauffällig war. Die Fensterläden waren frisch gestrichen, der Garten geschnitten wie ein Bart vor einem Festtag, ein Pfad aus flachen Steinen führte zur Tür. Nur der Schornstein gab dem Idyll etwas Rätselhaftes: das Blau war nicht das schadhafte Blau von nassem Holz, sondern ein helles, freundliches, fast absichtliches Blau.
 
@@ -32,11 +32,11 @@ Merlan goss ein, ohne zu verschütten, ohne abzusetzen, ohne zu erwarten, dass j
 
 „Ihr habt mich gesucht“, sagte Merlan. Er sagte nicht, warum. Es war nicht aus Ungeduld, sondern aus Rücksicht auf das Peinliche, wenn man laut aussprechen muss, dass man Hilfe braucht.
 
-„Wir brauchen—“, begann Taron.
+„Wir brauchen ...“, begann Taron.
 
 „... einen Zauberer“, sagte der Erzähler.
 
-" einene einen Rat“, sagte Taron. „Man schickt mich nach Westen. Turm von Abendriss. Schlüssel.“
+"einen einen Rat“, sagte Taron. „Man schickt mich nach Westen. Turm von Abendriss. Schlüssel.“
 
 „Prophezeiung“, sagte Merlan nicht als Frage und schob Taron einen Teller mit dünn geschnittenen Äpfeln hin, die genauso schmeckten, wie sie aussahen.
 
@@ -44,29 +44,23 @@ Merlan goss ein, ohne zu verschütten, ohne abzusetzen, ohne zu erwarten, dass j
 
 Sir Oswin nickte, während er einen Apfel aß.
 
-Merlan faltete die Hände. „Prophezeiungen stimmen oft. Nachher. Vorher sind sie Kunst. Danach sind sie Protokoll. Und im Dazwischen machen sie Männer nervös.“
-
-„Ich bin kein Mann“, sagte Taron, automatisch, wie jemand, der bei gefährlichen Gesprächen lieber über Formalitäten redet.
-
-„Noch nicht in vollem Maße“, sagte Merlan unkränkend. „Noch nervös genug, um vom Weg abzukommen, wenn die Straße gerade ist.“
+Merlan faltete die Hände. „Prophezeiungen stimmen oft. Nachher. Vorher sind sie Kunst. Danach sind sie Protokoll. Und im Dazwischen machen sie Menschen nervös.“
 
 Sir Oswin nickte.
 
 „Gut“, sagte Merlan, als sei das ein wertvoller Beitrag zur Debatte.
 
-Merlan öffnete ein Buch. Nicht langsam, nicht mit Pose. Er wusste, wo die Seite war. Die Handschrift darauf war fein und eng, aber nicht prahlend, die Tinte grau mit einem Hauch von Braun.
+Merlan öffnete ein Buch. Er wusste, wo die Seite war. Die Handschrift darauf war fein und eng, aber nicht prahlend, die Tinte grau mit einem Hauch von Braun.
 
 „Bruder Malchior zitiert die mittlere Strophe des Fragmentes aus dem Zeitalter der Tränen“, sagte Merlan. „Er liebt die Mitte. Anfang und Ende sind unordentlich. Mitten behaupten Ordnung. ‚Wenn der schwarze Stern im Westen sinkt, und Milch das Haupt des Namenlosen tränkt…‘ – wir kennen das. Was er nicht zitiert, ist die Einfassung, die in manchen Abschriften fehlt.“
 
 „Weil sie verbrannt ist“, sagte Taron.
 
-„Oder weil sie widerspricht“, sagte Merlan mild. „Das Fragment ist schwierig, weil es aus einem Eidbuch gerettet wurde, das man für Taufen und Verträge ebenso verwendete wie für Kriegserklärungen. Die Randvermerke sind wichtiger als der große Vers. Hier.“ Er schob das Buch zu Taron, der so tat, als könnte er altwestliche Kursivschrift fließend lesen. „‚Trete nicht in die Kammer, wenn du keine drei Eide im Rücken trägst. Nimm keine Klinge mit, die nicht gehört. Sprich den Namen nicht, den du nicht trägst.‘“
+„Oder weil sie widerspricht“, sagte Merlan mild. „Das Fragment ist schwierig, weil es aus einem Eidbuch gerettet wurde, das man für Taufen und Verträge ebenso verwendete wie für Kriegserklärungen. Die Randvermerke sind wichtiger als der große Vers. Hier.“ Er schob das Buch zu Taron, der so tat, als könnte er altwestliche Kursivschrift fließend lesen. „‚Trete nicht in die Kammer, wenn du keine drei Schlüssel im Rücken trägst. Nimm keine Klinge mit, die nicht gehört. Sprich den Namen nicht, den du nicht trägst.‘“
 
-„Das ist reichlich ‚nicht‘“, murmelte Taron.
+„Man wird vorsichtig, wenn Dinge leben, die nicht sterben sollen. Der Wächter von Waldkirch, den Ihr ‚Hunger‘ nennt, ist in dieser Aufzeichnung anders benannt. Es ist ein Wächter, kein Feind. Man band ihn an einen Eidstein. Man fütterte ihn mit Eiden. Das hielt ihn. Wenn lang niemand bei Wahrheit schwört, wenn Worte hohl werden und Ringe nur Schmuck, wird der Wächter hungrig. Er will dann etwas, das hält. Er beißt dort, wo überhaupt etwas zu fassen ist.“
 
-„Ja.“ Merlan lächelte kurz. „Man wird vorsichtig, wenn Dinge leben, die nicht sterben sollen. Der Wächter von Waldkirch, den Ihr ‚Hunger‘ nennt, ist in dieser Aufzeichnung anders benannt. Es ist ein Wächter, kein Feind. Man band ihn an einen Eidstein. Man fütterte ihn mit Eiden. Das hielt ihn. Wenn lang niemand bei Wahrheit schwört, wenn Worte hohl werden und Ringe nur Schmuck, wird der Wächter hungrig. Er will dann etwas, das hält. Er beißt dort, wo überhaupt etwas zu fassen ist.“
-
-Taron erinnerte sich an kalten Atem und milchige Augen. An einen viel zu breiten Mund, der etwas fassen wollte, das vielleicht nie in ihn hineinpasste. Sein Rücken wurde kalt an einer Stelle, die keine Rippe kannte.
+Taron erinnerte sich an kalten Atem und milchige Augen. An einen viel zu breiten Mund, der etwas fassen wollte, das vielleicht nie in ihn hineinpasste. Sein Rücken wurde kalt.
 
 „Das Eidenschloss“, sagte Merlan, als würde er ein Fenster öffnen. „Ein Bau unter Euren Kellern, älter als Eure Keller. Darin eine Kammer, in der der Eidstein steht. Man nennt sie Kammer des Eidsteins. So originell waren die Alten selten. Zwischen den Rillen des Steins wuchs etwas. Man nannte es Wächter. Oder Wortfresser. Oder Zeuge.“
 
