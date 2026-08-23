@@ -180,13 +180,7 @@ Der Wirt polierte weiter.
 
 Das sagte der Wirt mit der Selbstverständlichkeit eines Mannes, der glaubte, die ganze Zeit Teil dieser Unterhaltung gewesen zu sein.
 
-War er nicht.
-
-Taron sah zu Oswin.
-
-Oswin zuckte mit den Schultern.
-
-„Ich sagte doch, Wirte wissen alles.“
+Taron sah zu Oswin. Oswin zuckte mit den Schultern. „Ich sagte doch, Wirte wissen alles.“
 
 „Warum hat niemand gestern erwähnt, dass es hier einen Zauberer gibt?“
 
