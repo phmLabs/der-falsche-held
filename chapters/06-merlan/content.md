@@ -52,13 +52,13 @@ Sir Oswin nickte.
 
 Merlan öffnete ein Buch. Er wusste, wo die Seite war. Die Handschrift darauf war fein und eng, aber nicht prahlend, die Tinte grau mit einem Hauch von Braun.
 
-„Bruder Malchior zitiert die mittlere Strophe des Fragmentes aus dem Zeitalter der Tränen“, sagte Merlan. „Er liebt die Mitte. Anfang und Ende sind unordentlich. Mitten behaupten Ordnung. ‚Wenn der schwarze Stern im Westen sinkt, und Milch das Haupt des Namenlosen tränkt…‘ – wir kennen das. Was er nicht zitiert, ist die Einfassung, die in manchen Abschriften fehlt.“
+„Bruder Malchior zitiert die mittlere Strophe des Fragmentes aus dem Zeitalter der Tränen“, sagte Merlan. „Er liebt die Mitte. Anfang und Ende sind weniger klar. Mitten behaupten Ordnung. ‚Wenn der schwarze Stern im Westen sinkt, und Milch das Haupt des Namenlosen tränkt…‘ – wir kennen das. Was er nicht zitiert, ist die Einfassung, die in manchen Abschriften fehlt.“
 
 „Weil sie verbrannt ist“, sagte Taron.
 
 „Oder weil sie widerspricht“, sagte Merlan mild. „Das Fragment ist schwierig, weil es aus einem Eidbuch gerettet wurde, das man für Taufen und Verträge ebenso verwendete wie für Kriegserklärungen. Die Randvermerke sind wichtiger als der große Vers. Hier.“ Er schob das Buch zu Taron, der so tat, als könnte er altwestliche Kursivschrift fließend lesen. „‚Trete nicht in die Kammer, wenn du keine drei Schlüssel im Rücken trägst. Nimm keine Klinge mit, die nicht gehört. Sprich den Namen nicht, den du nicht trägst.‘“
 
-„Man wird vorsichtig, wenn Dinge leben, die nicht sterben sollen. Der Wächter von Waldkirch, den Ihr ‚Hunger‘ nennt, ist in dieser Aufzeichnung anders benannt. Es ist ein Wächter, kein Feind. Man band ihn an einen Eidstein. Man fütterte ihn mit Eiden. Das hielt ihn. Wenn lang niemand bei Wahrheit schwört, wenn Worte hohl werden und Ringe nur Schmuck, wird der Wächter hungrig. Er will dann etwas, das hält. Er beißt dort, wo überhaupt etwas zu fassen ist.“
+„Man wird vorsichtig, wenn Dinge leben, die nicht sterben sollen. Der Wächter von Waldkirch, den Ihr ‚Hunger‘ nennt, ist in dieser Aufzeichnung anders benannt. Es ist ein Wächter, kein Feind. Man band ihn an einen Eidstein. Man fütterte ihn.“
 
 Taron erinnerte sich an kalten Atem und milchige Augen. An einen viel zu breiten Mund, der etwas fassen wollte, das vielleicht nie in ihn hineinpasste. Sein Rücken wurde kalt.
 
