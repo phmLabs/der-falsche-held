@@ -14,7 +14,7 @@ Oswin nahm Tarons Gespräche mit der leeren Luft überraschend gelassen. Er nann
 
 Sie ritten durch das Tor von Hohensteg und auf die westliche Straße hinaus. Für eine Weile sagte niemand etwas. Das lag zum Teil daran, dass der Morgen kühl und klar war, zum Teil daran, dass Oswin jeden Hufschlag offenbar persönlich nahm.
 
-Nüchtern sah Oswin anders aus. Nicht weniger gutaussehend, was Taron ungerecht fand, aber schärfer. Die Müdigkeit blieb, doch darunter lag etwas Geübtes. Sein Rücken war gerade. Seine Hände lagen ruhig an den Zügeln. Das Schwert an seiner Seite war nicht Schmuck, sondern Verlängerung eines Körpers, der wusste, wofür es gemacht war.
+Nüchtern sah Oswin anders aus. Nicht weniger gutaussehend, was Taron ungerecht fand, aber schärfer. Die Müdigkeit blieb, doch darunter lag etwas Geübtes. Sein Rücken war gerade. Seine Hände lagen ruhig an den Zügeln. Das Schwerxt an seiner Seite war nicht Schmuck, sondern Verlängerung eines Körpers, der wusste, wofür es gemacht war.
 
 Leider wusste Oswin das ebenfalls.
 
@@ -24,7 +24,7 @@ Ein Weiberheld, dachte Taron.
 
 „Ein erfolgreicher“, sagte der Erzähler.
 
-Die Straße führte durch hügeliges Land. Links lagen Felder, rechts ein Streifen Wald. In der Ferne sah man die ersten dunkleren Rücken der Westmark. Oswin ritt wach, nicht hastig und nicht lässig, als sei die Straße ein alter Gegner. Selbst mit geröteten Augen und einem Kater, der vermutlich eine eigene Heraldik verdient hätte, bemerkte er Dinge vor Taron: zerdrücktes Gras am Weg, einen frischen Hufabdruck, eine Krähe, die zu plötzlich aufflog.
+Die Straße führte durch hügeliges Land. Links lagen Felder, rechts ein Streifen Wald. In der Ferne sah man die ersten dunkleren Rücken der Westmark. Oswin ritt wach, nicht hastig und nicht lässig, als sei die Straße ein alter Gegner. Selbst mit geröteten Augen und einem Kater, der vermutlich eine eigene Geschichte verdient hätte, bemerkte er Dinge vor Taron: zerdrücktes Gras am Weg, einen frischen Hufabdruck, eine Krähe, die zu plötzlich aufflog.
 
 Einmal hob er die Hand.
 
@@ -42,9 +42,9 @@ Oswin sah offenbar ein ganzes Gespräch, das der Boden ohne Tarons Beteiligung g
 
 Das war eine unangenehm ehrliche Antwort. Der Erzähler fand sie gut. Taron weniger, weil ehrliche Antworten selten beruhigender sind als Lügen, sondern nur schwerer zu ignorieren.
 
-Eine Stunde später bekamen sie tatsächlich Wegelagerer.
+Einen Kilometer später bekamen sie tatsächlich Wegelagerer.
 
-Drei Männer traten aus dem Wald. Einer hatte einen Bogen, zwei trugen Messer, und alle drei besaßen den Ausdruck von Menschen, die sich für bedrohlicher hielten, als ihre Schuhe erlaubten. Der Bogenschütze forderte Geld, dann Kummer, dann Tarons Leben, was Taron für eine sehr schnelle Verschlechterung der Verhandlung hielt.
+Drei Männer traten aus dem Wald. Einer hatte einen Bogen, zwei trugen Messer, und alle drei besaßen den Ausdruck von Menschen, die sich für bedrohlicher hielten, als ihr Können es erlaubte. Der Bogenschütze forderte Geld, dann Kummer, dann Tarons Leben, was Taron für eine sehr schnelle Verschlechterung der Verhandlung hielt.
 
 Oswin seufzte.
 
@@ -52,33 +52,27 @@ Nicht dramatisch. Nicht wütend. Nur müde.
 
 „Bitte nicht“, sagte er.
 
-Der Bogenschütze nannte ihn alt.
+Der Bogenschütze nannte ihn alter Mann.
 
 Oswin war vierunddreißig.
 
 Es war erstaunlich, wie sehr ein einziges falsches Wort die Luft verändern konnte.
 
-Danach geschah vieles sehr schnell. Oswin zog sein Schwert nicht sofort. Er trat zuerst einen Stein hoch, fing ihn mit der linken Hand und warf ihn dem Bogenschützen gegen die Stirn. Der Pfeil ging in die Äste. Dann war Oswins Schwert draußen, und der erste Mann mit Messer hatte plötzlich sehr viel weniger Messer und sehr viel mehr Angst.
+Danach geschah vieles sehr schnell. Oswin zog sein Schwert nicht sofort. Er trat zuerst einen Stein hoch, fing ihn mit der Hand und warf ihn dem Bogenschützen gegen die Stirn. Der Pfeil ging in die Äste. Dann war Oswins Schwert draußen, und der erste Mann mit Messer hatte plötzlich sehr viel weniger Messer und sehr viel mehr Angst.
 
-Taron sah, wie Oswin sich bewegte. Nicht elegant. Nein, das war falsch. Sehr präzise. Nicht, weil er gut dabei aussah, obwohl er das auf ärgerliche Weise tat, sondern weil kein Teil der Bewegung überflüssig war. Ein Schritt. Eine Drehung. Der Griff eines Handgelenks. Ein Knauf gegen einen Kiefer. Die flache Seite der Klinge an einen Hals.
-
-Keiner der Wegelagerer starb.
+Taron sah, wie Oswin sich bewegte. Nicht elegant. Nein, das war falsch. Sehr präzise. Nicht, weil er gut dabei aussah, sondern weil kein Teil der Bewegung überflüssig war. Ein Schritt. Eine Drehung. Der Griff eines Handgelenks. Ein Knauf gegen einen Kiefer. Die flache Seite der Klinge an einen Hals.
 
 Das dauerte vielleicht sechs Atemzüge.
 
+Keiner der Wegelagerer starb.
+
 Am Ende lagen zwei Männer im Staub, einer kniete mit den Händen über dem Kopf, und Oswin stand zwischen ihnen, als sei er nur abgestiegen, um etwas aufzuheben.
 
-„Geht“, sagte er.
-
-Sie gingen.
-
-Schnell.
+„Geht“, sagte er. Sie gingen. Schnell.
 
 Taron atmete aus. Für einen Moment war da keine Kneipe, kein Bier, kein Kater. Nur ein Ritter.
 
-Ein echter.
-
-Oswin erklärte, die Männer seien hungrig, schlecht ausgebildet und dumm gewesen. Das sei keine Seltenheit, die man ausrotten müsse. Dann stieg er wieder auf und sagte beiläufig, er zähle nicht jeden armseligen Straßenräuber.
+Oswin erklärte, die Männer seien hungrig, schlecht ausgebildet und dumm gewesen. Das sei kein Grund zu sterben. Dann stieg er wieder auf und sagte beiläufig, er zähle nicht jeden armseligen Straßenräuber.
 
 „Du zählst?“, fragte Taron.
 
@@ -108,7 +102,7 @@ Oswin nickte.
 
 Eine Weile ritten sie schweigend weiter. Die Straße wurde schmaler. Der Wald rückte näher. Das Licht fiel in Streifen zwischen die Bäume. Oswin wirkte plötzlich älter als vierunddreißig.
 
-Er erzählte von der Westmark, ohne dass Taron viel fragen musste. Er war neunzehn gewesen, als er zum ersten Mal dort stand, zu jung, um zu wissen, dass Mut oft nur Unwissen mit Rüstung ist. Sie hatten geglaubt, die Zwergenlinien würden brechen, wenn man hart genug hineinritt.
+Er erzählte von der Westmark, ohne dass Taron viel fragen musste. Er war vierundzwanzig gewesen, als er zum ersten Mal dort stand, zu jung, um zu wissen, was Krieg mit einem macht. Sie hatten geglaubt, die Zwergenlinien würden brechen, wenn man hart genug hineinritt.
 
 Sie brachen nicht.
 
@@ -118,35 +112,29 @@ Taron dachte an die Kriegshörner aus seiner Erinnerung.
 
 Oswin zählte seine Toten, sagte er, weil er sonst vergessen würde, dass es einzelne gewesen waren. Nicht nur eine Wand. Nicht nur Eisenmasken. Jeder eine Entscheidung. Jeder eine Last. Manche mussten sterben, daran zweifelte er nicht. Aber wenn ein Mann anfing, seine Toten nicht mehr zu zählen, sollte ihm niemand mehr ein Schwert geben.
 
-Der Erzähler schwieg.
-
-Taron auch.
+Der Erzähler schwieg. Taron auch.
 
 Nach einer Weile sagte Oswin: „Wir sollten einen Zauberer finden.“
 
 Das war ein harter Themenwechsel.
 
-Oswin nannte es Strategie.
-
 Zauberer, erklärte er, könne man immer gebrauchen. Wobei er, wie er nach Tarons Blick hinzufügte, nicht zwingend einen Mann meinte, der Feuer aus den Händen warf und dabei Namen alter Könige rief. Manchmal reichte jemand, der alte Schrift lesen, schlechte Zeichen erkennen oder einem erklären konnte, warum eine Prophezeiung weniger eindeutig war, als Priester es gern behaupteten.
 
-Wenn sie gut waren, retteten sie einem das Leben. Wenn sie mittelmäßig waren, lasen sie alte Schrift. Wenn sie schlecht waren, konnten sie meistens noch Bohnen warm oder Bier kalt zaubern.
+Wenn sie gut waren, retteten sie einem das Leben. Wenn sie mittelmäßig waren, lasen sie alte Schrift. Wenn sie schlecht waren, konnten sie meistens noch Bohnen warm und Bier kalt zaubern.
 
 „Das ist deine magische Rangordnung?“, fragte Taron.
 
 „Sie hat sich bewährt.“
 
-Taron wollte keinen Zauberer. Er wollte auch keinen Turm, keinen Splitter, keine Prophezeiung und keinen Ritter mit einer sehr beunruhigenden Liste. Oswin fand, Taron sei dennoch reich an allem, was unfair genug formuliert war, dass Taron kurz keine Antwort fand.
+Taron wollte keinen Zauberer. Er wollte auch keinen Turm, keinen Splitter, keine Prophezeiung und keinen Ritter mit einer sehr beunruhigenden Liste. 
 
 Der Erzähler hielt den Zauberer ebenfalls für eine gute Idee.
 
 Taron hielt das für ein weiteres Argument dagegen.
 
-„Wir finden sowieso keinen“, sagte er. „Das hier ist ein komisches Kaff mit Mauern, einer Brücke und einem Gasthaus, dessen Eber nicht einmal blau ist.“
+„Wir finden sowieso keinen“, sagte er. „Das hier ist ein kleines Kaff mit Mauern, einer Brücke und einem Gasthaus, dessen Eber nicht einmal blau ist.“
 
-Oswin wandte ein, Hohensteg sei eine Freie Burg.
-
-Taron nannte es ein Kaff mit einer Satzung.
+Oswin wandte ein, Hohensteg sei eine Freie Burg. Taron nannte es ein Kaff mit einer Satzung.
 
 Dann begann der Erzähler in Tarons Kopf „la la la“ zu machen.
 
@@ -164,13 +152,9 @@ Oswin nickte zufrieden. „Ausgezeichnet.“
 
 „Niemand.“
 
-„Niemand scheint schwer zu führen.“
-
-„Du hast keine Ahnung.“
-
 Sie kehrten nach Hohensteg zurück.
 
-Das war, wie Taron fand, ein schlechter Anfang für eine Reise, die ohnehin schon zum zweiten Mal begonnen hatte. Kummer nahm es gelassen. Sternfall ebenfalls. Pferde urteilen selten über erzählerische Struktur, solange Heu in Aussicht steht.
+Das war, wie Taron fand, ein schlechter Anfang für eine Reise, die schon zum zweiten Mal begonnen hatte. Kummer nahm es gelassen. Sternfall ebenfalls. Pferde urteilen selten über erzählerische Struktur, solange Heu in Aussicht steht.
 
 Der Wirt vom Blauen Eber stand noch immer hinter dem Tresen, als hätten sie ihn dort eingemauert und gelegentlich mit Bierfässern versorgt. Er polierte einen Krug mit einem Tuch, das bereits mehr Geschichte aufgenommen hatte, als es bewältigen konnte.
 
@@ -181,10 +165,6 @@ Taron trat ein.
 „Offensichtlich.“
 
 „Zimmer kostet immer noch vier Kupfer.“
-
-„Ich will kein Zimmer.“
-
-„Dann bist du schon angenehmer als gestern.“
 
 Taron atmete durch. „Gibt es hier einen Zauberer?“
 
@@ -197,14 +177,6 @@ Der Wirt polierte weiter.
 „Ja?“, fragte Taron.
 
 „Ja.“
-
-„Einfach so?“
-
-„Du hast gefragt.“
-
-„Und du antwortest einfach?“
-
-„So funktionieren manche Gespräche.“
 
 Das sagte der Wirt mit der Selbstverständlichkeit eines Mannes, der glaubte, die ganze Zeit Teil dieser Unterhaltung gewesen zu sein.
 
