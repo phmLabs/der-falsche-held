@@ -1,0 +1,19 @@
+beat_slug: 03-taron-erwachte-bei-der-kraeuterfrau-ausserhalb-waldkirchs
+created_at: 2026-08-23T11:10:01.963Z
+overall: partial
+summary: Die Beschreibung ist erfüllt, die Enthüllung des Erzählers als handelnde Figur bleibt jedoch nur angedeutet, während die Rückkehr nach Waldkirch klar vorbereitet wird.
+chapters:
+- slug: 01-die-prophezeiung
+  verdict: partial
+  evidence: Taron erwacht bei der Heilerin Marta; sie berichtet von einem unheimlichen Mann, der ihn brachte, bezahlte und einen Mantel hinterließ – das erfüllt die Beat-Beschreibung und legt eine Verbindung zum Erzähler nahe. Die Identität dieses Mannes als Erzähler bleibt unbestätigt, es bleibt bei der Vermutung. Gleichzeitig bricht Taron mit Ausrüstung auf und ringt mit der Frage der Rückkehr zur Burg, was das Rückkehr-Setup liefert.
+checklist:
+- label: Beschreibung
+  verdict: covered
+  note: ''
+- label: 'Goal: enthüllung — Erzähler als Akteur'
+  verdict: partial
+  note: Der unheimliche Mann, der Taron bringt und bezahlt, deutet stark auf den Erzähler hin, aber eine eindeutige Bestätigung oder aktives Eingreifen als klar benannter Erzähler fehlt.
+- label: 'Goal: setup — Rückkehr nach Waldkirch'
+  verdict: covered
+  note: ''
+inputs_hash: 78c5a62a02e77cfa161825c431b706f6aec40a7084b07932edbb480cae6067c4

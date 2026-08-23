@@ -29,13 +29,12 @@ beats:
   goals:
   - kind: enthüllung
     target: Erzähler als Akteur
-  - kind: welt
-    target: Leben außerhalb der Burg
   - kind: setup
     target: Rückkehr nach Waldkirch
-  linked_chapters: []
+  linked_chapters:
+  - 01-die-prophezeiung
   notes: ''
-  suggested_chapters: 6
+  suggested_chapters: 1
 - slug: 04-taron-kehrte-verwundet-nach-waldkirch-zurueck
   title: Taron kehrte verwundet nach Waldkirch zurück
   description: Zurück in Waldkirch wurde Tarons Überleben als größter Beweis seiner Auserwähltheit gedeutet; König Albrecht sandte ihn zum Turm von Abendriss, um den Menschenschlüssel zu bergen. Taron fügte sich widerwillig und ritt los, als Hörner neue Unruhe ankündigten.
@@ -81,7 +80,7 @@ beats:
   - 04-der-plan
   - 05-ein-ritter-und-ein-vorschlag
   notes: ''
-  suggested_chapters: 6
+  suggested_chapters: 2
 - slug: 07-merlan-las-die-weissagung-neu-und-gab-die-rauchbombe
   title: Merlan las die Weissagung neu und gab die Rauchbombe
   description: 'Der Prophezeiungsgelehrte Merlan entzauberte Alltagsmagie, las die Weissagung streng und machte die drei Eidschlüssel sowie das zweifelhafte Versprechen der „Freiheit“ deutlich. Zudem deutete er an, dass die Schlüssel nicht nur Schlösser öffnen, sondern den gebundenen Wächter von Waldkirch im Eidenschloss besänftigen: Ohne ihr Zeichen greife das Wesen jeden Eindringling an. Er gab Taron eine seltene Rauchbombe und schickte ihn mit nüchternen Warnungen weiter.'
