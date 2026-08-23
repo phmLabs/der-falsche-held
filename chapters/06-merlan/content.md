@@ -1,367 +1,775 @@
-Es gibt viele Arten, einem Zauberer zu begegnen. Im Dunkel einer Höhle, wenn es gerade tropft und jemand einen Schädel in der Hand wiegt. Auf einem Marktplatz, wenn er eine Orange in zwölf Teile blickt, ohne sie zu berühren, und dabei Spenden annimmt. Oder an einem Vormittag vor einem tadellosen Fachwerkhaus, über dessen Schornstein blauer Rauch zieht, als hätte der Himmel seine eigene Tinte verschüttet.
+Der alte Brunnen von Hohensteg stand dort, wo alte Brunnen in Freien Burgen meistens standen: an einem Platz, der früher bestimmt einmal wichtig gewesen war und heute vor allem dafür genutzt wurde, Eimer, Gerüchte und unklare Beschwerden auszutauschen.
 
-„Blau bedeutet ‚kommt herein‘“, sagte der Wirt am Vorabend.
+Taron und Oswin fanden ihn nach drei falschen Abzweigungen, einer sehr bestimmten Wegbeschreibung einer Frau, die offenbar einen anderen Brunnen meinte, und einem Jungen, der ihnen gegen ein Stück Käse erklärte, der alte Brunnen sei leicht zu finden, weil er alt sei.
 
-Taron hatte sich das so gemerkt, wie man sich die Reihenfolge unfreundlicher Hunde im Dorf merkt. Nun stand er mit Sir Oswin von Hohenklamm vor einem Haus, das in Hohensteg auffällig unauffällig war. Die Fensterläden waren frisch gestrichen, der Garten geschnitten wie ein Bart vor einem Festtag, ein Pfad aus flachen Steinen führte zur Tür. Nur der Schornstein gab dem Idyll etwas Rätselhaftes: das Blau war nicht das schadhafte Blau von nassem Holz, sondern ein helles, freundliches, fast absichtliches Blau.
+„Ich hasse Städte“, sagte Taron.
 
-„Er liebt Gäste“, murmelte der Erzähler.
+Es stand neben dem Brunnen mit einer Ordentlichkeit, die Taron sofort misstrauisch machte. Die Mauern waren aus hellem Stein, frisch gekalkt und so sauber, dass selbst der Schatten darauf höflich wirkte. Das Dach war dunkel gedeckt, gerade gezogen und an den Kanten mit kleinen Kupferleisten versehen. Die Fenster waren schmal, hoch und blank geputzt, jedes mit einem kleinen Vorhang aus schwerem grauem Stoff, der aussah, als sei er nur deshalb nicht beleidigt, weil niemand ihn angefasst hatte.
 
-„Oder er verkauft Tinte“, flüsterte Taron. Er hätte die Pferde am liebsten hinter dem letzten Gebüsch angebunden, aber es gab hier keine letzten Gebüsche. Alles hatte Anfang, Mitte und ordentliche Enden. Sir Oswin nickte. Er hatte vorhin auch genickt, als Taron gesagt hatte, dass das hier eine schlechte Idee sei. Und vorher, als Taron das Gegenteil behauptet hatte.
+Über allem stand eine Esse, gerade wie ein Wachposten und blank eingefasst. Sie hätte vollkommen vertrauenswürdig gewirkt, wenn aus ihr nicht grüner Rauch gekommen wäre.
 
-Die Tür öffnete sich, bevor sie klopfen konnten.
+Aus der Esse kam grüner Rauch.
 
-Merlan Graufinger war nicht spektakulär. Er war das Gegenteil von spekatakulär, was, wenn man darüber nachdenkt, viel schwieriger zu erreichen ist. Groß, nicht schmächtig, sondern aufrechte Sehne, Hände ruhig, Finger leicht grau verflort, als hätte er auf dem Weg durch die Welt an Kohlenbecken angehalten. Sein Haar war dunkel mit dem Anflug von Silber, sein Gesicht war glatt, ohne Glätte. Er roch nach sauberem Leinen, Zitrus und einer Art Metall, das keine Schlacht gesehen hatte.
+Taron blieb stehen.
 
-„Herr Falkenried“, sagte er, als würde er einen viel früheren Besuch fortsetzen. „Sir Oswin von Hohenklamm.“
+Oswin blieb ebenfalls stehen und nickte langsam, als habe der Rauch einen Punkt gemacht, den man anerkennen musste.
 
-Sir Oswin nickte.
+Kummer und Sternfall, die an einem Pfosten angebunden waren, wirkten beide erleichtert, nicht weiter in Entscheidungen verwickelt zu sein.
 
-Taron blinzelte. „Wir kennen uns nicht.“
+„Der Wirt sagte, bei grünem Rauch sollen wir nicht klopfen“, sagte Taron.
 
-„Das lässt sich nicht immer vermeiden“, sagte Merlan mit der gelassenen Würde eines Mannes, dessen Tage länger sind als seine Listen. „Kommt herein.“
+Oswin nickte.
 
-Sie traten ein und erklärten sich damit selbst zu Bauerntrampeln. Nicht laut, nicht absichtlich; es geschah, weil Merlans Haus sauber war auf die Art, die einen dazu bringt, sich die Füße waschen zu wollen. Der Flur war schmal und hell, eine Bank stand da, die es nicht krumm nahm, wenn man sich setzte, ein Haken nahm Tarons Mantel an wie eine Ehre, nicht wie eine Last. In der Stube spiegelten sich Gläser in einer Vitrine. Auf dem Tisch lagen Bücher in Reihen, als wären Worte Möbel, und jedes Möbel an seinem Platz. In einem Eck tickte eine Uhr. Eine Kanne dampfte auf einem Ofen, dessen Kacheln blaues Kornblumenmuster trugen, das einen sofort dazu brachte, zuzugeben, dass man schon von weniger erschüttert worden war.
+„Also gehen wir.“
 
-„Setzt euch“, sagte Merlan. „Tee?“
+Oswin sah zum Haus und nickte noch einmal.
 
-Sir Oswin nickte.
+Der grüne Rauch quoll in einer dicken, gemütlichen Wolke aus der Esse, schwebte ein Stück zur Seite und formte dort für einen Augenblick etwas, das beinahe wie ein Gesicht aussah. Dann wurde es ein Kohlkopf und löste sich auf.
 
-„Ja“, sagte Taron zu schnell. Sein Magen erinnerte sich gerade daran, dass er auf dem Weg hierher festgestellt hatte, dass Wegzehrung ein Wort ist, das von hoffnungsfrohen Bäckern erfunden wurde.
+Oswin hob eine Hand und machte eine kleine Bewegung, die vermutlich „vielleicht meinte er nicht klopfen, sondern nicht unvorbereitet klopfen“ bedeuten sollte.
 
-Merlan goss ein, ohne zu verschütten, ohne abzusetzen, ohne zu erwarten, dass jemand ihm dafür dankt. Er gab Taron eine Schale und Sir Oswin eine zweite und setzte sich selbst erst, als sie saßen. Es war kein Theater. Es war ein Hinweis darauf, wie die Welt sein könnte, wenn man ihr die kleineren Unfälle abgewöhnt.
+„Das ist nicht dasselbe.“
 
-„Ihr habt mich gesucht“, sagte Merlan. Er sagte nicht, warum. Es war nicht aus Ungeduld, sondern aus Rücksicht auf das Peinliche, wenn man laut aussprechen muss, dass man Hilfe braucht.
+Oswin nickte.
 
-„Wir brauchen ...“, begann Taron.
+„Richtig“, sagte Taron. „Es ist mutiger. Und mutiger ist oft ein höfliches Wort für dümmer.“
 
-„... einen Zauberer“, sagte der Erzähler.
+„Noch ein weiser Satz“, sagte der Erzähler. „Diesmal leider deiner.“
 
-"einen einen Rat“, sagte Taron. „Man schickt mich nach Westen. Turm von Abendriss. Schlüssel.“
+Taron verschränkte die Arme.
 
-„Prophezeiung“, sagte Merlan nicht als Frage und schob Taron einen Teller mit dünn geschnittenen Äpfeln hin, die genauso schmeckten, wie sie aussahen.
+„Wir warten“, sagte er. „Bis der Rauch eine bessere Farbe hat.“
 
-„Leider“, sagte Taron.
+Oswin sah zur Esse und hob fragend die Braue.
 
-Sir Oswin nickte, während er einen Apfel aß.
+„Keine Ahnung. Eine, die nicht klingt, als müsste man danach den Arm abnehmen.“
 
-Merlan faltete die Hände. „Prophezeiungen stimmen oft. Nachher. Vorher sind sie Kunst. Danach sind sie Protokoll. Und im Dazwischen machen sie Menschen nervös.“
+Sie warteten.
 
-Sir Oswin nickte.
+Nach einer Weile öffnete sich die Haustür.
 
-„Gut“, sagte Merlan, als sei das ein wertvoller Beitrag zur Debatte.
+Ein Mann trat heraus, der nicht aussah wie ein Zauberer.
 
-Merlan öffnete ein Buch. Er wusste, wo die Seite war. Die Handschrift darauf war fein und eng, aber nicht prahlend, die Tinte grau mit einem Hauch von Braun.
+Das war verdächtig.
 
-„Bruder Malchior zitiert die mittlere Strophe des Fragmentes aus dem Zeitalter der Tränen“, sagte Merlan. „Er liebt die Mitte. Anfang und Ende sind weniger klar. Mitten behaupten Ordnung. ‚Wenn der schwarze Stern im Westen sinkt, und Milch das Haupt des Namenlosen tränkt…‘ – wir kennen das. Was er nicht zitiert, ist die Einfassung, die in manchen Abschriften fehlt.“
+Taron hatte keine genaue Vorstellung davon, wie Zauberer aussahen, aber er war sich ziemlich sicher, dass sie mindestens einen Hut brauchten. Vielleicht auch einen Stab. Oder eine Robe mit Sternen. Dieser Mann trug einen dunkelblauen Rock aus feinem Tuch, eine helle Weste, blanke Schuhe und eine schmale Brille mit silbernem Rand. An seinen Manschetten saß kein Fleck. Nicht ein einziger. Das war in Hohensteg beinahe prahlerisch.
 
-„Weil sie verbrannt ist“, sagte Taron.
+Sein weißes Haar war sauber zurückgekämmt. Sein Bart war kurz, spitz und so genau geschnitten, dass Taron vermutete, er habe eigene Maße.
 
-„Oder weil sie widerspricht“, sagte Merlan mild. „Das Fragment ist schwierig, weil es aus einem Eidbuch gerettet wurde, das man für Taufen und Verträge ebenso verwendete wie für Kriegserklärungen. Die Randvermerke sind wichtiger als der große Vers. Hier.“ Er schob das Buch zu Taron, der so tat, als könnte er altwestliche Kursivschrift fließend lesen. „‚Trete nicht in die Kammer, wenn du keine drei Schlüssel im Rücken trägst. Nimm keine Klinge mit, die nicht gehört. Sprich den Namen nicht, den du nicht trägst.‘“
+Er hielt eine Porzellanschale in der Hand, aus der es leise zischte. Die Schale hatte einen goldenen Rand. Das Zischen wirkte dadurch nicht weniger bedrohlich, nur besser erzogen.
 
-„Man wird vorsichtig, wenn Dinge leben, die nicht sterben sollen. Der Wächter von Waldkirch, den Ihr ‚Hunger‘ nennt, ist in dieser Aufzeichnung anders benannt. Es ist ein Wächter, kein Feind. Man band ihn an einen Eidstein. Man fütterte ihn.“
+„Wenn ihr wegen der Ziege kommt“, sagte er, „sie war schon vorher schwierig.“
 
-Taron erinnerte sich an kalten Atem und milchige Augen. An einen viel zu breiten Mund, der etwas fassen wollte. Sein Körper wurde kalt. Er spürte seine Rippen wieder, die er beschlossen hat vergessen zu wollen. 
+Taron blinzelte.
 
-„Das Eidenschloss“, sagte Merlan, als würde er ein Fenster öffnen. „Ein Bau unter Euren Kellern, älter als Eure Keller. Darin eine Kammer, in der der Eidstein steht. 
+Oswin schüttelte den Kopf.
 
-„Das sind Versuche“, sagte Merlan, nicht unfreundlich. „Keine Eide. Eide binden mehr als den Schwörenden. Man braucht dazu Hand, Zunge, Schritt. Die Alten nannten das die drei Eidschlüssel. Die Hand für das Gehaltene. Die Zunge für das Gesagte. Der Schritt für das Getane. Ohne sie riecht man nach Zufall. Und Zufall greift man an.“
+Der Mann sah ihn an. „Das sagen die Leute am Anfang fast immer.“
 
-Sir Oswin nickte, als würde er bestätigen, dass man Zufall greifen kann und dass es sich schlecht anfühlt.
+„Wir suchen Merlan Graufinger“, sagte Taron.
 
-„Drei Eidschlüssel“, wiederholte Taron. „Sind das Dinge? Schlüssel wie…“ Er machte eine Geste, die gleichzeitig Schloss, Tür und verlegter Löffel bedeutete.
+„Warum?“
 
-„Manchmal sind sie Dinge“, sagte Merlan. „Ringe, Siegel, Knoten. Manchmal sind sie Taten. Ein Eid der Hand kann etwas Gehaltenes sein, das einem nicht gehört und das man dennoch trägt, bis es richtig ist. Der Eid der Zunge kann ein Name sein, der wahr gesagt wird, obwohl es leichter wäre, ihn zu lügen. Der Eid des Schritts kann ein Weg sein, den man geht, obwohl er nicht belohnt wird. Ich interpretiere streng. Es gibt Schulen, die interpretieren hübsch. Hübsch bringt viel Musik und wenig Heimkehr.“
+„Man sagte uns, er sei ein Zauberer.“
 
-Taron sah auf seine Hände. Eine davon hatte er mit einem Mantel wärmer gemacht, den er nicht bezahlt hatte und der ihm zu groß war. Einen Namen hatte er, den er nicht loswurde. Einen Weg hatte er, den er nicht wollte.
+Der Mann seufzte sehr leise. Es war kein unordentlicher Seufzer. Es war ein sauber gefalteter Seufzer.
 
-„Und sie… öffnen?“, fragte er. „Türen? Oder Münder?“
+„Dann hat man euch belogen, beleidigt oder beides. Meistens ist es beides. Wer war es?“
 
-„Beides“, sagte Merlan. „Der Eidenschloss-Komplex liest die drei Zeichen. Man kommt tiefer mit ihnen. Ohne greift der Wächter an. Das ist nicht Bosheit. Das ist… Verwaltung. Ihr habt die unterste Stufe ohne Schlüssel überlebt. Das lässt zwei Möglichkeiten zu: Entweder ist Eure Geschichte zäh, oder jemand hat Euch kurz aus ihr genommen.“
+„Der Wirt vom Blauen Eber.“
 
-„Jemand hat“, sagte Taron.
+„Beides“, sagte der Mann.
 
-„Jemand hat“, wiederholte der Erzähler.
+„Ihr seid Merlan?“
 
-Merlan nickte. „Ich rieche Mantel. Fremde Fäden. Nichts, was ich sage, ändert das. Ich kann Euch nur warnen und Euch ausstatten. Zum Turm von Abendriss: Er ist weniger Turm als Stiel eines Werkzeugs, das die Alten in den Himmel steckten, um eine Krone zu halten, die nicht herunterfallen wollte. Splitter davon liegen immer noch in seiner Umgebung. Man bekommt sie nicht mit Kraft, sondern mit Reihenfolge. Es gibt dort Stufen, die zählen, und Türen, die ein Lied kennen. Ich habe das Lied nicht. Ihr auch nicht. Ich hoffe auf Euer Glück. Das ist einer der schwächsten Sätze, die ein Gelehrter aussprechen kann.“
+„Leider ja. An guten Tagen streite ich es ab, an schlechten korrigiere ich Leute. Heute ist ein mittlerer Tag.“
 
-Sir Oswin nickte auf eine Weise, die bedeutete, dass er in seinem Leben schon schwächere Sätze gehört hatte.
+Taron sah zur Esse. „Ist grüner Rauch gut oder schlecht?“
 
-„Warum tut Ihr das?“, fragte Taron. „Warum… helft Ihr?“
+Merlan hob die Porzellanschale und betrachtete sie. „Für Mäuse schlecht. Für Leinen ebenfalls. Für Menschen nur, wenn sie sehr neugierig atmen.“
 
-„Weil ich nicht dumm bin“, sagte Merlan und faltete die Hände fester. „Und weil ich nicht mutig bin.“
+„Das klang nicht wie eine Antwort.“
 
-„Er ist feige“, sagte der Erzähler heiter.
+„Es war eine genaue Antwort. Dass sie euch nicht beruhigt, ist ein Nebenproblem.“
 
-„Weil ich weiß, was passiert, wenn Menschen mit unvollständigen Prophezeiungen herumlaufen, als wären es Landkarten“, fuhr Merlan fort, der den Erzähler nicht hörte. „Sie rennen über Klippen, und andere rennen ihnen nach, weil es Geschichten ordentlicher erscheinen lässt, wenn viele lieben, was einer tut. Ich bin einem Orden verbunden, der Neutralität predigt. Wir mischen uns nicht ein. Wir beobachten. Wir sammeln. Wir schreiben ab. Wir läuten selten. Wenn wir läuten, ist es zu spät.“
+Oswin trat einen Schritt vor und verbeugte sich knapp. Er tat das auf die müde Art eines Mannes, der höflich sein konnte, selbst wenn sein Kopf noch immer Einwände gegen den Morgen hatte.
 
-„Dann kommt nicht mit“, sagte Taron, halb Trotz, halb Versuch, nicht enttäuscht zu sein. „Es ist besser so, sagt Ihr.“
+Merlan musterte ihn über den Rand seiner Brille hinweg.
 
-„Ich komme nicht mit“, sagte Merlan. „Weil ich neutral bin. Und weil ich Angst habe. Und weil ich eine Stelle in der Einfassung kenne, die ich nicht zitiere, wenn ich Euch mag.“
+„Ihr seht aus wie ein Mann, der einmal sehr vielversprechend war.“
 
-Taron hob den Kopf. „Welche Stelle?“
+Oswin nickte.
 
-„‚Die Freiheit wird ihn finden‘“, sagte Merlan. „Das ist hübsch. Alle mögen Freiheit. Aber Freiheit wovon? Freiheit wessen? Freiheit ist ein Wort, das in den meisten Zungen zu groß für einen Morgen ist. Theoretisch kann es die Freiheit des Wächters meinen. Oder die Freiheit der, die ihn banden. Oder Eure. Oder die Freiheit der Krone von dem, was auf ihr lasten soll. Ich kann es Euch nachher sehr genau sagen.“
+„Es war keine Freude.“
 
-Sir Oswin nickte. Er kannte die Art Freiheit, die man bekommt, wenn man zu alt ist, um etwas aufzuhalten.
+Oswin nickte noch einmal. Offenbar hatte er beschlossen, dass Merlan auch ohne Worte genug über ihn erfahren konnte.
 
-„Warum sagt Ihr es jetzt nicht?“, fragte Taron.
+Merlan sah zu Taron.
 
-„Weil ich dann lüge“, sagte Merlan schlicht. „Ich kann Euch sagen, was es nicht ist: Sie ist nicht die Freiheit vom Preis. Nichts davon ist die Freiheit vom Preis.“
+„Und du?“
 
-Taron trank aus, obwohl der Tee noch heiß war. Ein kleiner, braver Schmerz legte sich auf seine Zunge. Das war fair.
+„Taron Falkenried.“
 
-Merlan stand auf, um einen kleinen, schlichten Schrank zu öffnen, der innen weniger schlicht war. In Fächern lagen Dinge, die man nur dann angenehm anstarrt, wenn man weiß, wie man sie benutzt: Fläschchen, Päckchen, Drähte, eine Schneckenuhr, ein Beutel mit Stecknadeln, die so fein glänzten, dass sie selbst in einem Roman nicht gut weggekommen wären.
+Der Name veränderte etwas.
 
-„Sie werden Euch sagen, Ihr braucht Zauber“, sagte Merlan und nahm einen kleinen Tonzylinder heraus. „Ihr braucht Hände, die wissen, wo sie hinfassen sollen. Aber dies hier gebe ich Euch trotzdem, weil die Welt selten nach der Theorie funktioniert.“ Er hielt den Zylinder zwischen Daumen und Zeigefinger. „Kein Zauber. Schwefelblüte, Harz, Öle, ein Salz, das ich nicht nenne, und etwas, das wir hier Grünhaut nennen und das man nicht essen sollte. Einmal anreißen, zwei Atemzüge, dann dicker, kühler Rauch. Nicht in Räumen verwenden, die man wiedersehen möchte. Nicht in Wäldern. Nicht in Kleidern. Nicht in der Nähe von Pferden, die in der Regel weniger philosophisch sind als Menschen.“
+Nicht viel. Merlan riss nicht die Augen auf, fiel nicht auf die Knie und rief keine Diener, Heilige oder besonders teuren Weine. Aber seine Hand an der Porzellanschale wurde stiller. Der grüne Rauch kringelte sich über den Rand und zog ihm beinahe in die Nase.
 
-„Eine Rauchbombe“, sagte Taron, und das Wort fühlte sich nach Gassen an, nicht nach Kacheln mit Kornblumen.
+Er hielt die Schale weiter von sich weg.
 
-„Eine Rauchbombe“, bestätigte Merlan. „Selten. Ich habe vier. Ich gebe eine ab, weil Ihr es ohnehin versuchen würdet, selbst eine zu bauen, und dann hätten wir weniger Hohensteg. Und Hohensteg hat schon nicht viel.“
+„Falkenried“, sagte er.
 
-„Blau ist hübsch“, sagte der Erzähler.
+„Ja.“
 
-Merlan legte den Zylinder auf den Tisch, als legte er eine Bitte ab, nicht ein Geschenk. „Zieht daran nicht den Stift, den es nicht gibt. Reibt die Kappe an etwas Rauem, dann werft ihn. Nicht festhalten. Nicht zurückholen. Nicht in den Mantel stecken, um ihn später zu verwenden. Ihr lacht, aber ich antworte da auf Erfahrung.“
+„Aus Waldkirch?“
 
-Taron streckte die Hand aus. Seine Finger fühlten das Gewicht, das nicht schwer war, aber beschlossen hatte, ernst zu sein.
+Taron seufzte. „Leider ja.“
 
-„Danke“, sagte er, als hätte er damit etwas Unschädliches getan.
+„Ausgezeichnet“, sagte Merlan.
 
-„Noch etwas“, sagte Merlan und zog ein Blatt aus einem anderen Buch. „Drei Eidschlüssel. Ihr müsst nicht alles auf einmal tragen. Aber Ihr könnt beginnen, nicht nur benannt zu werden, sondern zu benennen. Es geht nicht um große Schwüre. Große Schwüre sind laut und sterben gern auf dem Weg. Nehmt Euch vor dem Eid der Zunge in Acht. Er ist verführerisch. Wer einmal einen Namen richtig sagt, will danach mehr Namen richtig sagen. Manchmal gibt es dann keine Namen mehr übrig, die man noch sagen kann, ohne dass jemand stirbt.“
+„Nein.“
 
-„Ermetaphert“, sagte der Erzähler.
+„Doch.“
 
-„Er warnt“, flüsterte Taron.
+„Wenn Leute in letzter Zeit ausgezeichnet sagen, meinen sie meistens, dass ich bald verletzt werde.“
 
-Sir Oswin nickte, betrachtete die Dekokanne und tat so, als würde er sich auskennen.
+„Das ist eine erstaunlich reife Beobachtung“, sagte der Erzähler.
 
-„Der Eid der Hand“, fuhr Merlan fort, „ist leichter. Tragt etwas, das nicht Euch gehört, für jemanden, der es nicht tragen kann. Nicht stehlen. Tragen. Es prägt Euch ein Zeichen in die Finger, das kein Messer schneidet. Der Eid des Schrittes ist der, der Euch ohnehin bevorsteht. Geht dorthin, wo Ihr gesagt habt, dass Ihr hingeht, auch wenn Ihr umkehrt wolltet. Nicht heroisch. Nur… nicht feige.“
+Taron hob einen Finger. „Du bist still.“
 
-„Ihr sagt dauernd, dass Ihr feige seid“, sagte Taron. „Ich glaube Euch nicht.“
+Merlan sah interessiert auf den Finger. „Zu wem sprichst du?“
 
-„Ich sage es, damit es jemand sagt“, sagte Merlan. „In Geschichten sagt es niemand. In Geschichten sagen Menschen, sie seien unbedeutend. Das ist falsche Bescheidenheit. Die echte ist, zuzugeben, dass man Angst hat, bevor sie einem die Beine nimmt.“
+„Niemandem.“
 
-Sir Oswin nickte, vielleicht für etwas, das zwanzig Jahre her war und nachts nur selten still blieb.
+Oswin lächelte schwach und nickte, als sei „Niemand“ eine vollkommen ordentliche Vorstellung.
 
-Merlan stand auf, ging zum Ofen und schob die Kelle beiseite. An einem Haken hing ein kleiner Beutel. Er nahm ihn und warf eine Prise in die Glut. Der Rauch im Raum änderte nicht die Farbe (das wäre effekthascherisch gewesen), aber durch das kleine Flügelfenster sah man, wie draußen am Schornstein das Blau kurz grüner wurde und dann, als Merlan eine zweite Prise warf, in ein ruhiges Violett wechselte.
+Merlan betrachtete Taron nun endgültig nicht mehr wie einen Besucher, sondern wie eine Fußnote, die sich in den Haupttext verirrt hatte.
 
-„Übergelaufen?“, fragte Taron erschrocken.
+„Aha“, sagte er.
 
-„Nein“, sagte Merlan. „‚Besucher, die noch zuhören.‘ Ich habe die Zeichen erweitert. Das Dorf mag mich ohnehin nicht. Es ist gleich, ob der Grund Vernunft hat oder nur Färbung.“
+Taron kannte dieses „Aha“. Es war ein Gelehrten-Aha. Das bedeutete selten etwas Gutes. Ein normales Aha sagte: Ich habe verstanden. Ein Gelehrten-Aha sagte: Ich habe gerade drei neue Wege gefunden, wie du Unrecht haben könntest.
 
-„Warum mögen sie Euch nicht?“, fragte Taron, der hier sehr mochte.
+„Ich spreche manchmal mit mir selbst“, sagte Taron.
 
-„Weil ich repariere, wenn sie gerne neu kaufen wollen würden“, sagte Merlan. „Weil ich sage, daß das Flackern der Lampe nicht Feen sind, sondern Luft und Docht. Weil ich aus Wein Wasser mache, wenn er in der Küche explodieren will. Weil ich von ihren Töchtern Haare nehme, um Krankheiten zu prüfen, und das erinnert sie an Hexen. Und weil ich ruhig rede. Ein ruhiger Mann im Streit ist immer der Verdächtige.“
+„Das tun viele“, sagte Merlan.
 
-Das war erschreckend vernünftig.
+„Sehr gut.“
 
-„Noch eine Warnung“) – Merlan setzte sich wieder – „zum Turm. Keiner geht allein hinein, der wieder hinauskommt, es sei denn, er geht als jemand anders hinaus. Das ist wörtlich und nicht so wörtlich. Es gibt dort Spiegel, die kein Glas haben. Sie zeigen nicht Euch, sondern das, was Ihr behauptet, zu sein. Wer behauptet, Auserwählter zu sein, sieht dort Dinge, die ihn verspeisen wollen. Wer behauptet, niemand zu sein, sieht Leere. Ich empfehle, nichts zu behaupten. Geht, stoßt euch, nehmt euch ernst genug, um zu leben, und nicht so ernst, dass Ihr sterbt, um recht zu behalten.“
+„Die meisten warten nur, bis andere Menschen den Raum verlassen.“
 
-„Geht das?“, fragte Taron.
+„Weniger gut.“
 
-„Manchmal“, sagte Merlan.
+Merlan trat zur Seite und öffnete die Tür weiter.
 
-„Er war schon da?“, flüsterte Taron in seinen Mantel.
+„Kommt herein. Aber fasst nichts an, das glimmt, tropft, singt oder beschriftet ist.“
 
-„Er hat zu viel gelesen“, sagte der Erzähler. „Leser sind gefährlich. Sie nehmen einem die Überraschungen.“
+Taron sah an ihm vorbei in den Raum. „Singt?“
 
-„Wenn Ihr zurückkommt“, sagte Merlan, als hätte er gerade einen Fenstersims abgewischt, „sucht mich nicht. Ich werde nicht da sein.“
+„Nicht mehr lange, wenn meine Rechnung stimmt.“
 
-„Das ist eine sehr spezielle Art, ‚Viel Glück‘ zu sagen“, meinte Taron.
+„Und wenn sie nicht stimmt?“
 
-„Ich will Euch nicht in die Gewohnheit bringen, dass jemand klatscht, wenn Ihr durch eine Tür geht“, sagte Merlan. „Die Welt hat wenig Sitzplätze.“
+„Dann singt es vermutlich besser.“
 
-Sir Oswin nickte, als hielte er es für unangebracht, dass sitzende Männer über Türen reden.
+Oswin ging zuerst hinein.
 
-„Noch etwas zu dem Versprechen“, sagte Merlan. „‘Freiheit‘. Achtet darauf, wer das Wort zuerst sagt, wenn Ihr unten seid. Es ist in manchen Räumen eine Losung. Wer ‚Freiheit‘ zuerst sagt, bekommt sie nicht. Er gibt sie weg. Ich rate Euch, sie nicht zu sagen, wenn Sie Euch auf der Zunge liegt. Wartet. Lasst jemand anderen das Wort in den Raum tragen. Es ist unhöflich, und Ihr wollt unhöflich sein, wo man mit Höflichkeit verlieren kann.“
+„Warum gehst du zuerst?“, fragte Taron.
 
-Das war eine dieser Sätze, die in Lieder passten, aber nur, wenn man die Melodie hart genug anschlug.
+Oswin tippte auf seine Rüstung.
 
-„Bruder Malchior“, sagte Taron, und das war mehr als ein Name.
+„Gegen Gesang?“
 
-„Ein Mann, der Recht behalten möchte, wird immer etwas finden, das ihn bestätigt“, sagte Merlan und klang so freundlich, dass es fast wie Respekt wirkte. „Ich bete, dass er nicht findet, was er sucht.“
+Oswin nickte.
 
-„Ihr betet?“, fragte Taron überrascht.
+„Gegen Folgen“, übersetzte Taron. „Natürlich.“
 
-„Man wird alt“, sagte Merlan. „Ich bete selten, aber wenn, dann bete ich nicht für Dinge. Ich bete für Zögern in Eifernden. Das ist die wirksamste Form. Wenn Gott so arbeitet, wie manche behaupten, dann hat er ein weiches Herz für Leute, die beim Zorn stolpern.“
+Das Innere von Merlans Haus war größer, als es von außen hätte sein dürfen.
 
-Sir Oswin nickte, schwer, als hätte ihn jemand gebeten, während eines Krieges zu schlafen.
+Taron blieb auf der Schwelle stehen und sah sich um. Der Hauptraum bestand aus dunklen Regalen, blanken Tischen, nummerierten Schubladen, beschrifteten Flaschen, sauber gebundenen Kräuterbündeln, Papierrollen in Lederringen und kleinen Kästen, deren Messingschilder so ordentlich glänzten, dass Taron sich persönlich ungepflegt fühlte. Über einem Ofen hing ein polierter Kupferkessel, in dem etwas Bläuliches leise blubberte. Auf einem Tisch lagen drei tote Mäuse nebeneinander, allerdings auf einem weißen Tuch, mit kleinen Abstandshaltern aus Holz, was die Sache nicht besser machte, nur gebildeter.
 
-„Wir sollten gehen“, sagte Taron, weil der Raum zu bequem wurde und bequeme Räume Kriege verloren hatten.
+An der Wand hingen Pergamente. Viele Pergamente. Alle gerade. Manche waren mit sorgfältigen Zeilen beschrieben, andere mit Skizzen von Zeichen, Türen, Sternen, Händen, Augen, Schlüsseln und Wesen, die Taron lieber nicht in einem Haus gesehen hätte, in dem sogar das Unheimliche alphabetisch geordnet war.
 
-Merlan stand auf, als hätte er es schon vorher gehört. Er brachte Taron seinen Mantel. „Hübsches Stück“, sagte er, ohne Versuch und ohne Neid. „Vorsicht mit den Säumen. Irgendwer hat daran geknotet. Knoten sind Eide, die keiner ausgesprochen hat. Sie gehen an die Finger, wenn man sie zu oft löst.“
+„Das ist innen größer“, sagte Taron.
 
-„Habt Ihr ihn… gesehen?“, fragte Taron. „Den Mann mit dem Mantel.“
+Merlan stellte die Schale auf ein Fensterbrett, auf dem bereits ein kleines Porzellanschild mit der Aufschrift Vorübergehend gefährlich stand. „Nein. Außen ist nur ungenau.“
 
-Merlan hielt den Mantel nicht ganz so fest, wie man ein Geheimnis hält. „Neblig“, sagte er. „Ich sah nicht ihn. Ich sah die Stelle, die er offen ließ. Manche Menschen sind deutlicher in dem, was sie vermeiden, als in dem, was sie tun. Das ist ein interessantes Talent. Das ist auch ein gefährliches Talent.“
+„Das ist Magie.“
 
-„Er hat Angst“, sagte der Erzähler noch einmal, als wollte er raten.
+„Das ist schlechte Baukunst und gute Lagerung.“
 
-„Ihr?“, fragte Taron.
+„Der Raum passt nicht ins Haus.“
 
-„Natürlich“, sagte der Erzähler. „Aber nicht so sorgfältig wie er.“
+„Junge, in den meisten Menschen passt auch mehr Dummheit, als ihre Köpfe von außen versprechen. Trotzdem nennt niemand das Magie.“
 
-„Geht“, sagte Merlan freundlich. „Sonst bleibe ich neutral und helfe nur zu viel.“
+Oswin nickte, diesmal beinahe bewundernd.
 
-Draußen wechselte der Rauch zu grau, als hätte das Haus beschlossen, wieder wie alle zu atmen. Der Garten sah aufgeräumt, aber nicht schleimig aus; es gab Häuser, die warfen Ordnung wie eine schuldbewusste Decke über sich, dieses atmete sie.
+Taron sah ihn böse an.
 
-„Danke“, sagte Taron, und es hatte Gewicht.
+„Ich mag ihn nicht“, sagte Taron.
 
-„Nehmt den Weg am Bach“, sagte Merlan, nicht als Spruch, sondern als Rat. „Die Straße ist kürzer und voller Augen. Der Bach macht Schuhe nass und Zungen still. Und wenn Ihr an der Brücke seid, wo drei Weiden stehen und eine tot, dann… haltet den Kopf gesenkt. Nicht wegen Pfeilen. Wegen Erinnerungen.“
+„Das spricht für ihn“, sagte der Erzähler.
 
-„Er nickt noch, wenn er tot ist“, sagte der Erzähler.
+Merlan drehte sich langsam um.
 
-Sir Oswin nickte.
+„Da war wieder ein Gespräch.“
 
-Als sie die Steine wieder betraten, wandte Taron sich um. Merlan stand in der Tür. Er hob die Hand. Nicht zum Winken. Es war eher ein „Genug.“
+Taron zwang sein Gesicht in die Form völliger Unschuld. Es war keine Form, die ihm gut stand.
 
-„Ihr kommt nicht mit“, sagte Taron das Offensichtliche, weil es manchmal hilft, das Offensichtliche wie ein Pflaster abzulösen.
+„Nein.“
 
-„Ich komme nicht mit“, sagte Merlan. „Neutralität. Furcht. Und etwas, das ich nicht sagen möchte, weil Ihr es dann hören würdet.“
+„Schlecht gelogen.“
 
-„Er weiß mehr“, sagte der Erzähler, „und hat nicht vor, weniger zu wissen.“
+„Ich bin verletzt.“
 
-„Ihr werdet zurückkommen“, sagte Merlan, so, dass es nicht tröstete und nicht drohte. „Vielleicht rechtzeitig. Vielleicht nicht. Prophezeiungen sind allergisch gegen Pünktlichkeit.“
+„Das ist keine Entschuldigung, das ist eine Zustandsbeschreibung.“
 
-„Das ist ungerecht“, sagte Taron.
+Merlan wies auf zwei Stühle an einem Tisch. Beide waren frei. Das allein kam Taron unnatürlich vor. Neben jedem Stuhl lag ein kleines Kissen, und auf dem Tisch standen drei Becher in einer Reihe, als hätten sie Dienstgrad.
 
-„Ja“, sagte Merlan. „Aber selten tödlich. Das Tödliche ist das, was man tut, um gerecht zu sein.“
+„Setzt euch.“
 
-Sie gingen. Der Bach fand sie, wie der Bach Menschen findet, die nicht darauf achten, wohin sie treten. Er sprach nicht viel. Wasser verschwendet selten Worte. Sir Oswin ritt neben Taron her, klopfte einmal auf den Zylinder in Tarons Tasche, als wollte er fragen, ob er wisse, was er da tat. Taron wusste es nicht. Das war nicht neu.
+„Einfach so?“
 
-„Drei Eidschlüssel“, sagte er halblaut. „Hand. Zunge. Schritt. Hast du das erfunden?“
+„Nein. Mit Würde. Aber zur Not einfach so.“
 
-„Ich bin nicht Merlan“, sagte der Erzähler.
+Oswin setzte sich, nachdem er Merlan fragend angesehen hatte. Merlan nickte. Oswin nickte zurück. Taron hatte das Gefühl, gerade einen vollständigen Vertrag zwischen zwei Männern verpasst zu haben, die beschlossen hatten, Sprache für überbewertet zu halten.
 
-„Aber du weißt, wovon er spricht.“
+Taron setzte sich nicht.
 
-„Ich weiß, wovon viele sprechen. Sie sprechen gern. Er sprach weniger. Das ist ein Zeichen von Respekt.“
+„Wir brauchen keine gefährlich ordentlichen Becher und keine Stühle mit Würde“, sagte er. „Wir brauchen jemanden, der alte Schrift lesen kann.“
 
-„Du magst ihn nicht.“
+„Das ist deutlich vernünftiger als die meisten Gründe, aus denen Leute zu mir kommen.“
 
-„Ich mag Männer, die nicht versuchen, mir die Geschichte wegzunehmen“, sagte der Erzähler. „Er versucht, sie zu ordnen. Ordnung ist eine höfliche Form von Gewalt.“
+„Und wir brauchen vielleicht einen Zauberer.“
 
-„Das ist… sehr viel für eine Stunde“, sagte Taron.
+„Dann solltet ihr weiter suchen.“
 
-„Es wird mehr“, sagte der Erzähler ruhig.
+„Einen Mann, der Dinge weiß, die andere nicht wissen.“
 
-Am Rand einer kleinen Wiese standen drei Weiden. Zwei warfen Schatten wie alte Frauen, die ihr Haar offen tragen. Eine war tot; sie stand dennoch, als würde sie noch einmal ein Blatt versuchen wollen. Sir Oswin zügelte. Er nickte gegen den Boden. Ein Strick, gerissen. Ein abgenutzter Fleck Erde. Worte, die vielleicht einmal gesagt worden waren und der Wind mitgenommen hatte, weil kein Eid ihnen Gewicht gegeben hatte.
+Merlan nickte. „Dann seid ihr leider richtig.“
 
-„Kopf runter“, murmelte Taron und wusste nicht genau, vor was.
+Taron legte beide Hände auf die Tischkante. „Wir suchen den Turm von Abendriss.“
 
-Er hob den Mantelkragen, nicht wegen Regen, sondern wegen eines Gefühls, das man nicht beschreiben konnte, ohne wieder dumm zu klingen.
+Merlan hielt inne.
 
-„Wächter“, sagte er leise. „Du bist ein Wächter. Nicht mein Feind.“
+Dieses Mal wurde nicht nur seine Hand still. Der ganze Raum schien kurz zuzuhören. Der Kessel blubberte leiser. Irgendwo knackte Holz. Auf einem Regal fiel ein kleines Stück Kreide um, vermutlich aus Respekt oder Schwäche. Es landete exakt parallel zur Tischkante.
 
-Der Bach murmelte Zustimmung, nur aus Höflichkeit.
+„Wer schickt euch zum Turm von Abendriss?“
 
-„Hast du je einen Eid geschworen?“, fragte er den Erzähler, bevor er darüber nachdachte, ob das albern sei.
+„König Albrecht“, sagte Taron.
 
-„Ich schwöre jedes Mal, wenn ich beginne“, sagte der Erzähler. „Ich schwöre, es ordentlich zu tun. Ich breche oft.“
+„Das erklärt den Mangel an Vorsicht.“
 
-„Und was gibt dir das?“
+„Und Bruder Malchior.“
 
-„Arbeit“, sagte der Erzähler, der selten so ehrlich war. „Und Gesellschaft.“
+„Das erklärt den Überschuss an Gewissheit.“
 
-Sir Oswin nickte und sah nicht zu Taron. Seine Hand lag auf dem Zügel, als wäre das Leder die letzte Lüge, die er sich erlaubte.
+Taron spürte zum ersten Mal seit dem Betreten des Hauses etwas, das beinahe Hoffnung war.
 
-„Wir sind also… drei?“, sagte Taron und meinte damit wenig und viel.
+„Ihr kennt Malchior?“
 
-„Ein Ritter, ein Stallbursche und eine Stimme gehen in einen Turm“, sagte der Erzähler. „Was soll da schon schief gehen?“
+„Ich kenne seine Handschrift. Sie hat in drei Archiven Schaden angerichtet.“
 
-„Alles“, sagte Taron prompt.
+„Kann Handschrift Schaden anrichten?“
 
-„Endlich“, sagte der Erzähler zufrieden. „Eine genaue Prophezeiung.“
+„Jede Handschrift, wenn sie genug Vertrauen erhält.“
 
-Sie ritten weiter. Hinter ihnen lag ein Haus, das Merlan gehörte und das mehr von ihm sagte, als eine Rede gesagt hätte. Davor blühte eine fast übersehene Blume, die Landkinder nur unter den Knien sehen. Merlan hatte eine Stufe abgerundet, damit niemand stolperte. Das war vermutlich die nützlichste Magie, die er je getan hatte: Vorausnehmen, wo die Welt einem das Schienbein aufschlägt.
+Oswin saß bereits sehr gerade auf seinem Stuhl, als könne der Stuhl eine politische Meinung haben und er wolle sie nicht beleidigen.
 
-„Er kommt nicht mit“, dachte Taron, und das war gut. Es war auch schlecht. Es war beides. Es war jene Sorte Doppelsinn, aus denen Prophezeiungen gemacht sind und gegen die man im Alltag nicht viel in der Hand hat.
+„Malchior sagt, im Schatten des Turms ruht der Menschenschlüssel.“
 
-„Die Freiheit wird ihn finden“, sagte Taron, probierte die Worte aus, als wären sie bitterer Tee.
+Merlan schloss die Augen.
 
-„Spuck’s aus“, riet der Erzähler.
+„Natürlich sagt er das.“
 
-Taron spuckte nichts aus. Er behielt alles drin. Das war eine andere Art Mut. Oder Feigheit. Oder beides, was praktisch war, wenn man nicht wusste, ob die Welt gerade einen Zeugen oder einen Lügner brauchte.
+„Stimmt es?“
 
-Am Nachmittag fand der Weg den Bach wieder. Das Licht lag schräg wie eine Hand, die einem durchs Haar fährt, wenn man nicht ganz Kind und nicht ganz erwachsen ist. Kummer, das Pferd, blähte die Nüstern, als wolle es sagen, dass Wasser Wege kennt, die Hufen nicht gefallen. Sir Oswin nickte, weil Pferde recht haben, wo Karten lügen.
+„Vermutlich.“
 
-„Was, wenn die ‚Freiheit‘ seine ist?“, fragte Taron plötzlich.
+„Das klang nicht beruhigt.“
 
-„Wessen?“, fragte der Erzähler.
+„Wahrheit ist selten beruhigend. Darum ersetzen Könige sie gern durch Banner.“
 
-„Des Wächters.“
+Taron zog die Pergamentabschrift aus seinem Beutel. Malchior hatte sie ihm beim Aufbruch gegeben, zusammengerollt, versiegelt und mit einer Feierlichkeit überreicht, als enthalte sie Weisheit und nicht hauptsächlich Arbeit für andere Menschen.
 
-„Dann wird er federn lassen, wer ihn gebunden hat“, sagte der Erzähler. „Und der Mann, der glaubt, er habe recht, wird bluten.“
+„Wir haben eine Abschrift.“
 
-„Malchior“, sagte Taron.
+Merlan nahm sie nicht sofort.
 
-„Vielleicht“, sagte der Erzähler. „Oder du. Oder jemand, der eine Ziege melkt. Das ist das Problem mit Gerechtigkeit. Sie verteilt sich selten würdevoll.“
+„Von wem?“
 
-„Merlan…“, begann Taron.
+„Malchior.“
 
-„Mag dich“, sagte der Erzähler überraschend mild. „Und hat Angst, dass du recht haben könntest. Das ist schwer auszuhalten bei Menschen, die man mag.“
+Merlan sah die Rolle an, als habe sie ihm gerade auf den Stiefel gespuckt.
 
-„Du kennst dich aus“, sagte Taron.
+„Leg sie auf den Tisch.“
 
-„Ich schreibe gern über andere. Es hält mich aus mir heraus.“
+Taron tat es.
 
-„Kommst du mit?“, fragte Taron, halb scherzhaft, halb ernst.
+Merlan zog ein Paar dünne Handschuhe aus der Innentasche seines Rocks.
 
-„Ich bin neutral“, sagte der Erzähler mit Merlans Stimme, dann mit seiner eigenen. „Und feige. Und… ich werde nicht gehen, bevor du gehst. Das ist der Vorteil von Stimmen. Sie reisen leicht.“
+„Ist sie giftig?“, fragte Taron.
 
-„Sind wir schon weg?“, fragte Taron.
+„Nein.“
 
-„Fast“, sagte der Erzähler.
+„Warum die Handschuhe?“
 
-Am Abend, als das Licht noch nicht ganz verschwunden war, stand der Turm von Abendriss am Horizont. Nicht wie eine Drohung. Eher wie eine Aufgabe, die jemand vergaß, auf die Liste zu setzen, und die nun sehr groß zwischen anderen Erledigungen ragte. Er war schlank, hoch, kaum da. Der Himmel hatte ihn fast aufgegessen. Ein Streifen Dämmerung klebte daran wie ein Band, das niemand gelöst hatte, damit es nicht sang.
+„Respekt.“
 
-Sir Oswin nickte. Er tat es so, dass man wusste, dass er nicht zum ersten Mal auf etwas Großes zuging.
+„Vor der Prophezeiung?“
 
-Taron hielt die Rauchbombe in der Hand und fühlte sich beruhigt von ihrer Schwere, obwohl sie leicht war. Er wusste, dass sie mehr Chemie als Magie war. Er wusste nun, dass das eine das andere oft erledigte, wenn Männer mit Worten spielten.
+„Vor alten Fehlern. Die kleben.“
 
-Er steckte sie weg.
+Er brach das Siegel nicht. Er betrachtete es erst. Dann roch er daran.
 
-„Hand, Zunge, Schritt“, sagte er. „Ich verspreche nichts Großes.“
+Taron sah zu Oswin.
 
-„Klug“, sagte der Erzähler.
+Oswin hob nur eine Braue, als wolle er sagen, dass er schon merkwürdigere Dinge gesehen hatte und einige davon geheiratet hätten.
 
-„Ich trage, was ich tragen kann.“
+„Billiges Wachs“, sagte Merlan.
 
-„Dumm“, sagte der Erzähler leise, fast zärtlich.
+„Ist das wichtig?“
 
-„Und ich gehe, wohin ich gesagt habe, dass ich gehe.“
+„Für die Prophezeiung nicht. Für meinen Eindruck von Waldkirch schon.“
 
-„Das ist das Schlimmste von allem“, seufzte der Erzähler. „Es verrät mir, dass du es ernst meinst.“
+Er öffnete die Rolle und breitete sie aus. Die Schrift war sorgfältig, gerade und viel zu überzeugt von sich selbst. Merlan las die ersten Zeilen. Dann die zweiten. Bei der dritten runzelte er die Stirn. Bei der vierten machte er ein Geräusch, das Taron bisher nur von Menschen gehört hatte, die in etwas Weiches getreten waren.
 
-„Das tue ich nicht“, sagte Taron hastig.
+„Schlecht“, sagte Merlan.
 
-„Das ist in Ordnung“, sagte der Erzähler. „Es muss nicht groß sein. Es muss nur wahr sein.“
+„Die Prophezeiung?“
 
-Sie ritten in die sinkende Helligkeit. Hinter ihnen rauchte ein Haus, das verstand, dass Farbe Zeichen sind und Zeichen nur so weit helfen, wie man sie lesen kann. Vor ihnen stand eine Aufgabe, die keine Farbe hatte. Das machte sie nicht weniger wirklich. Es machte sie nur, wie so vieles, schwerer zu benennen.
+„Die Abschrift.“
 
-„Freiheit“, dachte Taron nicht. Er dachte an Elva, daran, wie sie die Braue hob, wenn er dumm war, und daran, wie sie lachte, wenn es zu spät war, sich zu ärgern. Er dachte daran, dass er ihr nichts versprochen hatte.
+„Was ist mit der Prophezeiung?“
 
-„Noch nicht“, sagte der Erzähler, der ungebeten war.
+„Das weiß ich noch nicht. Ich versuche gerade, sie unter dem Priester herauszugraben.“
 
-„Halt dich da raus“, murmelte Taron.
+Taron setzte sich nun doch.
 
-„Selten“, sagte der Erzähler. „Aber ich werde versuchen, mich würdevoll zu benehmen.“
+„Ist das normal?“
 
-„Wie Merlan?“
+„Dass Priester Dinge übermalen, die sie nicht verstehen? Ja. Dass Könige daraufhin junge Männer in Richtung alter Siegel schicken? Leider ebenfalls ja.“
 
-„Wie jemand, der eine Bank baut, auf der man sitzen kann, ohne zu fallen“, sagte der Erzähler. „Nicht wie jemand, der lernt, die Welt in Flammen zu setzen und die Farbe des Rauches zu erklären.“
+Oswin hob den Kopf.
 
-„Er war beeindruckend“, gab Taron zu.
+Merlan sah ihn an. „Ja. Alte Siegel. Der Turm von Abendriss ist kein Turm, weil jemand gern hoch wohnen wollte.“
 
-„Er war ordentlich“, sagte der Erzähler. „Beeindruckend ist für Messen. Ordentlich ist für Winter.“
+Taron schluckte. „Sondern?“
 
-„Wir werden einen Winter haben, oder?“, fragte Taron.
+„Weil manche Dinge unter keinen Umständen ebenerdig gebaut werden sollten.“
 
-„Wir haben ihn schon“, sagte der Erzähler. „Du hast ihn dabei.“
+Taron hob langsam die Hand.
 
-Das ergab keinen Sinn und zu viel. Also zog Taron den Mantel fester und ritt weiter. Der Turm wartete, wie Türme warten: schlecht gelaunt, aber prinzipiell standhaft. Merlans Rauchfahne hing schon wieder grau über Hohensteg, als nähme das Dorf die Luft zurück, die es ihm gezahlt hatte. Das war fair. Und ein guter Anfang für eine Geschichte, die sich nachher als wahr erweisen würde.
+Merlan sah ihn an.
 
-Wenn alle heil blieben. Oder heil genug.
+„Ja?“
 
-Es ist erlaubt, zu kleinen Unwahrscheinlichkeiten ja zu sagen.
+„Ich möchte an dieser Stelle sagen, dass ich immer noch für den Stall bin.“
 
-Große kommen von allein.
+„Notiert“, sagte der Erzähler.
+
+„Niemand spricht wieder“, sagte Merlan.
+
+„Nein“, sagte Taron.
+
+„Doch.“
+
+„Ihr könnt ihn nicht hören.“
+
+„Nein. Aber ich kann sehen, wann ein Mensch auf eine Antwort reagiert, die niemand im Raum gegeben hat. Das ist keine Magie. Das ist Beobachtung. Magie wäre, wenn ich auch noch wüsste, ob die Antwort klug war.“
+
+„War sie nicht“, sagte Taron.
+
+„Dann ist es vermutlich eine alte Macht.“
+
+Der Erzähler schwieg.
+
+Taron mochte dieses Schweigen nicht. Es war nicht beleidigt genug.
+
+Merlan ging zu einem Regal und zog eine dicke Mappe hervor. Sie war mit Bändern verschnürt, an denen kleine Tonsiegel hingen. Auf einem stand ein Zeichen, das Taron unangenehm an die leuchtenden Narben des Hungers von Waldkirch erinnerte. Drei Linien, die sich um einen Punkt legten. Oder drei Schlüssellöcher, wenn man sehr müde war und in letzter Zeit zu oft fast gestorben.
+
+„Was ist das?“, fragte er.
+
+„Eine bessere Abschrift.“
+
+„Ihr habt einfach eine bessere Abschrift der Prophezeiung?“
+
+„Nein. Ich habe acht. Eine davon ist besser. Zwei sind beleidigend. Eine ist vermutlich ein Lied über einen sehr entschlossenen Müller, wurde aber dreißig Jahre lang für heilig gehalten.“
+
+Oswin beugte sich vor.
+
+„Ja“, sagte Taron. „Was sagt die bessere?“
+
+Merlan löste die Bänder.
+
+„Das finden wir gleich heraus.“
+
+„Ihr habt sie noch nicht gelesen?“
+
+„Ich habe sie gelesen. Aber Prophezeiungen verhalten sich schlecht, wenn man sie unter Zeitdruck wiedererkennt.“
+
+Taron rieb sich das Gesicht. Seine Rippen schmerzten. Sein Kopf schmerzte. Seine Zukunft schmerzte vorsorglich.
+
+„Ich wollte nur zu einem Turm reiten, einen Schlüssel nehmen und wieder gehen.“
+
+Der Erzähler räusperte sich in seinem Kopf. Es war ein vollkommen unnötiges Geräusch, da er keinen Hals hatte, aber er machte es mit großer Überzeugung.
+
+„Ein wirklich schöner Plan“, sagte er. „Schlank. Übersichtlich. Fast rührend in seiner Unkenntnis der Wirklichkeit.“
+
+„Ich hasse dich.“
+
+„Das hält dich wach.“
+
+Merlan sah von der Mappe auf.
+
+„Ich werde jetzt eine Frage stellen, und ich möchte, dass du nicht lügst.“
+
+„Das ist keine meiner Stärken.“
+
+„Gut. Dann streng dich nicht an. Seit wann hörst du diese Stimme?“
+
+Taron erstarrte.
+
+Oswin wurde ebenfalls still.
+
+Der grüne Rauch draußen war inzwischen dünner geworden. Durch das kleine Fenster sah Taron, wie er über den Brunnenplatz zog und dort eine ältere Frau dazu brachte, ihren Eimer mit großer Würde fallen zu lassen.
+
+„Das gehört nicht zum Schlüssel“, sagte Taron.
+
+„Doch“, sagte Merlan.
+
+Der Erzähler sagte nichts.
+
+Das machte die Antwort schlimmer.
+
+Merlan legte eine alte Abschrift neben Malchiors Rolle. Das Pergament war dunkler, die Schrift kleiner, die Ränder voller Notizen. Nicht ordentlicher, aber lebendiger. Als hätte jemand nicht nur abgeschrieben, sondern gestritten.
+
+„Die meisten Menschen glauben, eine Prophezeiung sei ein Befehl aus der Zukunft“, sagte Merlan. „Das ist bequem. Dann muss niemand denken. Man kann gehorchen, andere opfern und am Ende behaupten, der Himmel habe es so gewollt.“
+
+„Das klingt nach Waldkirch“, sagte Taron.
+
+„Waldkirch ist nicht besonders. Es ist nur laut.“
+
+Merlan tippte auf die alte Abschrift.
+
+„Eine Prophezeiung ist eher ein Bericht aus einem Streit, der noch nicht vorbei ist. Jemand hat etwas gesehen, jemand anderes hat es gedeutet, ein Dritter hat Wein verschüttet, und zweihundert Jahre später wirft ein König einen Stallburschen in einen Keller.“
+
+„Ich wusste, dass der Wein wichtig ist“, sagte Taron.
+
+„Der Wein ist fast immer wichtig.“
+
+Oswin sah auf die Abschrift und dann zu Merlan.
+
+„Und was steht dort?“, fragte Taron.
+
+Merlan antwortete nicht sofort. Er las. Einmal. Zweimal. Dann schob er Malchiors Abschrift ein Stück von sich weg, als wolle er verhindern, dass sie die andere ansteckte.
+
+„Es steht dort“, sagte er langsam, „dass der Menschenschlüssel am Turm von Abendriss ruht.“
+
+Taron atmete aus.
+
+„Gut.“
+
+„Nein.“
+
+„Natürlich nicht.“
+
+Merlan sah ihn über die Brille hinweg an.
+
+„Es steht dort nicht, dass er allein genügt.“
+
+Taron verstand den Satz. Leider.
+
+Er verstand ihn sogar sehr gut.
+
+Ein Mensch konnte manchmal spüren, wie ein Tag beschloss, noch schlechter zu werden. Nicht plötzlich. Eher mit der höflichen Gründlichkeit eines Wirts, der eine Rechnung verlängerte.
+
+Oswin hob drei Finger, hielt inne, als sei ihm selbst klar, dass das eine sehr unerwünschte Vermutung war, und senkte sie wieder.
+
+„Wie viele?“, fragte Taron.
+
+Merlan legte den Finger auf drei Stellen im Text.
+
+Taron schloss die Augen.
+
+„Nein.“
+
+„Doch“, sagte Merlan.
+
+„Nein.“
+
+„Das ändert die Anzahl nicht.“
+
+„Ich habe Nein gesagt.“
+
+„Eine alte und beliebte Methode der Theologie“, sagte Merlan. „Selten erfolgreich.“
+
+Der Erzähler wirkte beinahe heiter.
+
+„Taron“, sagte er, „erinnerst du dich an deinen Plan?“
+
+„Sei still.“
+
+„Hinreiten.“
+
+„Ich meine es ernst.“
+
+„Turm finden.“
+
+„Ich werde dich irgendwann in einen Sack stecken.“
+
+„Schlüssel nehmen.“
+
+„Du bist eine Stimme.“
+
+„Rausgehen.“
+
+Taron öffnete die Augen und sah Merlan an.
+
+„Ich möchte eine zweite Meinung.“
+
+Merlan nickte. „Gern. Meine zweite Meinung ist: Es ist schlimmer.“
+
+Oswin lehnte sich zurück. Der Stuhl knarrte, wagte aber keinen weiteren Einwand.
+
+Taron sah die drei Stellen an. „Drei Schlüssel.“
+
+„Drei Eidschlüssel“, sagte Merlan. „Menschenschlüssel. Zwergenschlüssel. Schutzschlüssel.“
+
+Bei dem letzten Wort wurde es im Raum ein wenig kälter.
+
+Nicht viel. Nur so viel, dass Taron es bemerkte und sofort wünschte, er hätte es nicht bemerkt.
+
+Merlan bemerkte es ebenfalls.
+
+Er sah nicht zu Taron.
+
+Er sah in die Luft neben ihm.
+
+„Interessant“, sagte er.
+
+„Nein“, sagte Taron. „Dieses Wort ist verboten.“
+
+„Bei mir nicht.“
+
+„Dann sollte es das sein.“
+
+Merlan schob beide Abschriften zusammen, nahm ein Stück Kreide und zeichnete drei kleine Zeichen auf den Tisch: eines wie ein aufrechter Strich mit zwei Haken, eines wie ein Winkel in einem Kreis, eines wie ein Auge, das sich weigerte, Auge zu sein.
+
+„Das ist keine Zauberei“, sagte er.
+
+„Warum sagen Leute das immer kurz bevor etwas Zauberei ist?“, fragte Taron.
+
+„Weil Leute schlechte Kategorien haben.“
+
+Merlan stand auf und ging zum Ofen. Das bläuliche Blubbern war inzwischen zu einem trägen Glucksen geworden. Er nahm eine kleine Schale, streute ein gelbes Pulver hinein und rührte mit einem Glasstab. Sofort stieg weißer Rauch auf, roch nach Essig, Regen und beleidigtem Metall und verschwand dann.
+
+„Seht ihr?“, sagte Merlan. „Keine Magie.“
+
+Taron hustete. „Meine Augen glauben etwas anderes.“
+
+„Deine Augen sind leicht zu beeindrucken.“
+
+„Meine Augen wurden gestern fast von einem Monster gefressen.“
+
+„Dann haben sie allen Grund, vorsichtiger zu sein.“
+
+Merlan hielt die Schale gegen das Licht. Am Rand hatte sich ein dünner, silbriger Belag gebildet.
+
+„Stoffkunde“, sagte er. „Salze, Hitze, saubere Mengen. Wer das nicht versteht, nennt es Zauberei. Wer es halb versteht, nennt es Geheimwissen. Wer es ganz versteht, nennt es Arbeit und wäscht sich danach die Hände.“
+
+Oswin betrachtete die Schale und machte eine kleine Geste, als hielte er einen Krug.
+
+Merlan sah ihn an.
+
+„Ja.“
+
+Oswin nickte.
+
+„Endlich ein praktischer Mensch.“
+
+Oswin deutete auf die Schale, dann auf sein Schwert, dann hob er fragend die Braue.
+
+„Auch.“
+
+Oswin nickte erneut, diesmal mit einem Ernst, der fast religiös war.
+
+„Unpräzise“, sagte Merlan. „Aber nicht falsch.“
+
+Taron zeigte auf die Abschriften. „Und echte Magie?“
+
+Merlan wurde ernster.
+
+Nicht dramatisch. Er hob nicht die Stimme, drehte sich nicht zum Fenster, ließ keinen Sturm aufziehen. Er wurde einfach leiser. Das war schlimmer.
+
+„Echte Magie ist das, was übrig bleibt, wenn alle Pulver gewogen, alle Fäden gezogen und alle Lügen entfernt wurden“, sagte er. „Selten. Alt. Meistens an Eide gebunden. An Namen. An Orte. An Wesen, die man nicht einlädt, nur weil man wissen möchte, ob sie kommen.“
+
+Der Erzähler schwieg schon wieder.
+
+Taron starrte auf die drei Zeichen.
+
+„Und der Turm von Abendriss?“
+
+„Ein Ort mit einem alten Eid.“
+
+„Und der Schlüssel?“
+
+„Ein Teil davon.“
+
+„Und ich?“
+
+Merlan sah ihn lange an.
+
+„Das ist die unangenehmste Frage.“
+
+„Ich habe viele davon.“
+
+„Das glaube ich.“
+
+Merlan nahm Malchiors Abschrift, rollte sie zusammen und band sie mit einem Stück Faden, als wolle er verhindern, dass sie weiter Schaden anrichtete.
+
+„Du bist vermutlich nicht der Held, den Waldkirch glaubt gefunden zu haben.“
+
+Taron richtete sich auf.
+
+Zum ersten Mal seit Tagen fühlte sich ein Satz an wie ein geöffneter Fensterladen.
+
+„Danke.“
+
+„Freu dich nicht zu früh.“
+
+Der Fensterladen schlug wieder zu.
+
+„Warum?“
+
+„Weil falsche Helden manchmal an den richtigen Stellen stehen.“
+
+Oswin lächelte dünn und nickte in einer Weise, die Taron sofort gegen sich gerichtet fand.
+
+„Nein“, sagte Taron. „Das ist nur anders schlecht.“
+
+Merlan schien diese Antwort zu gefallen.
+
+„Vielleicht bist du nicht wichtig, weil du stark bist“, sagte er. „Vielleicht bist du wichtig, weil du keinen alten Anspruch hast. Keine Blutlinie, die einen Schlüssel für sich nehmen will. Kein Orden, der eine Tür im Namen eines Gottes öffnet. Kein Königshaus, das jedes Schloss für Eigentum hält, solange es alt genug ist.“
+
+„Ich habe Stallkenntnisse.“
+
+„Die sind moralisch oft zuverlässiger als Blutlinien.“
+
+„Das sollte auf ein Banner“, sagte der Erzähler.
+
+„Nein“, sagte Taron.
+
+Merlan hob erneut den Blick.
+
+„Die Stimme hat Humor.“
+
+„Sie glaubt das.“
+
+„Und sie schweigt an den richtigen Stellen.“
+
+Taron spürte, wie ihm kalt wurde.
+
+„Was soll das heißen?“
+
+Merlan nahm die alte Abschrift wieder zur Hand.
+
+„Das heißt, dass ich heute mehr Tee brauche.“
+
+„Das ist keine Antwort.“
+
+„Es ist die erste Stufe einer Antwort.“
+
+Er ging zu einem Regal, nahm eine Dose herunter, öffnete sie, roch hinein und stellte sie sofort wieder zurück.
+
+„Nein. Der Tee ist inzwischen ein Salbenansatz.“
+
+Oswin sah zur Dose, dann zu Merlan.
+
+Sein Blick fragte eine sehr kleine Frage.
+
+„In guten Häusern nicht“, sagte Merlan.
+
+Merlan fand schließlich eine andere Dose, füllte Kräuter in eine Kanne und goss heißes Wasser darauf. Der Raum roch plötzlich nach Minze, Rauch und etwas, das Taron an nasse Steine erinnerte.
+
+„Ihr bleibt bis zum Abend“, sagte Merlan.
+
+„Nein“, sagte Taron.
+
+„Doch.“
+
+„Warum sagen alle immer doch?“
+
+„Weil du oft Nein sagst, wenn die Welt gerade nicht verhandelt.“
+
+Oswin nahm den Becher, den Merlan ihm reichte, und trank vorsichtig.
+
+Er verzog keine Miene. Das war vermutlich höflich gemeint oder ein Zeichen schwerer innerer Schäden.
+
+„Mein Beileid.“
+
+Taron nahm ebenfalls einen Becher. Der Tee schmeckte, als hätte jemand eine Wiese bestraft.
+
+„Ich muss zum Turm“, sagte er.
+
+„Du musst zuerst verstehen, welchen Turm du suchst.“
+
+„Einen hohen?“
+
+„Das wird ein langer Nachmittag.“
+
+Merlan setzte sich, zog mehrere Pergamente heran und legte sie nebeneinander. Auf jedem waren andere Zeichen, aber einige wiederholten sich: der Falke, der schwarze Stern, drei Schlüssel, eine Tür ohne Tür, eine Hand über einem Kreis. Und am Rand einer besonders alten Abschrift stand ein Wort, das so oft ausgebessert worden war, dass es kaum noch lesbar war.
+
+Taron beugte sich vor.
+
+„Was steht da?“
+
+Merlan folgte seinem Blick.
+
+„Freiheit.“
+
+„Das ist gut.“
+
+Merlan sah ihn an.
+
+Taron zog langsam die Schultern hoch.
+
+„Oder?“
+
+„Freiheit“, sagte Merlan, „ist eines dieser Wörter, bei denen man immer fragen sollte: für wen?“
+
+Der Erzähler sagte nichts.
+
+Diesmal schwieg sogar Taron.
+
+Merlan tippte auf den Rand der Abschrift.
+
+„Und hier“, sagte er, „hat jemand vor langer Zeit Wein verschüttet.“
+
+Oswin stellte seinen Becher ab.
+
+„Auf das Wort?“, fragte Taron.
+
+„Auf das Wort davor.“
+
+Oswin sah auf den Fleck.
+
+„Welches Wort war es?“, fragte Taron, obwohl er die Antwort schon an Merlans Gesicht hasste.
+
+Merlan sah auf den Fleck. Er war dunkel, alt und hatte die gleichgültige Macht kleiner Katastrophen.
+
+„Das“, sagte Merlan, „ist die Frage, wegen der ich euch nicht sofort wieder hinauswerfe.“
+
+Draußen wurde der grüne Rauch endlich grau.
+
+Der Brunnenplatz atmete auf.
+
+Taron nicht.
+
+Er sah die drei Zeichen auf dem Tisch, die alte Abschrift, den Weinfleck und Merlans Gesicht. Dann dachte er an Waldkirch, an den König, an Malchior, an den Hunger im Dungeon und an seinen wunderbaren Plan, der inzwischen aussah wie etwas, das ein sehr dummer Mensch mit sehr viel Zuversicht auf eine Serviette gemalt hatte.
+
+„Ich möchte festhalten“, sagte er leise, „dass ich gegen diesen Nachmittag bin.“
+
+„Festgehalten“, sagte der Erzähler.
+
+Merlan nahm eine frische Feder.
+
+„Gut“, sagte er. „Dann können wir anfangen.“
