@@ -60,17 +60,9 @@ Merlan öffnete ein Buch. Er wusste, wo die Seite war. Die Handschrift darauf wa
 
 „Man wird vorsichtig, wenn Dinge leben, die nicht sterben sollen. Der Wächter von Waldkirch, den Ihr ‚Hunger‘ nennt, ist in dieser Aufzeichnung anders benannt. Es ist ein Wächter, kein Feind. Man band ihn an einen Eidstein. Man fütterte ihn.“
 
-Taron erinnerte sich an kalten Atem und milchige Augen. An einen viel zu breiten Mund, der etwas fassen wollte, das vielleicht nie in ihn hineinpasste. Sein Rücken wurde kalt.
+Taron erinnerte sich an kalten Atem und milchige Augen. An einen viel zu breiten Mund, der etwas fassen wollte. Sein Körper wurde kalt. Er spürte seine Rippen wieder, die er beschlossen hat vergessen zu wollen. 
 
-„Das Eidenschloss“, sagte Merlan, als würde er ein Fenster öffnen. „Ein Bau unter Euren Kellern, älter als Eure Keller. Darin eine Kammer, in der der Eidstein steht. Man nennt sie Kammer des Eidsteins. So originell waren die Alten selten. Zwischen den Rillen des Steins wuchs etwas. Man nannte es Wächter. Oder Wortfresser. Oder Zeuge.“
-
-„Zeuge?“, fragte Taron.
-
-„Zeugen sind hungrig“, sagte der Erzähler.
-
-„Zeugen werden müde, wenn keiner sie ruft“, sagte Merlan. „Dann werden sie bitter. Bittere Zeugen greifen jeden an. Ihr habt ihn gesehen, Herr Falkenried. Ohne Zeichen. Ohne getragene Eide. Ihr schmecktet falsch. Wie einer, der noch nie etwas versprochen hat, das schwer genug zum Beißen ist.“
-
-„Ich verspreche ständig etwas“, sagte Taron schwach. „Dass ich wiederkomme. Dass ich pünktlich bin. Dass ich nie wieder eine Ziege aus den Augen lasse.“
+„Das Eidenschloss“, sagte Merlan, als würde er ein Fenster öffnen. „Ein Bau unter Euren Kellern, älter als Eure Keller. Darin eine Kammer, in der der Eidstein steht. 
 
 „Das sind Versuche“, sagte Merlan, nicht unfreundlich. „Keine Eide. Eide binden mehr als den Schwörenden. Man braucht dazu Hand, Zunge, Schritt. Die Alten nannten das die drei Eidschlüssel. Die Hand für das Gehaltene. Die Zunge für das Gesagte. Der Schritt für das Getane. Ohne sie riecht man nach Zufall. Und Zufall greift man an.“
 
