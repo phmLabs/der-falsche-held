@@ -4,11 +4,9 @@ Taron und Oswin fanden ihn nach drei falschen Abzweigungen, einer sehr bestimmte
 
 „Ich hasse Städte“, sagte Taron.
 
-Es stand neben dem Brunnen mit einer Ordentlichkeit, die Taron sofort misstrauisch machte. Die Mauern waren aus hellem Stein, frisch gekalkt und so sauber, dass selbst der Schatten darauf höflich wirkte. Das Dach war dunkel gedeckt, gerade gezogen und an den Kanten mit kleinen Kupferleisten versehen. Die Fenster waren schmal, hoch und blank geputzt, jedes mit einem kleinen Vorhang aus schwerem grauem Stoff, der aussah, als sei er nur deshalb nicht beleidigt, weil niemand ihn angefasst hatte.
+Das Haus der Zauberers stand neben dem Brunnen mit einer Ordentlichkeit, die Taron sofort misstrauisch machte. Die Mauern waren aus hellem Stein, frisch gekalkt und so sauber, dass selbst der Schatten darauf höflich wirkte. Das Dach war dunkel gedeckt, gerade gezogen und an den Kanten mit kleinen Kupferleisten versehen. Die Fenster waren schmal, hoch und blank geputzt, jedes mit einem kleinen Vorhang aus schwerem grauem Stoff.
 
-Über allem stand eine Esse, gerade wie ein Wachposten und blank eingefasst. Sie hätte vollkommen vertrauenswürdig gewirkt, wenn aus ihr nicht grüner Rauch gekommen wäre.
-
-Aus der Esse kam grüner Rauch.
+Aus dem Schornstein kam grüner Rauch.
 
 Taron blieb stehen.
 
