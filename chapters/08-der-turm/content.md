@@ -1,0 +1,1185 @@
+Der Turm stand noch immer dort.
+
+Taron hatte in den letzten Tagen gelernt, dass dies keine Selbstverständlichkeit war. Dinge verschwanden. Leute verschwanden. Pläne verschwanden am schnellsten, meistens kurz nachdem man sie laut ausgesprochen hatte. Aber der Turm von Abendriss stand in der Senke, dunkel, glatt und schweigsam, als habe er nie etwas anderes getan.
+
+„Gut“, sagte Taron noch einmal, weil er offenbar entschlossen war, aus demselben Fehler eine Gewohnheit zu machen.
+
+Oswin antwortete nicht. Er saß auf Sternfall und betrachtete den Turm mit der ruhigen Unzufriedenheit eines Mannes, der in seinem Leben schon zu viele Mauern gesehen hatte, hinter denen andere Männer sterben sollten.
+
+Der Erzähler schwieg ebenfalls.
+
+Das war das Beunruhigendste.
+
+„Du könntest jetzt etwas sagen“, murmelte Taron.
+
+„Könnte ich.“
+
+„Etwas Hilfreiches.“
+
+„Das schränkt die Auswahl unnötig ein.“
+
+Taron atmete aus. Es war merkwürdig, wie sehr ihn die Stimme gleichzeitig beruhigen und ärgern konnte. Wenn sie redete, wollte er Ruhe. Wenn sie schwieg, wollte er, dass sie redete. Das war vermutlich eine Form von Freundschaft, aber eine schlechte, die man keinem Priester hätte erklären sollen.
+
+Oswin hob eine Hand.
+
+Taron folgte seinem Blick.
+
+Zuerst sah er nur Gras. Hohes, graues Gras, vom Abendlicht flach gedrückt. Dann erkannte er eine Linie darin. Keine natürliche Linie. Zu gerade. Sie zog sich quer durch die Senke, verschwand unter Moos und kam weiter hinten wieder hervor.
+
+Eine Mauer.
+
+Oder das, was davon übrig war.
+
+„Oh“, sagte Taron.
+
+Oswin nickte.
+
+Sie ritten langsam weiter. Der Weg senkte sich zwischen Fichten hindurch. Je näher sie kamen, desto mehr Linien erschienen im Gras: Grundmauern, niedrige Steine, halb versunkene Stufen, ein rechteckiger Platz, auf dem nichts mehr stand. Der Turm war nicht allein. Er war nur der Teil, der sich am längsten geweigert hatte, zu fallen.
+
+„Merlan hat das gesagt“, flüsterte Taron. „Er hat gesagt, Abendriss war eine Burg.“
+
+„Bildung“, sagte der Erzähler, „ist oft eine Sache, die erst später eintrifft und dann so tut, als sei sie rechtzeitig gewesen.“
+
+„Du hast auch nichts gesagt.“
+
+„Ich war dramatisch still.“
+
+„Das ist keine Hilfe.“
+
+„Es war eine andere Dienstleistung.“
+
+Oswin stieg ab.
+
+Das allein reichte, um Taron ebenfalls vom Pferd steigen zu lassen. Wenn Oswin freiwillig zu Fuß ging, gab es dafür entweder einen guten Grund oder der Boden war bereits dabei, einen schlechten vorzubereiten.
+
+Sie banden Kummer und Sternfall in einer Senke zwischen zwei Fichten an. Oswin nahm sein Schwert, zog es aber nicht. Taron zog sein eigenes Messer und fühlte sich damit sofort wie jemand, der versucht hatte, einen Sturm mit Besteck zu beeindrucken.
+
+„Ich kann zurückgehen und die Pferde bewachen“, sagte er.
+
+Oswin sah ihn an.
+
+„Nur ein Vorschlag.“
+
+Der Ritter deutete auf den Turm.
+
+„Ja. Ich weiß. Auserwählt, Schlüssel, Prophezeiung, alles sehr verpflichtend.“
+
+„Und du hattest dich schon so gut ans Davonlaufen gewöhnt“, sagte der Erzähler.
+
+„Das ist eine Fähigkeit.“
+
+„Unterschätzt, ja.“
+
+Oswin ging voran.
+
+Die Ruinen von Abendriss lagen tiefer, als Taron zuerst geglaubt hatte. Der Boden fiel nicht steil ab, sondern in kleinen Stufen, als sei die ganze Burg langsam in die Erde gesunken. Zwischen den Mauern wuchsen Büsche, deren Zweige an alten Steinen kratzten. Hier und da standen noch Bögen ohne Türen. Ein Brunnen lag in der Mitte eines Hofes, aber als Taron hineinblickte, sah er keine Tiefe, sondern eine schmale Treppe, die in Dunkelheit führte.
+
+„Das ist kein Brunnen“, sagte er.
+
+Oswin schüttelte den Kopf.
+
+„Warum baut jemand eine Treppe in einen Brunnen?“
+
+„Damit unangenehme Menschen Fragen stellen“, sagte der Erzähler.
+
+Taron ging einen Schritt zurück. „Wir nehmen nicht die Brunnentreppe.“
+
+Oswin zeigte auf den Turm.
+
+Vom Hof aus war nun zu erkennen, dass der Turm keine Tür hatte. Nicht einmal eine zugemauerte. Er stand auf einer flachen Steinplatte, glatt bis zum Boden. Keine Angeln, kein Griff, kein Spalt.
+
+Taron sah wieder zum Brunnen.
+
+„Natürlich nehmen wir die Brunnentreppe.“
+
+Oswin zog ein kleines Öllämpchen aus seinem Gepäck, entzündete es und reichte Taron eine zweite Lampe. Es war eine sehr vernünftige Handlung, und gerade deshalb erschreckend. Vernünftige Handlungen vor dunklen Treppen waren selten ein gutes Zeichen.
+
+Sie stiegen hinab.
+
+Die ersten Stufen waren breit und feucht. Danach wurden sie schmaler. Der Stein war alt, aber nicht brüchig. Er trug ihre Schritte ohne Knirschen, ohne lose Kanten, ohne jene kleinen Warnungen, für die Taron dankbar gewesen wäre. Nach wenigen Atemzügen war der Hof über ihnen nur noch ein graues Rechteck.
+
+Dann verschwand auch das.
+
+Die Luft roch nach kaltem Staub und Metall. Nicht nach Verfall. Das hätte Taron fast lieber gehabt. Verfall war ehrlich. Dieser Gang roch, als sei er lange geschlossen gewesen und trotzdem benutzt worden.
+
+„Ich möchte festhalten“, sagte Taron leise, „dass ich gegen unterirdische Teile von Burgen bin.“
+
+Der Erzähler sagte nichts.
+
+„Das war ein guter Satz für dich.“
+
+Nichts.
+
+„Oh, jetzt wirst du still? Jetzt?“
+
+Oswin hob warnend die Hand.
+
+Taron schloss den Mund.
+
+Sie gingen weiter. Der Gang führte nicht geradeaus, sondern in leichten Winkeln, die jedes Gefühl für Richtung verdarben. Manchmal zweigte ein schmaler Durchlass ab. Manchmal endete ein Gang nach drei Schritten in einer Wand. An mehreren Stellen waren Zeichen in den Stein geritzt: Linien, Haken, Kreise, ein Auge ohne Rundung. Das Zeichen des Menschenschlüssels fand Taron einmal auf Schulterhöhe. Darunter standen Worte in einer Schrift, die er nicht lesen konnte.
+
+Er beugte sich vor.
+
+„Nein“, sagte der Erzähler.
+
+Taron zuckte zusammen. „Du bist doch da.“
+
+„Leider.“
+
+„Was steht da?“
+
+„Nichts, was besser wird, wenn du es laut vorliest.“
+
+„Ich kann es nicht laut vorlesen. Ich kann es gar nicht lesen.“
+
+„Eine seltene Form von Sicherheit.“
+
+Oswin berührte Tarons Arm und schüttelte den Kopf. Dann deutete er nach vorn.
+
+Sie kamen an eine Stelle, an der der Gang sich in fünf Richtungen teilte.
+
+Taron blieb stehen und hob die Lampe. Der Schein reichte in jeden Durchlass nur ein paar Schritte weit, dann nahm die Dunkelheit wieder alles zurück. An der Decke hingen alte Eisenringe. An einem davon klemmte ein Stück Seil, so hart und grau, dass es eher wie eine Wurzel aussah. Auf dem Boden lagen kleine helle Steinchen in einer Linie.
+
+Oswin ging in die Hocke.
+
+„Was ist das?“
+
+Der Ritter berührte eines der Steinchen nicht. Er zeigte nur darauf, dann auf die anderen. Danach legte er den Finger an die Lippen.
+
+Taron verstand erst nichts.
+
+Dann hörte er es.
+
+Aus dem linken Gang kam ein leises Klopfen.
+
+Einmal.
+
+Pause.
+
+Zweimal.
+
+Pause.
+
+Aus dem rechten Gang antwortete etwas. Nicht dasselbe Geräusch. Mehr ein Schaben. Danach wieder Stille.
+
+Taron sah auf die Steinchen.
+
+„Zeichen“, flüsterte er.
+
+Oswin nickte.
+
+„Für sie.“
+
+Oswin nickte wieder.
+
+Der Erzähler sagte: „Endlich. Eine Wegbeschreibung, die nicht für euch gedacht ist. Das macht sie deutlich zuverlässiger.“
+
+„Woran erkennen wir dann, was sie bedeutet?“
+
+„Gar nicht. Das ist der Kern der Erfahrung.“
+
+Oswin nahm ein Steinchen vom Ende der Linie und legte es zwei Handbreit daneben.
+
+Taron sah ihn entsetzt an. „Du veränderst ihr Zeichen?“
+
+Oswin nickte.
+
+„Ist das klug?“
+
+Der Ritter zuckte mit einer Schulter.
+
+„Das war kein Ja.“
+
+Oswin erhob sich und wählte den mittleren Gang.
+
+„Das war wirklich kein Ja.“
+
+Sie gingen weiter. Hinter ihnen kam erneut das Klopfen. Diesmal brach es mitten im Muster ab.
+
+Taron fand das sehr befriedigend und sehr beunruhigend zugleich.
+
+Der mittlere Gang führte zu einer niedrigen Kammer. An den Wänden waren Nischen eingelassen. In jeder lag eine Maske.
+
+Taron blieb im Eingang stehen.
+
+Es waren Dutzende.
+
+Manche aus Leder, manche aus Holz, manche mit dünnen Metallstreifen verstärkt. Keine war gleich. Einige hatten lange Nasenstücke, andere breite Stirnplatten, andere nur schmale Schlitze für die Augen. Keine wirkte wie Schmuck. Sie wirkten benutzt. Repariert. Weitergegeben.
+
+Unter mehreren Masken lagen Namen in die Wand gekratzt.
+
+Taron las die wenigen, die er entziffern konnte.
+
+Sera.
+
+Othin.
+
+Marel.
+
+Ben.
+
+Das letzte war so gewöhnlich, dass es ihm einen Stich gab.
+
+„Das sind keine Monsterkammern“, sagte er.
+
+„Nein“, sagte der Erzähler.
+
+Oswin stand sehr still.
+
+Taron sah zu ihm. Der Ritter betrachtete die Masken nicht wie ein Mann, der etwas Unheimliches sah. Er betrachtete sie wie ein Mann, der eine Kaserne gesehen hatte, nachdem der Krieg weitergezogen war.
+
+„Die geben sie weiter“, sagte Taron.
+
+Oswin nickte.
+
+„Väter an Söhne. Mütter an Töchter. Wer auch immer hier bleibt.“
+
+Der Erzähler sagte: „Eide sind oft billiger als Mauern. Darum halten sie manchmal länger.“
+
+Taron wollte eine spitze Antwort geben, aber keine kam. Nicht, weil ihm keine einfiel. Weil der Raum sie nicht verdient hatte.
+
+Aus der Kammer führte ein weiterer Gang hinaus. Auf seinem Boden lag Staub. Echter Staub diesmal, dick und ungestört. Oswin ging nicht hinein. Er zeigte auf den Staub und dann auf die Wand daneben.
+
+Dort waren Handabdrücke.
+
+Frische.
+
+Hoch an der Wand.
+
+Als hätte jemand sich seitlich an ihr entlang bewegt, um den Boden nicht zu berühren.
+
+Taron trat einen Schritt zurück.
+
+„Ich mag sie nicht.“
+
+„Das Urteil fällt spät“, sagte der Erzähler.
+
+„Ich meine fachlich.“
+
+Oswin deutete zurück.
+
+Sie verließen die Maskenkammer durch denselben Eingang, durch den sie gekommen waren. Hinter ihnen blieb der Staub unberührt.
+
+Der Gang wurde breiter. Links öffnete sich ein Raum, in dem alte Holzgestelle standen. Keine Waffen mehr. Nur Halterungen, Riemenreste, dunkle Flecken auf Stein. Rechts führte eine Treppe hinauf, aber die oberen Stufen waren eingestürzt. Geradeaus hing ein schwarzer Vorhang aus schwerem Stoff.
+
+Taron blieb stehen.
+
+„Der ist neu.“
+
+Oswin nickte.
+
+„Wie neu?“
+
+Oswin trat näher, rieb den Stoff zwischen zwei Fingern und sah dann auf seine Hand. Kein Staub.
+
+Taron schluckte. „Sehr neu.“
+
+Aus der Dunkelheit hinter ihnen kam ein Geräusch.
+
+Nur ein Schritt.
+
+Dann nichts.
+
+Oswin drehte sich langsam um.
+
+Taron hob die Lampe.
+
+Der Gang hinter ihnen war leer.
+
+„Wind?“, flüsterte Taron.
+
+Der Erzähler sagte: „In geschlossenen Gängen ist Wind eine höfliche Bezeichnung für etwas, das man nicht erklären möchte.“
+
+Oswin zog sein Schwert.
+
+Das Geräusch der Klinge war nicht laut. Trotzdem füllte es den Gang.
+
+Aus einem Seitendurchlass weit hinten kam ein Flüstern.
+
+„Kein Anspruch.“
+
+Taron erstarrte.
+
+Oswin bewegte sich vor ihn.
+
+„Hast du das gehört?“
+
+Oswin nickte.
+
+„Gut.“
+
+Der Ritter sah ihn an.
+
+„Nicht gut. Nur besser als nur ich.“
+
+Das Flüstern kam erneut. Diesmal von rechts, näher.
+
+„Kein Blut.“
+
+Taron hob die Lampe höher. Der Schein reichte bis zu einer Wand, zu einem Riss darin, zu nichts.
+
+Dann stand dort eine Maske.
+
+Sie war lang und schmal, aus dunklem Leder und dünnen Metallstreifen. Zwei Augenschlitze. Ein vorgezogener Mund ohne Öffnung. Keine Hörner, keine Zähne, nichts Übertriebenes. Gerade das machte sie schlimmer. Sie war nicht wie ein Monster gemacht, das schreien wollte. Sie war wie ein Mensch gemacht, der keines mehr sein wollte.
+
+Taron blinzelte.
+
+Die Maske war weg.
+
+„Ich habe etwas gesehen.“
+
+Oswin nickte.
+
+„Du auch?“
+
+Oswin nickte wieder.
+
+„Dann hasse ich es weniger.“
+
+Der schwarze Vorhang bewegte sich.
+
+Nicht viel.
+
+Gerade genug.
+
+Oswin stieß Taron zurück.
+
+Etwas schoss aus dem Stoff. Kein Tier. Kein Schatten. Ein Mensch in grauer Kleidung, die eng am Körper lag, mit einer Maske über dem Gesicht und einer kurzen Klinge in der Hand. Oswin fing den ersten Schlag mit dem Schwert ab, drehte sich seitlich und trat den Angreifer gegen die Wand.
+
+Ein zweiter kam von rechts.
+
+Taron sah nur Bewegung. Grau, Leder, Metall. Dann war der Mann vor ihm. Taron hob das Messer, viel zu spät. Der Angreifer schlug ihm die Lampe aus der Hand.
+
+Dunkelheit sprang in den Raum.
+
+Nein, dachte Taron. Nicht sprang. Es wurde einfach dunkel. Merlan hätte das vermutlich besser formuliert und dabei niemandem geholfen.
+
+Oswins Schwert traf etwas Hartes. Ein Mann keuchte. Taron stolperte rückwärts, stieß gegen ein Holzgestell und bekam Holzspäne in den Rücken. Eine Hand packte seinen Ärmel. Er riss sich los, schlug mit dem Messer, traf Stoff, vielleicht Haut, vielleicht gar nichts.
+
+„Runter“, sagte Oswin.
+
+Es war kein Ruf. Es war ein Befehl.
+
+Taron ließ sich fallen.
+
+Über ihm zischte eine Klinge durch die Luft. Oswin war schon da. Er bewegte sich anders als sonst. Kein taumelnder Ritter, kein schöner Betrunkener, kein Mann mit zu viel Vergangenheit im Blick. Er war plötzlich gerade, schnell und erschreckend nüchtern. Sein Schwert schlug einmal, zweimal. Ein Körper fiel.
+
+Der zweite Angreifer wich zurück und verschwand hinter dem Vorhang.
+
+Stille.
+
+Taron hörte seinen Atem. Dann Oswins. Dann ein drittes Geräusch.
+
+Ein Mensch lag am Boden und versuchte zu atmen.
+
+Oswin trat näher. Taron fand seine Lampe. Sie war ausgegangen, aber die von Oswin brannte noch, umgekippt, mit kleiner Flamme hinter Glas. Ihr Licht reichte gerade bis zum Körper.
+
+Der Angreifer trug eine Maske.
+
+Oswin kniete sich hin und zog sie ab.
+
+Darunter war kein Maul.
+
+Keine alte Fratze.
+
+Kein Wesen aus einer Geschichte, bei der Kinder näher ans Feuer rückten.
+
+Darunter war ein Mann. Vielleicht dreißig. Vielleicht jünger. Schweiß klebte ihm die Haare an die Stirn. Er hatte Sommersprossen auf der Nase und eine Narbe an der Lippe, schlecht verheilt. Seine Augen suchten einen Punkt über Taron und fanden ihn nicht.
+
+Er atmete einmal ein.
+
+Dann nicht mehr.
+
+Taron stand sehr still.
+
+Oswin schloss dem Mann die Augen. Danach blieb seine Hand einen Moment dort.
+
+Der Erzähler sagte nichts.
+
+Taron wartete darauf. Auf den Satz. Auf den Witz. Auf den kleinen kalten Kommentar, der alles in eine Form brachte, die man ertragen konnte, weil sie lächerlich war.
+
+Nichts.
+
+„Es sind Menschen“, sagte Taron.
+
+Oswin nickte.
+
+„Sie haben uns angegriffen.“
+
+Oswin nickte wieder.
+
+„Ich weiß.“
+
+Der Ritter hob die Maske auf. Innen war dunkles Tuch befestigt, mit einer Schicht aus Kohle und etwas Feinfasrigem. Kein Zauber. Schutz gegen Staub, Rauch, vielleicht gegen Gestank.
+
+„Sie leben hier“, sagte Taron.
+
+Aus dem Gang vor ihnen kam ein neues Flüstern. Mehrere Stimmen diesmal.
+
+„Kein Schlüssel.“
+
+Oswin stand auf.
+
+„Kein Anspruch.“
+
+Ein leises Klacken folgte. Dann noch eines. Von beiden Seiten.
+
+Oswin packte Taron am Kragen und zog ihn durch den schwarzen Vorhang.
+
+Dahinter lag ein niedriger Raum mit drei Ausgängen. Oswin wählte den linken, ohne zu zögern. Taron hatte keine Zeit zu fragen, ob das gut war, schlecht war oder nur die Richtung, in der sie weniger sofort starben.
+
+Hinter ihnen schlugen Bolzen in den Stein.
+
+Nicht viele. Drei, vier. Genug.
+
+Sie rannten.
+
+Der Gang führte abwärts, dann wieder aufwärts. Taron hielt die Lampe fest, obwohl sie wild hin und her schwang und kaum half. Links öffnete sich ein schmaler Spalt. Aus ihm kam ein Arm mit einer Klinge. Oswin schlug mit dem Knauf seines Schwertes dagegen. Knochen knackte. Der Arm verschwand.
+
+Taron wollte sich entschuldigen und tat es nicht. Dafür war keine Luft da.
+
+„Links“, sagte der Erzähler.
+
+„Was?“
+
+„Links.“
+
+Taron riss Oswin am Mantel.
+
+Der Ritter bog ab, ohne zu fragen. Einen Atemzug später stürzte hinter ihnen ein Gitter aus der Decke. Eisenstangen schlugen auf Stein.
+
+Taron hätte beinahe gelacht. Nicht aus Freude. Aus dem schlechten Teil von Angst, der manchmal versuchte, sich als Mut zu verkleiden.
+
+„Das war hilfreich“, keuchte er.
+
+„Ich experimentiere.“
+
+„Jetzt?“
+
+„Du wirkst wie jemand, der Ergebnisse schätzt.“
+
+Der neue Gang war noch enger. Oswin musste seitlich gehen. Taron kam leichter hindurch, was ihn nur kurz stolz machte, denn am Ende des Ganges warteten zwei Masken.
+
+Sie standen still.
+
+Keine erhobenen Waffen. Keine Hast.
+
+Oswin blieb stehen.
+
+Taron prallte fast gegen seinen Rücken.
+
+„Kein Blut“, sagte einer der Hüter.
+
+Seine Stimme war nicht alt. Auch nicht tief. Sie war die Stimme eines Menschen, der sie absichtlich flach hielt.
+
+„Kein Orden“, sagte der andere.
+
+Taron hob eine Hand. „Ja. Gut. Das stimmt alles. Kein Blut. Kein Orden. Kein Anspruch. Genau genommen habe ich nicht einmal ein gutes Paar Stiefel, wenn man ehrlich ist.“
+
+Oswin sah ihn nicht an, aber Taron spürte die Missbilligung.
+
+„Wir wollen den Schlüssel nicht für uns“, sagte Taron.
+
+Der erste Hüter neigte den Kopf.
+
+„Alle sagen das.“
+
+„Ich nicht gern.“
+
+„Alle sagen das auch.“
+
+Der zweite Hüter hob seine Klinge.
+
+Oswin bewegte sich zuerst.
+
+Später würde Taron nicht sagen können, wer wen angegriffen hatte. Vielleicht war das im Kampf oft so. Vielleicht erzählten die Überlebenden danach nur eine sauberere Geschichte, weil Menschen unordentliche Wahrheiten schlecht lagern konnten.
+
+Oswins Schwert traf die erste Klinge, glitt ab, schlug gegen eine Schulter. Der Hüter fiel nicht. Der zweite drängte von rechts. Taron wich zurück, stolperte, fing sich, griff nach seinem Messer und merkte, dass seine Hand bereits im Beutel war.
+
+Die Rauchkugel.
+
+Das Lederpäckchen lag unter seinen Fingern. Klein. Hart. Trocken.
+
+Oswin sah es.
+
+Nur für einen Augenblick.
+
+Er nickte.
+
+Jetzt.
+
+Taron zog das Päckchen halb heraus.
+
+Wenn er es warf, kam Rauch. Wenn Rauch kam, liefen sie. Merlan hatte es gesagt. Oswin hatte es bestätigt. Es war einfach.
+
+Viel zu einfach.
+
+Das war Merlans seltenes Mittel. Vielleicht der einzige echte Schutz, den sie hatten. Vielleicht brauchten sie es für den Turm selbst, für den Schlüssel, für etwas Tieferes, für den Augenblick, in dem der Boden aufging oder ein alter Eid persönlich beleidigt aus einer Wand trat.
+
+„Taron“, sagte der Erzähler.
+
+Es war kein Spott in seiner Stimme.
+
+Das machte es schlimmer.
+
+Oswin wurde gegen die Wand gedrängt. Einer der Hüter rammte ihm die Schulter in die Brust. Der Ritter schlug ihn zurück, aber der zweite kam tief, mit einer kurzen Klinge.
+
+Taron hatte die Rauchkugel in der Hand.
+
+Er stellte sich vor, wie sie zerbrach. Wie der Gang voller Rauch wurde. Wie etwas so Seltenes, so Mächtiges, so feierlich Übergebenes einfach weg war.
+
+Er steckte sie wieder ein.
+
+„Nicht jetzt“, flüsterte er.
+
+„Eine Entscheidung“, sagte der Erzähler leise, „von jener Sorte, die Überlebende später Mut nennen, sofern ihnen niemand die Einzelheiten erklärt.“
+
+Taron griff stattdessen nach der erloschenen Lampe an seinem Gürtel und warf sie.
+
+Nicht gut.
+
+Nicht gezielt.
+
+Aber sie traf den zweiten Hüter an der Maske. Glas zerbrach. Öl spritzte. Der Hüter taumelte zurück. Oswin nutzte den Atemzug, stieß den ersten mit dem Schwertgriff nieder und trat dem zweiten das Bein weg. Beide fielen. Einer blieb reglos. Der andere kroch nach hinten.
+
+Oswin setzte ihm die Klinge an den Hals.
+
+„Nicht“, sagte Taron sofort.
+
+Oswin hielt inne.
+
+Der Hüter unter der Klinge atmete schwer. Seine Maske war auf einer Seite gesprungen. Durch den Riss sah Taron ein Auge. Menschlich. Wütend. Verängstigt.
+
+„Bitte“, sagte Taron.
+
+Oswin sah ihn an.
+
+Es war kein freundlicher Blick.
+
+Aber er nahm die Klinge weg.
+
+Der Hüter blieb liegen.
+
+Taron kniete sich vor ihn, was vermutlich sehr dumm war, aber es gab Augenblicke, in denen Dummheit und Anstand einander täuschend ähnlich sahen.
+
+„Wir wollen den Schlüssel, aber nicht für uns“, sagte Taron. „Wir müssen ihn nach Waldkirch bringen.“
+
+Der Hüter lachte. Es klang trocken und tat ihm weh.
+
+„Waldkirch.“
+
+„Ja.“
+
+„Könige wechseln. Worte bleiben.“
+
+„Das sagt ihr alle so, als würde es helfen.“
+
+„Es half lange.“
+
+Taron sah zu Oswin. Der Ritter stand mit erhobenem Schwert im Gang und lauschte. Von weit hinten kamen Schritte. Viele Schritte, aber langsam. Die Hüter hetzten sie nicht mehr. Sie schlossen Wege.
+
+„Wie kommen wir zum Menschenschlüssel?“, fragte Taron.
+
+Der Hüter schwieg.
+
+„Wir haben dich leben lassen.“
+
+„Noch.“
+
+„Ich arbeite mit dem, was ich habe.“
+
+Der Hüter drehte den Kopf. Blut lief ihm von der Schläfe unter die Maske.
+
+„Warum?“
+
+„Weil du kein Monster bist.“
+
+Der Hüter starrte ihn an.
+
+Vielleicht war es lange her, dass jemand das zu ihm gesagt hatte. Vielleicht hatte es auch nie jemand gesagt. Vielleicht war Taron nur sehr müde und begann, fremde Gesichtsausdrücke zu erfinden.
+
+„Wir tragen Masken“, sagte der Hüter, „damit die, die kommen, zuerst Angst haben.“
+
+„Das funktioniert.“
+
+„Angst ist gnädiger als Kampf.“
+
+Taron sah auf Oswins blutige Klinge. Dann auf den reglosen Körper weiter hinten im Gang, von dem er nur die Stiefel sehen konnte.
+
+„Nicht immer.“
+
+Der Hüter schloss kurz die Augen. „Nein.“
+
+Von irgendwo oberhalb der Wand kam ein dumpfes Geräusch. Holz auf Stein. Dann wieder das Klopfen, das sie schon früher gehört hatten. Einmal. Zweimal. Pause. Diesmal antwortete es aus drei Richtungen.
+
+Oswin hob zwei Finger.
+
+Zwei Minuten vielleicht.
+
+Oder zwei Wege.
+
+Oder zwei Männer.
+
+Taron wünschte, Oswin würde in ganzen Sätzen schweigen.
+
+„Wie viele seid ihr?“, fragte Taron.
+
+Der Hüter sah ihn an.
+
+„Genug.“
+
+„Das sagen Leute immer, wenn es weniger sind, als sie wollen.“
+
+„Das sagen Leute auch, wenn es mehr sind, als du überlebst.“
+
+„Gut. Das war leider besser.“
+
+Der Hüter versuchte sich aufzusetzen, schaffte es nicht und blieb gegen die Wand gelehnt. Unter der gesprungenen Maske lief sein Atem schnell. Trotzdem klang er nicht panisch. Er klang wie jemand, der eine Lehre wiederholte, die ihm so früh beigebracht worden war, dass sie tiefer saß als Schmerz.
+
+„Wir waren einmal viele“, sagte er. „Drei Höfe, zwei Hallen, ein oberer Ring. Schmiede, Vorräte, Kinder. Nicht reich. Nie reich. Aber genug.“
+
+Taron hörte trotz der Schritte zu.
+
+„Und jetzt?“
+
+„Jetzt bewahren wir, was übrig ist.“
+
+„Warum geht ihr nicht fort?“
+
+Der Hüter lachte wieder, diesmal kürzer. „Wohin geht ein Eid?“
+
+„In einen Priester, meistens. Die haben Platz.“
+
+Der Erzähler sagte: „Nicht hilfreich, aber erstaunlich tapfer.“
+
+Der Hüter verstand den Erzähler nicht, aber er schien Tarons Gesicht zu lesen. „Du machst Witze, weil du Angst hast.“
+
+„Nein.“
+
+Oswin sah ihn an.
+
+„Ja.“
+
+„Gut“, sagte der Hüter. „Wer keine Angst hat, nimmt Schlüssel.“
+
+„Niemand darf ihn nehmen“, sagte der Hüter.
+
+„Das ist schlecht, weil wir ihn brauchen.“
+
+„Brauchen ist Anspruch in ärmerer Kleidung.“
+
+„Habt ihr das aufgeschrieben, oder sagt ihr solche Dinge einfach alle auswendig?“
+
+„Wir bewahren.“
+
+„Was?“
+
+„Den Fehler der Alten.“
+
+Oswin blickte scharf zu ihnen.
+
+Auch der Erzähler schwieg wieder.
+
+„Welchen Fehler?“, fragte Taron.
+
+Der Hüter atmete langsam ein. „Drei Schlüssel. Drei Eide. Ein Schloss. Wenn sie getrennt sind, erinnern sie die Völker daran, dass nicht alles ihnen gehört. Wenn sie zusammenkommen, erinnern sie das Schloss daran, dass es öffnen kann.“
+
+Taron spürte Kälte im Bauch. Nicht die kalte Luft der Gänge. Etwas Inneres.
+
+„Was öffnet es?“
+
+Der Hüter schloss die Augen.
+
+„Freiheit.“
+
+„Für wen?“
+
+Der Hüter öffnete die Augen wieder.
+
+Diesmal sah er Taron direkt an.
+
+„Das fragten die Letzten zu spät.“
+
+Von hinten kam ein Ruf. Kein Wort. Ein kurzes Zeichen.
+
+Der Hüter spannte sich an.
+
+Oswin hob das Schwert.
+
+Taron packte den Arm des Hüters. „Wie kommen wir hin?“
+
+„Ihr kommt nicht hin.“
+
+„Das ist keine gute Antwort.“
+
+„Durch die Zisterne. Unter dem alten Saal. Drei Stufen nach unten, dann die Wand ohne Fuge. Das Zeichen erkennt ihn.“
+
+„Welches Zeichen?“
+
+Der Hüter sah auf Tarons Brust, auf das aufgenähte Falkenzeichen, das inzwischen schmutzig, schief und absolut nicht königlich aussah.
+
+„Nicht das.“
+
+Taron seufzte.
+
+„Natürlich nicht das.“
+
+„Das Zeichen ohne Anspruch.“
+
+„Ich hasse diese Art von Wegbeschreibung.“
+
+Oswin packte Taron an der Schulter und zog ihn hoch. Die Schritte kamen näher.
+
+Taron sah auf den Hüter hinab. „Lauf.“
+
+Der Mann bewegte sich nicht.
+
+„Oder kriech. Mir egal. Aber geh.“
+
+„Sie werden mich fragen.“
+
+„Dann sag, du hast uns aufgehalten.“
+
+„Habe ich nicht.“
+
+„Dann lüg besser.“
+
+Der Hüter starrte ihn an, und für einen sehr kurzen Moment sah Taron unter der Maske den Anfang eines Lächelns. Es verschwand sofort.
+
+„Kein Anspruch“, sagte der Hüter.
+
+„Ja, ja.“
+
+„Kein Blut.“
+
+„Auch das.“
+
+„Kein Lärm.“
+
+Taron hielt inne.
+
+Der Hüter zeigte mit zwei Fingern auf die Wand hinter ihnen. Dort war ein schmaler Riss, kaum breit genug für einen Menschen.
+
+„Schnell.“
+
+Oswin schob Taron hindurch.
+
+Der Riss führte in einen Kriechgang. Taron verlor sofort jede Würde, die er noch besessen haben könnte. Er kroch auf Händen und Knien durch Staub, über kleine Steine und einmal durch etwas Weiches, über das er nicht nachdenken wollte. Hinter ihm kam Oswin, fluchend, aber leise. Das war eine beeindruckende Fähigkeit.
+
+Der Gang endete hinter einem Haufen eingestürzter Balken. Dahinter lag ein größerer Raum.
+
+Der alte Saal.
+
+Oder was davon übrig war.
+
+Die Decke war an mehreren Stellen offen. Wurzeln hingen herab. Durch Risse fiel das letzte Abendlicht in schmalen Streifen auf den Boden. An den Wänden standen Reste von Säulen. Keine prunkvollen Säulen. Schlichte, breite Pfeiler, gebaut für Gewicht, nicht für Bewunderung.
+
+In der Mitte des Saals lag ein rundes Becken.
+
+Zisterne, dachte Taron.
+
+Das Wasser darin war schwarz.
+
+„Ich gehe da nicht rein“, flüsterte er.
+
+Oswin deutete auf eine Treppe am Rand.
+
+„Drei Stufen“, sagte Taron. „Ja. Gut. Natürlich.“
+
+Sie schlichen hinunter.
+
+Eine Stufe.
+
+Zwei.
+
+Drei.
+
+Die Wand vor ihnen war glatt. Keine Fuge. Kein Griff. Kein Zeichen.
+
+Taron stellte die Lampe ab. Seine Hand zitterte. Das gefiel ihm nicht, aber er hatte gerade beschlossen, ehrlich mit seinem Körper zu sein. Sein Körper hatte heute vernünftige Gründe.
+
+„Zeichen ohne Anspruch“, sagte er.
+
+Oswin sah ihn fragend an.
+
+„Ich weiß es nicht.“
+
+Der Erzähler sagte: „Doch.“
+
+Taron schloss die Augen.
+
+„Wenn du jetzt wieder in Rätseln sprichst, beiße ich in diese Wand.“
+
+„Es wäre nicht dein schlechtester Plan heute.“
+
+„Hilf mir.“
+
+Der Erzähler schwieg einen Atemzug lang.
+
+Dann sagte er: „Was hast du, das kein Anspruch ist?“
+
+„Schmutz.“
+
+„Viel davon, ja.“
+
+„Schmerzen.“
+
+„Beeindruckende Sammlung.“
+
+„Angst.“
+
+„Näher.“
+
+Taron öffnete die Augen. Er dachte an Merlan. An den Weinfleck. An die Blutlinien, Orden, Könige und Leute, die Schlösser sahen und sofort Besitz rochen. Er dachte an Waldkirch, an den König, der ihm nicht zugehört hatte. An Malchior, der Prophezeiungen wie Werkzeuge benutzte. An sich selbst, Stallbursche, falscher Held, Besitzer eines Messers und einer Rauchkugel, die er aus sehr dummen Gründen nicht benutzt hatte.
+
+„Ich will ihn nicht für mich“, sagte Taron.
+
+Nichts geschah.
+
+„Natürlich nicht“, sagte er. „Zu einfach.“
+
+Oswin sah zur Tür des Saals. Stimmen näherten sich.
+
+Taron legte beide Hände an die glatte Wand.
+
+„Ich habe keinen Anspruch“, sagte er leiser. „Keinen Namen, der ihn verlangt. Kein Blut, das ihn erbt. Kein Recht. Ich will ihn nicht besitzen. Ich will ihn tragen, weil alle anderen, die ihn haben wollen, mir noch weniger gefallen.“
+
+Der Stein blieb still.
+
+„Und wenn das nicht reicht“, fügte Taron hinzu, „dann ist diese alte Burg schlechter organisiert als Merlans Schrank.“
+
+Ein leises Klicken kam aus der Wand.
+
+Der Erzähler sagte: „Respektlosigkeit. Oft unterschätzt.“
+
+Die Wand öffnete sich nicht wie eine Tür. Ein schmales Stück Stein sank ein, kaum breiter als Tarons Unterarm. Dahinter lag eine Nische.
+
+In der Nische lag der Menschenschlüssel.
+
+Er war kleiner, als Taron erwartet hatte. Kein goldener Schlüssel mit Zacken wie Sonnenstrahlen. Kein Edelstein. Dunkles Metall, schlicht, schwer, mit einem Griff in Form eines unvollständigen Kreises. Ein Stück davon fehlte, nicht abgebrochen, sondern absichtlich frei gelassen.
+
+Taron nahm ihn nicht sofort.
+
+Das war neu.
+
+Früher hätte er ihn genommen, weil alle ihn angeschrien hätten, sich zu beeilen. Jetzt sah er ihn an und wartete auf den Haken. Auf die Falle. Auf die Stimme. Auf das alte Schloss irgendwo in der Welt, das sich räusperte.
+
+Oswin trat neben ihn.
+
+„Ich weiß“, sagte Taron. „Schnell.“
+
+Oswin schüttelte den Kopf.
+
+Dann legte er zwei Finger an die Brust und neigte den Kopf. Keine Verbeugung vor Taron. Vor dem Schlüssel vielleicht. Oder vor dem, was er bedeutete. Taron wusste es nicht.
+
+Also tat er dasselbe, nur schlechter.
+
+„Ich nehme dich nicht“, sagte Taron. „Ich trage dich.“
+
+Er griff zu.
+
+Der Schlüssel war kalt.
+
+Dann war der Saal voller Stimmen.
+
+Nicht in seinem Kopf. Überall.
+
+„Kein Anspruch.“
+
+„Kein Blut.“
+
+„Kein Orden.“
+
+„Kein Schlüssel.“
+
+Die Hüter standen an den Eingängen des Saals. Sechs, sieben, vielleicht mehr. Masken im letzten Licht. Klingen in den Händen. Manche hatten kurze Bögen. Einer trug einen langen Stab mit einer Hakenklinge. Sie griffen nicht sofort an.
+
+Das war schlimmer.
+
+Taron hielt den Schlüssel fest.
+
+„Ich kann das erklären.“
+
+Der Erzähler sagte: „Ein Satz, der selten vor einer Verbesserung der Lage steht.“
+
+Ein Hüter trat vor. Seine Maske war heller als die anderen, aus altem Bein oder gebleichtem Holz. Seine Stimme klang älter.
+
+„Du hast genommen.“
+
+„Getragen“, sagte Taron.
+
+Oswin schloss kurz die Augen.
+
+Der alte Hüter hob die Hand.
+
+Die Bögen spannten sich.
+
+Taron griff nach der Rauchkugel.
+
+Diesmal schneller.
+
+Oswin sah es und nickte so heftig, wie ein Ritter nicken konnte, ohne den Kopf zu verlieren.
+
+Jetzt.
+
+Wirklich jetzt.
+
+Taron zog das Päckchen heraus. Seine Finger lagen auf dem Leder. Darin die Kugel. Der Schleier der entschlossenen Entfernung. Merlans seltenes Mittel. Ihr letzter Schutz.
+
+Wenn er es jetzt benutzte, war es weg.
+
+Und vor ihnen standen nur Menschen.
+
+Menschen mit Bögen, ja.
+
+Menschen, die sie töten wollten, ja.
+
+Aber Menschen.
+
+„Taron“, sagte Oswin.
+
+Es war das erste Mal, dass Oswin seinen Namen sagte.
+
+Taron sah ihn an.
+
+Der Ritter blutete an der Stirn. Sein Atem ging schwer. Seine Hand war fest um das Schwert geschlossen. Er war bereit, in diesem Saal zu sterben, falls Taron noch länger über den Wert einer Rauchkugel nachdachte.
+
+„Sie ist zu mächtig“, sagte Taron.
+
+Oswin starrte ihn an.
+
+Der Erzähler sagte: „Oh.“
+
+„Nicht oh.“
+
+„Doch. Oh ist in diesem Fall sehr präzise.“
+
+Der alte Hüter senkte die Hand.
+
+Die ersten Bolzen lösten sich.
+
+Oswin warf sich gegen Taron. Beide fielen hinter den Rand der Zisterne. Ein Bolzen schlug an den Stein. Ein zweiter riss Oswins Ärmel auf. Der dritte verschwand irgendwo im Dunkel.
+
+Taron schlug hart mit dem Rücken auf, hielt aber den Schlüssel fest.
+
+Oswin packte ihn und zog ihn weiter. Sie rollten hinter einen Pfeilerrest. Klingen klirrten. Schritte hallten. Die Hüter kamen näher.
+
+„Jetzt wäre übrigens später“, sagte der Erzähler.
+
+„Ich weiß.“
+
+„Später war der Ort, an dem du sie aufheben wolltest.“
+
+„Ich weiß!“
+
+Taron steckte die Rauchkugel wieder weg.
+
+Oswin sah ihn an, und in diesem Blick lag eine ganze Rede. Eine sehr kurze Rede, die hauptsächlich aus dem Wort warum bestand und vermutlich mit mehreren Ausrufezeichen endete.
+
+Taron hob den Menschenschlüssel. „Wenn sie Rauch sehen, schießen sie trotzdem. Wenn wir ins Wasser gehen, vielleicht nicht.“
+
+Oswin blickte zur Zisterne.
+
+Dann zu Taron.
+
+Dann wieder zur Zisterne.
+
+Er hasste den Plan sichtbar.
+
+Das machte ihn nicht schlechter.
+
+Taron sprang.
+
+Das Wasser war so kalt, dass sein Körper für einen Augenblick vergaß, wie Atem funktionierte. Er tauchte unter, stieß mit dem Knie gegen Stein und öffnete die Augen. Schwarz. Nichts als schwarz. Dann griff eine Hand nach seinem Kragen. Oswin zog ihn zur Seite.
+
+Über ihnen schlugen Pfeile ins Wasser.
+
+Nicht viele.
+
+Die Hüter sahen nichts.
+
+Taron tastete mit einer Hand an der Wand entlang. Da war eine Öffnung. Schmal. Unter Wasser. Natürlich war sie unter Wasser. Alte Burgen waren offenbar von Leuten gebaut worden, die normale Türen persönlich beleidigend fanden.
+
+Oswin stieß ihn hindurch.
+
+Taron presste den Schlüssel an die Brust und zwängte sich durch die Öffnung. Stein schabte an seinen Schultern. Sein Atem brannte. Für einen schrecklichen Moment blieb sein Gürtel hängen. Er riss sich los, verlor fast das Messer und dachte voller Zorn, dass er für so etwas eindeutig nicht genug gegessen hatte.
+
+Dann war er draußen.
+
+Nicht im Freien.
+
+In einem schmalen Ablaufkanal.
+
+Aber Luft.
+
+Er sog sie ein, würgte Wasser aus, kroch weiter und machte Platz für Oswin. Der Ritter kam nach ihm durch, fluchte diesmal hörbar und mit erstaunlicher Würde.
+
+Hinter ihnen hallten Stimmen. Die Hüter hatten den Weg noch nicht gefunden. Oder sie kannten ihn und waren klug genug, nicht bewaffnet durch ein Loch im Wasser zu kriechen.
+
+Der Kanal führte leicht aufwärts. Taron kroch, rutschte, kroch weiter. Der Menschenschlüssel hing schwer in seiner Hand. Irgendwann wurde der Steinboden trocken. Irgendwann roch die Luft nach Erde. Irgendwann sah er vor sich einen grauen Schimmer.
+
+Er schob sich durch Farn und Wurzeln ins Freie.
+
+Der Abend war fast vorbei.
+
+Über den Ruinen lag blaues Restlicht. Die Fichten standen schwarz gegen den Himmel. Kummer schnaubte irgendwo in der Nähe, beleidigt, aber lebendig. Sternfall antwortete leise.
+
+Taron blieb auf dem Bauch liegen.
+
+Oswin kroch neben ihm heraus und drehte sich auf den Rücken. Für einen Moment lagen sie beide da wie zwei sehr schlechte Antworten auf eine sehr alte Frage.
+
+Niemand sagte etwas.
+
+Dann hob Oswin langsam den Kopf und sah zu Taron.
+
+„Was?“, fragte Taron.
+
+Oswin zeigte auf Tarons Beutel.
+
+„Nein.“
+
+Oswin zeigte noch einmal.
+
+„Ich weiß, dass du die Rauchkugel meintest.“
+
+Oswin nickte.
+
+„Ich dachte, sie ist zu wichtig.“
+
+Der Ritter setzte sich auf.
+
+Langsam.
+
+Sehr langsam.
+
+Das war schlechter als schnell.
+
+„Sie ist wichtig“, sagte Oswin. Seine Stimme war rau. „Weil man sie in solchen Augenblicken benutzt.“
+
+Taron wusste nicht, was er antworten sollte.
+
+Der Erzähler sagte leise: „Eine erstaunlich solide Zusammenfassung.“
+
+„Du bist auch nicht hilfreich gewesen“, sagte Taron.
+
+„Ich habe links gesagt.“
+
+„Einmal.“
+
+„Qualität vor Menge.“
+
+Oswin stand auf, wankte kurz und fing sich. Seine Stirn blutete noch. Am Arm hatte er einen langen Schnitt. Nicht tief genug, um ihn sofort umzubringen, was Taron in diesem Moment als gute Nachricht einstufte. Seine Maßstäbe hatten sich dem Tag angepasst.
+
+„Es tut mir leid“, sagte Taron.
+
+Oswin sah ihn an.
+
+Dann nickte er.
+
+Nicht freundlich.
+
+Aber auch nicht leer.
+
+Taron setzte sich auf. In seiner Hand lag der Menschenschlüssel. Dunkel, schlicht, kalt. Kein Jubel stieg in ihm auf. Keine Musik. Kein Gefühl, dass die Welt jetzt besser verstanden hatte, was sie mit ihm anfangen sollte.
+
+Er dachte an den Mann unter der ersten Maske.
+
+An den Hüter, den sie hatten laufen lassen.
+
+An die Stimmen in den Gängen.
+
+An Freiheit.
+
+Für wen?
+
+Der Erzähler räusperte sich in seinem Kopf.
+
+„Nun“, sagte er, „das war pädagogisch ungünstig.“
+
+Taron lachte nicht.
+
+Der Erzähler schwieg danach.
+
+Das gefiel Taron fast weniger.
+
+Sie gingen zu den Pferden. Kummer trat nach Taron, verfehlte ihn knapp und schien damit zufrieden. Sternfall ließ Oswin näherkommen, als habe der Ritter wenigstens einen Teil seiner Würde behalten.
+
+Taron wickelte den Menschenschlüssel in ein Tuch und steckte ihn nicht in denselben Beutel wie die Rauchkugel. Er wusste nicht warum. Es fühlte sich vernünftig an, Dinge getrennt zu halten, die beide viel zu wichtig wirkten und von denen er eines falsch verstanden hatte.
+
+Oswin saß bereits im Sattel, als aus den Ruinen ein einzelner Ruf kam.
+
+Taron erstarrte.
+
+Am Rand des alten Hofes stand eine Gestalt.
+
+Der Hüter mit der gesprungenen Maske.
+
+Er hielt keine Waffe in der Hand. Oder zumindest keine sichtbare. Bei Hütern war das vermutlich kein großer Trost.
+
+„Du hast ihn“, rief er.
+
+Taron antwortete nicht.
+
+„Dann hör auch dies“, sagte der Hüter. „Wenn ihr den zweiten sucht, findet ihr Krieg. Wenn ihr den dritten sucht, findet ihr, warum es Krieg gibt.“
+
+Oswin richtete sich im Sattel auf.
+
+„Und wenn wir nichts tun?“, rief Taron.
+
+Der Hüter stand sehr still.
+
+„Dann finden andere sie.“
+
+Das war keine Drohung.
+
+Das war schlimmer. Es klang wie Erfahrung.
+
+„Wie heißt du?“, rief Taron.
+
+Der Hüter zögerte.
+
+„Neral.“
+
+„Danke, Neral.“
+
+„Dank ist Anspruch in höflicher Kleidung.“
+
+Taron starrte ihn an.
+
+„Ihr seid wirklich so.“
+
+Neral wandte sich ab und verschwand zwischen den Mauerresten.
+
+Oswin trieb Sternfall an. Taron folgte ihm. Sie ritten nicht schnell. Dazu waren sie zu nass, zu müde und zu sehr damit beschäftigt, nicht vom Pferd zu fallen. Erst als die Ruinen hinter den Fichten verschwanden, wagte Taron, noch einmal zurückzusehen.
+
+Der Turm von Abendriss stand wieder allein.
+
+Das wusste Taron nun besser.
+
+Unter ihm lagen Gänge, Stimmen, Masken und Tote. Über ihm lag eine Prophezeiung, der Wein fehlte. In seiner Tasche lag ein Schlüssel, den er nicht besitzen wollte. In seinem Beutel lag eine Rauchkugel, die er nicht benutzt hatte, weil er sie für zu mächtig hielt.
+
+„Oswin?“, sagte er nach einer Weile.
+
+Der Ritter sah nicht zu ihm.
+
+„Beim nächsten Mal benutze ich sie vielleicht.“
+
+Oswin atmete langsam aus.
+
+„Vielleicht“, sagte er, „ist ein gefährliches Wort.“
+
+Taron nickte.
+
+Der Erzähler sagte: „Fortschritt. Er erkennt Wörter als Bedrohung.“
+
+Diesmal musste Taron doch beinahe lächeln.
+
+Nur beinahe.
+
+Hinter ihnen blieb Abendriss dunkel.
+
+Vor ihnen wartete die Straße nach Waldkirch, und irgendwo jenseits davon warteten zwei weitere Schlüssel.
+
+Taron hatte das Gefühl, dass der Tag ihm sehr deutlich erklärt hatte, was er von einfachen Plänen hielt.
+
+Er nahm es persönlich.
