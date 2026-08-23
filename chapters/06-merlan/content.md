@@ -1,8 +1,8 @@
 Es gibt viele Arten, einem Zauberer zu begegnen. Im Dunkel einer Höhle, wenn es gerade tropft und jemand einen Schädel in der Hand wiegt. Auf einem Marktplatz, wenn er eine Orange in zwölf Teile blickt, ohne sie zu berühren, und dabei Spenden annimmt. Oder an einem Vormittag vor einem tadellosen Fachwerkhaus, über dessen Schornstein blauer Rauch zieht, als hätte der Himmel seine eigene Tinte verschüttet.
 
-„Blau bedeutet ‚kommt herein‘“, sagte der Wirt am Vorabend, als hätte er Wetter angesagt. „Grün bleibt weg. Rot duckt euch. Schwarz ist keiner Zuhause. Und lila heißt, der Topf läuft über, da will man wirklich nicht stören.“
+„Blau bedeutet ‚kommt herein‘“, sagte der Wirt am Vorabend, als hätte er Wetter angesagt. 
 
-Taron hatte sich das so gemerkt, wie man sich die Reihenfolge unfreundlicher Hunde im Dorf merkt. Nun stand er mit Sir Oswin von Hohenklamm vor einem Haus, das in Hohensteg auffällig unauffällig war. Die Fensterläden waren frisch gestrichen, der Garten geschnitten wie ein Bart nach einem Festtag, ein Pfad aus flachen Steinen führte sauber zur Tür. Nur der Schornstein gab dem Idyll etwas Rätselhaftes: das Blau war nicht das schadhafte Blau von nassem Holz, sondern ein helles, freundliches, fast absichtliches Blau.
+Taron hatte sich das so gemerkt, wie man sich die Reihenfolge unfreundlicher Hunde im Dorf merkt. Nun stand er mit Sir Oswin von Hohenklamm vor einem Haus, das in Hohensteg auffällig unauffällig war. Die Fensterläden waren frisch gestrichen, der Garten geschnitten wie ein Bart vor einem Festtag, ein Pfad aus flachen Steinen führte sauber zur Tür. Nur der Schornstein gab dem Idyll etwas Rätselhaftes: das Blau war nicht das schadhafte Blau von nassem Holz, sondern ein helles, freundliches, fast absichtliches Blau.
 
 „Er liebt Gäste“, murmelte der Erzähler.
 
