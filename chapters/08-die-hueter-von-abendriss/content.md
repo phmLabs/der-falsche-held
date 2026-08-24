@@ -276,8 +276,6 @@ Er atmete einmal ein.
 
 Dann nicht mehr.
 
-Taron stand sehr still.
-
 Oswin schloss dem Mann die Augen. Danach blieb seine Hand einen Moment dort.
 
 Der Erzähler sagte nichts.
@@ -332,10 +330,6 @@ Taron hätte beinahe gelacht. Nicht aus Freude. Aus dem schlechten Teil von Angs
 
 „Ich experimentiere.“
 
-„Jetzt?“
-
-„Du wirkst wie jemand, der Ergebnisse schätzt.“
-
 Der neue Gang war noch enger. Oswin musste seitlich gehen. Taron kam leichter hindurch, was ihn nur kurz stolz machte, denn am Ende des Ganges standen zwei Masken.
 
 Sie standen still.
@@ -362,7 +356,7 @@ Der erste Hüter neigte den Kopf.
 
 „Alle sagen das.“
 
-„Ich nicht gern.“
+„Ich nicht gerne.“
 
 Der zweite Hüter hob seine Klinge.
 
@@ -563,10 +557,6 @@ Taron packte den Arm des Hüters. „Wie kommen wir hin?“
 „Ihr kommt nicht hin.“
 
 „Dann sterben wir hier.“
-
-„Das ist der Zweck von Türen.“
-
-„Ich will nicht sterben, weil eine Tür eine Meinung hat.“
 
 Der Hüter sah zu Oswin. Auf das Schwert. Auf den Mann, der Taron nicht führte, aber vor ihm stand. Dann sah er wieder zu Taron.
 
