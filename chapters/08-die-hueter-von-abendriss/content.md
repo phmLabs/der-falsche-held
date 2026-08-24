@@ -1000,13 +1000,11 @@ Am Rand des alten Hofes stand eine Gestalt.
 
 Der Hüter mit der gesprungenen Maske.
 
-Er hielt keine Waffe in der Hand. Oder zumindest keine sichtbare. Bei Hütern war das vermutlich kein großer Trost.
-
 „Du hast ihn“, rief er.
 
 Taron antwortete nicht.
 
-„Dann hör auch dies“, sagte der Hüter. „Wenn ihr den zweiten sucht, findet ihr Krieg. Wenn ihr den dritten sucht, findet ihr, warum es Krieg gibt.“
+„Dann hör auch dies“, sagte der Hüter. „Wenn ihr den zweiten sucht, findet ihr Krieg. Wenn ihr den dritten sucht, findet ihr was schlimmeres.“
 
 Oswin richtete sich im Sattel auf.
 
