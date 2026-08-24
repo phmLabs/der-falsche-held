@@ -1,6 +1,6 @@
 - id: c-mt75haut
   created_at: '2026-08-24T11:26:06.389Z'
-  status: active
+  status: resolved
   quote: >-
     mittag erreichten sie die alte Grenze.
 
@@ -13,7 +13,7 @@
   author: author
 - id: c-mt75p226
   created_at: '2026-08-24T11:32:08.238Z'
-  status: active
+  status: resolved
   quote: >-
     cht anwesend sein, wenn jemand fragte.
 
@@ -28,4 +28,32 @@
   note: >-
     Das geht zu schnell. Ich glaube sie sollten noch einen Tag reiten. Da muss nichts passieren. Vielleicht erzählen sie
     sich einfach Geschichten über sich.
+  author: author
+- id: c-mt75qywi
+  created_at: '2026-08-24T11:33:37.458Z'
+  status: resolved
+  quote: >2-
+     Stelle gewesen, das früher zu sagen.“
+
+    Der Erzähler sagte: „Zu seiner Verteidigung: Er tat es. Du hast nur eine kleinere Vorstellung behalten, weil sie
+    weniger Platz für Unheil ließ.“
+
+
+    Zwischen zwei schwarzen Fichten sah Ta
+  start_offset: 40
+  end_offset: 184
+  note: Hiernach könnte er sich nochmal aufregen, dass man in dieser Stadt immer alles fragen muss, wie bei dem Weg.
+  author: author
+- id: c-mt75sx5z
+  created_at: '2026-08-24T11:35:08.519Z'
+  status: resolved
+  quote: |
+    er Rauchkugel.
+
+    „Gut“, sagte er leise.
+
+    Niemand widersprach.
+  start_offset: 40
+  end_offset: 61
+  note: Hier sollen sie noch das Lager aufschlagen weil sie schon zu müde sind und es dunkel ist.
   author: author
