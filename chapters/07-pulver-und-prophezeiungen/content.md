@@ -178,27 +178,9 @@ Oswin sah auf die Kugel. „Ich habe Männer überleben sehen, weil jemand im ri
 
 Taron schwieg.
 
-Das war keine lustige Antwort. Nicht einmal der Erzähler trat darauf.
-
 „In den Zwergenkriegen?“, fragte Taron leiser.
 
 Oswin nickte.
-
-„Hat das über Sieg entschieden?“
-
-Oswin dachte kurz nach. Dann hob er zwei Finger.
-
-„Zweimal?“
-
-Er nickte.
-
-„Nur zweimal?“
-
-Oswin sah ihn an.
-
-„Ah“, sagte Taron. „Zweimal, die Ihr sicher wisst.“
-
-Oswin nickte wieder.
 
 Merlan schloss das Kästchen. „Sie funktioniert einmal. Wenn du sie wirfst, zerbricht sie. Wenn sie zerbricht, kommt Rauch. Wenn Rauch kommt, läufst du. Nicht kämpfen. Nicht reden. Nicht nachdenken, ob es würdevoll aussieht. Laufen.“
 

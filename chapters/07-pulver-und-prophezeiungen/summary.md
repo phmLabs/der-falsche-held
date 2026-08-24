@@ -1,7 +1,5 @@
-- Merlan analysiert drei Abschriften der Prophezeiung: Es gibt drei Eidschlüssel, einer liegt bei den Zwergen; Taron soll den Menschenschlüssel suchen, gerade weil er keine Abstammung, Ansprüche oder Orden hat. 
-- Ein Randvermerk ist teilweise verdeckt: In Waldkirch liest man „Die Schlüssel bringen Freiheit“, doch vor „Freiheit“ fehlte ein Wort, was auf eine mögliche Fehlinterpretation hindeutet. 
-- Merlan begleitet sie nicht, gibt Taron aber eine einmalige Rauchkugel („werfen und laufen“) und Regeln für den Turm von Abendriss: nichts außer dem Schlüssel nehmen, nichts laut lesen, keine falschen Türen öffnen. 
-- Taron und Oswin reiten los; unterwegs markieren Grenzsteine den Bereich des Menschenschlüssels, die Gegend wirkt verlassen und unheimlich. 
-- Sie erreichen den glatten, fensterlosen Turm in einer Senke ohne sichtbaren Eingang.
-
-Offen bleibt: Welches Wort stand vor „Freiheit“ und was bedeutet die Prophezeiung korrekt? Wie gelangt man in den Turm und wo liegt der Menschenschlüssel? Reichen Rauchkugel und Merlans Regeln gegen die unbekannten Gefahren?
+- In Merlans Haus klären Taron, Oswin und Merlan: Die Prophezeiung nennt drei Eidschlüssel (einer gehört den Zwergen), als Nächstes geht es um den Menschenschlüssel; Taron soll ihn holen, weil er keine Ansprüche oder Abstammung hat. Zudem ist der Randvermerk „Freiheit“ vermutlich unvollständig, da ein davorstehendes Wort durch einen alten Fleck fehlt. 
+- Merlan begleitet sie nicht, gibt Taron aber eine einmalig nutzbare Rauchkugel (werfen und laufen) und strikte Regeln für den Turm von Abendriss (nur den Schlüssel nehmen, nichts laut lesen, keine unpassenden Türen öffnen). Oswin bestätigt aus Kriegserfahrung die Wirksamkeit der Kugel. 
+- Taron und Oswin reiten nach Westen; Grenzsteine mit dem Zeichen des Menschenschlüssels tauchen auf, einige sind umgestürzt oder geschwärzt, es gibt keine frischen Spuren und die Gegend wirkt verlassen. 
+- Bei Einbruch des Abends erreichen sie den glatten, fensterlosen Turm von Abendriss ohne sichtbares Tor. 
+- Offene Fragen: Welches Wort stand vor „Freiheit“ und ändert es die Bedeutung der Prophezeiung? Wie gelangt man in den Turm, wo liegt der Menschenschlüssel und welchen Gefahren werden sie begegnen – reicht die Rauchkugel im Ernstfall?
