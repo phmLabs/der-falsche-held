@@ -714,7 +714,13 @@ Natürlich tat er das.
 
 Er trug das Zeichen des Hofes auf der Brust, auch wenn es schmutzig war und aussah, als hätte das Königreich es ihm mit schlechtem Gewissen geliehen. Der gekrönte Vogel war größer. Ordentlicher. Wichtiger.
 
-Oswin sah zwischen den Zeichen hin und her. Er sagte nichts, aber sein Blick blieb nicht bei der Krone. Er blieb bei dem kleinen Falken.
+Oswin sah zwischen den Zeichen hin und her. Dann hob er die Hand und deutete auf den gekrönten Vogel.
+
+„Der“, sagte er.
+
+Es war die naheliegende Antwort. Königreich. Auftrag. Siegel. Alles, was Taron in den letzten Tagen wie einen schlecht sitzenden Mantel getragen hatte.
+
+Taron hätte sie fast genommen.
 
 Taron trat näher.
 
