@@ -1,5 +1,5 @@
-- In Merlans Haus klären Taron, Oswin und der Gelehrte/Zauberer die Prophezeiung: Es gibt drei Eidschlüssel, als nächster Schritt gilt der Menschenschlüssel. 
-- Merlan hält Taron für geeignet, weil er keine Ansprüche oder Linie hat; zugleich macht ein Fleck in der ältesten Abschrift ein Wort vor „Freiheit“ unlesbar und stellt die gängige Deutung infrage. 
-- Merlan begleitet sie nicht und gibt statt eines Zaubers eine einmalige Rauchkugel mit der Anweisung „werfen und laufen“, die Oswin aus den Zwergenkriegen als lebensrettend kennt. 
-- Nach Regeln für den Turm (nur den Schlüssel nehmen, nichts laut lesen, keine falschen Türen öffnen) reiten Taron und Oswin los, passieren verlassene Wege und beschädigte Grenzsteine. 
-- Bei Dämmerung erreichen sie den dunklen, fensterlosen Turm von Abendriss; offen bleibt, was im Inneren wartet, was das fehlende Wort der Prophezeiung bedeutet und ob die Rauchkugel ausreichen wird.
+- Merlan untersucht die drei Abschriften: Es gibt drei Eidschlüssel (einer gehört den Zwergen), als nächster Schritt gilt der Menschenschlüssel; ein verschmierter Randvermerk lässt vor „Freiheit“ ein fehlendes Wort offen.
+- Taron soll gerade wegen fehlender Blutlinie und Ansprüche gehen; Merlan begleitet nicht und behält die gute Abschrift.
+- Statt Magie gibt Merlan Taron eine einmalige Rauchkugel mit der Anweisung zu fliehen; Oswin bestätigt deren Nützlichkeit aus Kriegs­erfahrung.
+- Mit strikten Regeln für den Turm (nur den Schlüssel nehmen, nichts laut lesen, keine unpassenden Türen öffnen) reiten Taron und Oswin nach Westen, sehen Grenzsteine mit Menschenschlüssel-Zeichen, keine frischen Spuren und schwarze Verfärbungen.
+- Bei Dämmerung erreichen sie den glatten, dunklen, scheinbar eingangslosen Turm von Abendriss; offen bleibt das fehlende Wort der Prophezeiung, wie sie hineinkommen, welche Gefahren warten und ob Rauchkugel und Regeln genügen.

@@ -114,24 +114,6 @@ Merlan blinzelte.
 
 Oswin stellte seinen Becher ab und sah Merlan an. Zum ersten Mal seit einer Weile wirkte sein Nicken nicht schläfrig, sondern wachsam.
 
-„Also?“, fragte Taron. „Habt Ihr einen?“
-
-Merlan setzte seine Brille wieder auf.
-
-„Vor Jahren habt Ihr überlegt, ob Ihr mir heute einen Schutzzauber geben könnt?“
-
-„Nein. Vor Jahren habe ich überlegt, ob ich Leuten Schutzzauber verspreche, wenn sie eigentlich etwas anderes brauchen.“
-
-„Und?“
-
-„Ich habe mich dagegen entschieden.“
-
-Der Erzähler sagte: „Eine erstaunlich seltene Form von Verantwortungsbewusstsein.“
-
-„Du hilfst nicht“, sagte Taron.
-
-„Ich kommentiere. Das ist eine Form höherer Untätigkeit.“
-
 Merlan stand auf.
 
 Das war offenbar kein dramatischer Moment, aber Taron hielt trotzdem den Atem an. In Merlans Haus hatte selbst ein Gang zu einem Regal die Möglichkeit, das Leben schwieriger zu machen.
