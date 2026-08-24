@@ -1,5 +1,5 @@
-- Merlan stellt klar, dass die Prophezeiung wörtlich drei Eidschlüssel meint (einer gehört den Zwergen) und dass Taron gerade wegen fehlender Abstammung/Ansprüche als Träger für den Menschenschlüssel in Frage kommt.
-- Ein verschmierter Randvermerk lässt vor dem Wort „Freiheit“ ein fehlendes Wort vermuten, was auf eine mögliche Fehllektüre der Verheißung hindeutet.
-- Merlan begleitet sie nicht, gibt Taron aber eine einmal nutzbare magische Rauchkugel als Fluchtmittel und strikte Regeln für den Turm von Abendriss (nichts außer dem Schlüssel nehmen, nichts laut lesen, keine „falschen“ Türen öffnen).
-- Taron und Oswin überschreiten eine alte Grenze in verlassene, stille Lande, lagern vorsichtig ohne Feuer, tauschen kurze Lebensgeschichten und erreichen die Ruinen der Burg Abendriss mit einem glatten, finsteren Turm.
-- Sie beobachten über Nacht und bereiten den Zugang bei Tagesanbruch vor; offen bleibt, welches Wort vor „Freiheit“ fehlt, welche Gefahren im Turm lauern und wo genau der Menschenschlüssel zu finden ist.
+- Merlan, Taron und Oswin prüfen drei Abschriften: Die Prophezeiung nennt drei Eidschlüssel, der nächste ist der Menschenschlüssel; Taron gilt als geeignet, weil er keinen Anspruch/Stand hat, und ein Fleck verdeckt ein Wort vor „Freiheit“, was auf eine Fehllektüre hindeutet. 
+- Merlan begleitet sie nicht, gibt Taron aber eine einmalige Rauchkugel („Schleier der entschlossenen Entfernung“) und Regeln für den Turm von Abendriss: nur den Schlüssel nehmen, nichts laut lesen, keine „falschen“ Türen öffnen (höchstens sehr vorsichtig). 
+- Taron und Oswin reiten westwärts aus Hohensteg über eine alte Grenze in verlassene Gegenden, finden keine frischen Spuren und lagern ohne Feuer. 
+- Am Abend erreichen sie die Ruinen der Burg Abendriss mit einem glatten, fensterlosen Turm, beobachten aus Deckung und halten Wache. 
+- Bei Tagesanbruch rüsten sie zum Annähern; offen bleibt, welches fehlende Wort vor „Freiheit“ stand, was genau der Menschenschlüssel ist, welche Gefahren/Mechanismen der Turm birgt und ob die Rauchkugel ihnen das Leben retten wird.
