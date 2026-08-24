@@ -490,41 +490,51 @@ Taron hörte trotz der Schritte zu.
 
 „Warum geht ihr nicht fort?“
 
-Der Hüter lachte wieder, diesmal kürzer. „Wohin geht ein Eid?“
+Der Hüter sah ihn an, als sei die Frage sehr jung.
 
-„In einen Priester, meistens. Die haben Platz.“
+„Einige sind fort“, sagte er. „Vor Jahren. Vor Generationen. Sie wollten leben wie andere Menschen. Felder, Handel, Namen, die nicht an Steine gebunden sind.“
 
-Der Erzähler sagte: „Nicht hilfreich, aber erstaunlich tapfer.“
+„Und?“
 
-Der Hüter verstand den Erzähler nicht, aber er schien Tarons Gesicht zu lesen. „Du machst Witze, weil du Angst hast.“
+„Manche kamen zurück. Manche nicht. Der Schwur blieb hier.“
 
-„Nein.“
+Taron hörte die Schritte näher kommen. Langsam, aber näher.
 
-Oswin sah ihn an.
+„Wir brauchen den Schlüssel“, sagte er.
 
-„Ja.“
+„Das sagen alle, die ihn nehmen wollen.“
 
-„Gut“, sagte der Hüter. „Wer keine Angst hat, nimmt Schlüssel.“
+„Ich will ihn nicht.“
 
-„Niemand darf ihn nehmen“, sagte der Hüter.
+„Dann lass ihn liegen.“
 
-„Das ist schlecht, weil wir ihn brauchen.“
+Taron öffnete den Mund.
 
-„Brauchen ist Anspruch in ärmerer Kleidung.“
+Der Erzähler sagte: „Ein seltener Augenblick, in dem die einfache Antwort leider die dümmste ist.“
 
-„Habt ihr das aufgeschrieben, oder sagt ihr solche Dinge einfach alle auswendig?“
+„Das ist komplizierter“, sagte Taron.
 
-„Wir bewahren.“
+„Nein“, sagte der Hüter. „Ihr macht es kompliziert, weil ihr fortgehen wollt und trotzdem haben wollt, was wir geschworen haben zu halten.“
 
-„Was?“
+Das saß besser, als Taron lieb war.
 
-„Den Fehler der Alten.“
+„Was bewacht ihr wirklich?“, fragte er.
+
+Der Hüter hob langsam den Kopf.
+
+„Den Schlüssel“, sagte er. „Aber nicht, weil er Gold wert ist. Nicht, weil ein König ihn fordert oder ein Priester ihn segnet. Unsere Alten haben geschworen, dass niemand ihn fortträgt.“
+
+„Warum?“
+
+Der Hüter sah an Taron vorbei in den Gang, als könne dort noch jemand stehen, der die alte Antwort kannte.
+
+„Weil danach etwas Schlimmes kommt“, sagte er. „So wurde es weitergegeben. Erst mit Namen. Dann mit Liedern. Dann mit Zeichen. Jetzt mit Blut und Atem. Mehr ist geblieben.“
 
 Oswin blickte scharf zu ihnen.
 
 Auch aus Tarons Kopf kam nichts.
 
-„Welchen Fehler?“, fragte Taron.
+„Was kommt?“, fragte Taron.
 
 Der Hüter atmete langsam ein. „Drei Schlüssel. Drei Eide. Ein Schloss. Wenn sie getrennt sind, erinnern sie die Völker daran, dass nicht alles ihnen gehört. Wenn sie zusammenkommen, ist das Schloss nicht länger gebunden.“
 
