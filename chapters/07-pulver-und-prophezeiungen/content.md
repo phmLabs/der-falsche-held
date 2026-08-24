@@ -400,8 +400,6 @@ Gegen Abend wurde das Licht wieder flach.
 
 Die Hügel vor ihnen warfen lange Schatten über den Weg. Erst waren es nur Flecken, dann Linien, dann Balken, die wie Gitter aussahen. Taron bemerkte die Ruinen zuerst nicht.
 
-Das war vielleicht ihr schlimmster Teil.
-
 Sie standen nicht groß genug da, um sofort als Ruinen erkannt zu werden. Ein niedriger Stein im Gras war erst nur ein Stein. Dann sah Taron, dass er zu gerade lag. Eine Reihe schwarzer Büsche war erst nur Gestrüpp. Dann erkannte er dazwischen den Rest einer Mauer. Ein Hügel war erst nur ein Hügel. Dann zeigte das Abendlicht eine Kante, die kein Hügel haben sollte.
 
 „Das ist nicht nur ein Turm“, sagte Taron.
@@ -414,9 +412,9 @@ Oswin zog Sternfall langsamer.
 
 Der Erzähler sagte: „Zu seiner Verteidigung: Er tat es. Du hast nur eine kleinere Vorstellung behalten, weil sie weniger Platz für Unheil ließ.“
 
-„In Hohensteg muss man offenbar alles extra fragen“, knurrte Taron. „Straßen. Zauberer. Offene Geheimnisse. Nächstes Mal frage ich, ob die Bäume hier auch wirklich Bäume sind, oder ob sie nur warten, bis jemand ein Gedicht über sie liest.“
+„In Hohensteg muss man offenbar alles extra fragen“, knurrte Taron. „Straßen. Zauberer. Offene Geheimnisse. Nächstes Mal frage ich, ob die Bäume hier auch wirklich Bäume sind, oder ob sie nur warten, bis jemand schläft und dann ...“
 
-„Das würde ich lassen“, sagte Oswin. „Zumindest das Gedicht.“
+„Das würde ich lassen“, sagte Oswin.
 
 Zwischen zwei schwarzen Fichten sah Taron schließlich etwas, das zuerst wie ein Felsen aussah.
 
@@ -430,15 +428,11 @@ Er stand nicht hoch auf einem Hügel, wie Türme es in Geschichten gern taten, u
 
 Der Turm von Abendriss sah nicht aus, als habe jemand darin wohnen wollen.
 
-Er sah aus, als habe jemand eine Grenze in Stein gefasst.
-
 Taron hielt Kummer an. Oswin hielt neben ihm. Für eine Weile sagte keiner von beiden etwas.
 
 Taron legte die Hand auf seinen Beutel und spürte unter Leder die kleine harte Form der Rauchkugel.
 
 „Gut“, sagte er leise.
-
-Niemand widersprach.
 
 Sie ritten nicht näher heran.
 

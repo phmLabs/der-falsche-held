@@ -1,5 +1,5 @@
-- Merlan, Taron und Oswin prüfen drei Abschriften: Die Prophezeiung nennt drei Eidschlüssel, der nächste ist der Menschenschlüssel; Taron gilt als geeignet, weil er keinen Anspruch/Stand hat, und ein Fleck verdeckt ein Wort vor „Freiheit“, was auf eine Fehllektüre hindeutet. 
-- Merlan begleitet sie nicht, gibt Taron aber eine einmalige Rauchkugel („Schleier der entschlossenen Entfernung“) und Regeln für den Turm von Abendriss: nur den Schlüssel nehmen, nichts laut lesen, keine „falschen“ Türen öffnen (höchstens sehr vorsichtig). 
-- Taron und Oswin reiten westwärts aus Hohensteg über eine alte Grenze in verlassene Gegenden, finden keine frischen Spuren und lagern ohne Feuer. 
-- Am Abend erreichen sie die Ruinen der Burg Abendriss mit einem glatten, fensterlosen Turm, beobachten aus Deckung und halten Wache. 
-- Bei Tagesanbruch rüsten sie zum Annähern; offen bleibt, welches fehlende Wort vor „Freiheit“ stand, was genau der Menschenschlüssel ist, welche Gefahren/Mechanismen der Turm birgt und ob die Rauchkugel ihnen das Leben retten wird.
+- Merlan prüft drei Abschriften der Prophezeiung: Es gibt drei Eidschlüssel (einer bei den Zwergen), und als nächster Schritt gilt der Menschenschlüssel; Taron sei gerade wegen fehlender Ansprüche/Blutlinie/Ordenszugehörigkeit dafür brauchbar. 
+- Ein am Rand fleckiger Satz ist verstümmelt: In Waldkirch liest man „Die Schlüssel bringen Freiheit“, doch vor „Freiheit“ fehlt ein Wort. 
+- Merlan begleitet sie nicht, übergibt Taron aber eine einmal einsetzbare Rauchkugel („Schleier der entschlossenen Entfernung“) zum Fliehen und gibt strikte Regeln für den Turm von Abendriss (nur den Schlüssel nehmen, nichts laut lesen, keine „falschen“ Türen öffnen). 
+- Taron und Oswin reiten über die alte Grenze in stilles, verlassenes Land, lagern vorsichtig ohne Feuer, tauschen kurze Geschichten und erkennen, dass Abendriss eine ganze Burgruine ist, nicht nur ein Turm. 
+- Bei Tagesanbruch bereiten sie den Aufbruch zum Turm vor; offen bleiben das fehlende Wort der Prophezeiung, was sie im Turm erwartet und ob der Menschenschlüssel dort liegt.
