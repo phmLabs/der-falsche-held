@@ -442,10 +442,6 @@ Der Hüter schwieg.
 
 „Wir haben dich leben lassen.“
 
-„Noch.“
-
-„Ich arbeite mit dem, was ich habe.“
-
 Der Hüter drehte den Kopf. Blut lief ihm von der Schläfe unter die Maske.
 
 „Warum?“
@@ -456,7 +452,7 @@ Der Hüter starrte ihn an.
 
 Vielleicht war es lange her, dass jemand das zu ihm gesagt hatte. Vielleicht hatte es auch nie jemand gesagt. Vielleicht war Taron nur sehr müde und begann, fremde Gesichtsausdrücke zu erfinden.
 
-„Wir tragen Masken“, sagte der Hüter, „damit die, die kommen, zuerst Angst haben.“
+„Wir tragen Masken“, sagte der Hüter, „damit die, die kommen, Angst haben.“
 
 „Das funktioniert.“
 
@@ -465,8 +461,6 @@ Vielleicht war es lange her, dass jemand das zu ihm gesagt hatte. Vielleicht hat
 Taron sah auf Oswins blutige Klinge. Dann auf den reglosen Körper weiter hinten im Gang, von dem er nur die Stiefel sehen konnte.
 
 „Nicht immer.“
-
-Der Hüter schloss kurz die Augen. „Nein.“
 
 Von irgendwo oberhalb der Wand kam ein dumpfes Geräusch. Holz auf Stein. Dann wieder das Klopfen, das sie schon früher gehört hatten. Einmal. Zweimal. Pause. Diesmal antwortete es aus drei Richtungen.
 
@@ -485,12 +479,6 @@ Taron wünschte, Oswin würde in ganzen Sätzen schweigen.
 Der Hüter sah ihn an.
 
 „Genug.“
-
-„Das sagen Leute immer, wenn es weniger sind, als sie wollen.“
-
-„Das sagen Leute auch, wenn es mehr sind, als du überlebst.“
-
-„Gut. Das war leider besser.“
 
 Der Hüter versuchte sich aufzusetzen, schaffte es nicht und blieb gegen die Wand gelehnt. Unter der gesprungenen Maske lief sein Atem schnell. Trotzdem klang er nicht panisch. Er klang wie jemand, der eine Lehre wiederholte, die ihm so früh beigebracht worden war, dass sie tiefer saß als Schmerz.
 
