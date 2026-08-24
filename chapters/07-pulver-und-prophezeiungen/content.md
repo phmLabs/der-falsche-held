@@ -210,12 +210,6 @@ Oswin stand auf. Er zog die Riemen seiner Handschuhe fest. Taron tat ebenfalls s
 
 „Der Turm von Abendriss“, sagte Merlan, „ist kein Ort für Heldentum.“
 
-„Gut“, sagte Taron.
-
-„Das war keine Entwarnung.“
-
-„Natürlich nicht.“
-
 „Nimm nichts, was nicht der Schlüssel ist. Lies nichts laut vor. Wenn du eine Tür siehst, die nicht dort sein sollte, öffne sie nicht.“
 
 Taron wartete.
@@ -233,8 +227,6 @@ Merlan sah ihn an.
 Der Erzähler sagte: „Ich mag Regeln, die im entscheidenden Moment zusammenbrechen. Sie wirken menschlich.“
 
 „Ich mag Regeln, die helfen.“
-
-„Wie rührend einfach.“
 
 Merlan begleitete sie zur Tür. Der grüne Rauch war inzwischen grau geworden und stieg dünn aus dem Schornstein. Auf dem Brunnenplatz hatten die Leute wieder angefangen, Eimer, Gerüchte und unklare Beschwerden auszutauschen. Niemand sah so aus, als habe die Welt sich verändert.
 
