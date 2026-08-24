@@ -1,4 +1,5 @@
-- In Merlans Haus prüfen Merlan, Taron und Oswin drei Abschriften der Prophezeiung: Es gibt drei Eidschlüssel, der „Menschenschlüssel“ ist nur der nächste Schritt, Taron gilt als geeignet, weil er keine Ansprüche/Blutlinie hat, und ein verschmierter Randvermerk zeigt, dass vor „Freiheit“ ein fehlendes Wort stand. 
-- Merlan begleitet sie nicht, gibt Taron aber eine einmal nutzbare magische Rauchkugel („Schleier der entschlossenen Entfernung“) mit der Anweisung, sie im Notfall zu werfen und zu fliehen. 
-- Taron und Oswin brechen nach Westen auf, überqueren die alte Grenze in ein verlassenes Gebiet, vermeiden Spuren und Feuer, lagern zwei Nächte und nähern sich vorsichtig Abendriss. 
-- Am Ziel entdecken sie die weitläufigen Ruinen und den glatten, torlosen Turm, warten den Morgen ab und bereiten den Anmarsch vor; offen bleibt das fehlende Wort der Prophezeiung, welche Gefahren und „falschen Türen“ im Turm warten und ob der Menschenschlüssel dort liegt.
+- Merlan, Taron und Oswin ordnen die Prophezeiung: Es gibt drei Eidschlüssel (einer den Zwergen), der nächste Schritt ist der „Menschenschlüssel“, und Taron ist gerade wegen fehlender Abstammung/Ansprüche für einen Eid brauchbar. 
+- Merlan begleitet sie nicht, gibt aber eine einmalige Rauchkugel als Fluchthilfe und klare Regeln für den Turm von Abendriss (nur den Schlüssel nehmen, nichts laut lesen, keine „falschen“ Türen öffnen). 
+- Taron und Oswin reiten über die alte Grenze in eine stille, verlassene Gegend, lagern vorsichtig ohne Feuer und tauschen kurze Erinnerungen aus. 
+- Sie erreichen die Ruinen der Burg Abendriss, erkennen den dunklen, glatten, fensterlosen Turm und rücken erst im Morgenlicht zum Annähern vor. 
+- Offen bleibt: Welches fehlende Wort vor „Freiheit“ verändert den Sinn der Prophezeiung; welche Gefahren und Türen erwarten sie im Turm; wo liegt der Menschenschlüssel genau; und genügt Merlans Rauchkugel samt Regeln, um lebend wieder herauszukommen?

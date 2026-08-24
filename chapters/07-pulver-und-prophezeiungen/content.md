@@ -348,11 +348,7 @@ Oswin lächelte mit einem Mundwinkel. „Ich hatte einen Leutnant, der hieß auc
 
 Oswin sah in die flache Flamme. „Wind. Stein. Wasserfälle. Wege, die keine waren, aber trotzdem benutzt wurden. Ich habe dort zum ersten Mal ein Schwert gehalten und begriffen, dass meine Hände vielleicht für mehr gut waren als Stallarbeit und Prügel.“
 
-„Romantisch.“
-
-„Gefährlich. Das ist die schwächere Form von romantisch.“
-
-Taron nickte. „Mein Romantisch besteht im Moment aus Schlaf ohne Schreie.“
+Taron nickte. „Mein Wunsch besteht im Moment aus Schlaf ohne Schreie.“
 
 „Das ist kein schlechtes Ziel.“
 
@@ -360,11 +356,9 @@ Taron nickte. „Mein Romantisch besteht im Moment aus Schlaf ohne Schreie.“
 
 „Die Tür, die nicht dort sein sollte“, sagte Oswin. „Die kannst du schlagen, wenn sie kommt. Danach vorsichtig öffnen.“
 
-„Sehr witzig.“
+Beide grinsten, was nach den letzten Tagen unerwartet befreiend erschien.
 
-„Es war nicht witzig gemeint.“
-
-Eine Weile schwiegen sie. Die Pferde rupften Gras. Weit weg rief etwas, das eine Eule hätte sein können, wenn Eulen schwerer atmeten. Taron zog den Umhang enger um die Schultern. Die Nachtluft jenseits der Grenze hing nicht nur kälter, sie hing anders. Als hätte jemand vergessen, die Wärme gleichmäßig zu verteilen.
+Eine Weile schwiegen sie. Die Pferde rupften Gras. Weit weg rief etwas, das eine Eule hätte sein können. Taron zog den Umhang enger um die Schultern. Die Nachtluft jenseits der Grenze hing nicht nur kälter, sie hing anders. Als hätte jemand vergessen, die Wärme gleichmäßig zu verteilen.
 
 „Dein Name“, sagte Oswin plötzlich. „Falkenried. Weißt du, woher?“
 
@@ -374,11 +368,7 @@ Oswin nickte, als sei das eine Antwort, mit der man leben konnte.
 
 Der Erzähler sagte weich: „Ich mochte ihn, lange bevor du wusstest, wer dir zuhört.“
 
-„Das hilft leider gar nicht“, sagte Taron leise.
-
-„Ich weiß.“
-
-Sie legten sich der Reihe nach schlafen: Taron zuerst, dann Oswin, mit Stunden, die nie ganz verlässlich waren, seit sie jenseits der Grenze waren. Taron sank weg und wachte später auf, ohne zu wissen, wie viel Zeit vergangen war. Der Himmel hing wie ein dunkler See zwischen den Ästen, und die kleinen Geräusche um ihn herum schienen ihm alle beim Zählen zu helfen, damit er nicht bei sich selbst ankam.
+Sie schliefen abwechselnd. Taron zuerst, dann Oswin. Seit sie jenseits der alten Grenze waren, fühlten sich die Stunden nicht mehr ganz verlässlich an. Taron sank weg und wachte später auf, ohne zu wissen, ob Minuten oder halbe Nächte vergangen waren. Zwischen den Ästen lag der Himmel dunkel und tief. Ringsum knackte und raschelte es. Taron zählte jedes Geräusch, nur um nicht zählen zu müssen, was in seinem Kopf wartete.
 
 Am Morgen weckte Oswin ihn mit einem kurzen Antippen des Stiefels.
 
