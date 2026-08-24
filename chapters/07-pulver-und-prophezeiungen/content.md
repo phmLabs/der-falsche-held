@@ -344,9 +344,7 @@ Oswin lächelte mit einem Mundwinkel. „Ich hatte einen Leutnant, der hieß auc
 
 „Da wäre ich lieber gestorben.“
 
-Der Erzähler sagte trocken: „Die meisten Könige reagieren auf Kratzen nur, wenn es an ihrem Ruf kratzt.“
-
-„Und du?“, fragte Taron, um von der Stimme wegzukommen. „Hohenklamm. Wie ist das?“
+„Und du?“, fragte Taron. „Hohenklamm. Wie ist das?“
 
 Oswin sah in die flache Flamme. „Wind“, sagte er. „Stein. Wasser, das fällt, wenn es keine Geduld mehr hat. Und Menschen, die glauben, dass eine Klippe trotzdem ein Weg ist, wenn man nur schnell genug läuft. Ich habe dort zum ersten Mal ein Schwert gehalten und gemerkt, dass ich Hände habe, mit denen ich nach etwas greifen kann, das keine Ziege ist.“
 
