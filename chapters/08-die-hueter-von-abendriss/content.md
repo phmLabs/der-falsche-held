@@ -666,11 +666,7 @@ Der Erzähler sagte: „Doch.“
 
 Taron schloss die Augen.
 
-„Wenn du jetzt wieder in Rätseln sprichst, beiße ich in diese Wand.“
-
-„Es wäre nicht dein schlechtester Plan heute.“
-
-„Hilf mir.“
+„Wenn du jetzt wieder in Rätseln sprichst, beiße ich in diese Wand - Hilf mir!“
 
 Der Erzähler antwortete nicht sofort.
 
@@ -717,14 +713,6 @@ Taron sah sofort zum gekrönten Vogel.
 Natürlich tat er das.
 
 Er trug das Zeichen des Hofes auf der Brust, auch wenn es schmutzig war und aussah, als hätte das Königreich es ihm mit schlechtem Gewissen geliehen. Der gekrönte Vogel war größer. Ordentlicher. Wichtiger.
-
-„Nicht der hübsche“, sagte der Erzähler.
-
-Taron hielt inne.
-
-„Welcher hübsche?“
-
-„Eine Frage, die ganze Dynastien zu spät stellen.“
 
 Oswin sah zwischen den Zeichen hin und her. Er sagte nichts, aber sein Blick blieb nicht bei der Krone. Er blieb bei dem kleinen Falken.
 
