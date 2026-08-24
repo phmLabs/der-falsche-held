@@ -44,10 +44,6 @@ Der Ritter deutete auf den Turm.
 
 „Und du hattest dich schon so gut ans Davonlaufen gewöhnt“, sagte der Erzähler.
 
-„Das ist eine Fähigkeit.“
-
-„Unterschätzt, ja.“
-
 Oswin ging voran.
 
 Die Ruinen von Abendriss lagen tiefer, als Taron zuerst geglaubt hatte. Der Boden fiel nicht steil ab, sondern in kleinen Stufen. Zwischen den Mauern wuchsen Büsche, ihre Zweige kratzten an alten Steinen. Hier und da standen noch Bögen ohne Türen. Ein Brunnen lag in der Mitte eines Hofes, aber als Taron hineinblickte, sah er keine Tiefe, sondern eine schmale Treppe ins Dunkel.
@@ -79,14 +75,6 @@ Dann verschwand auch das.
 Die Luft roch nach kaltem Staub und Metall. Nicht nach Verfall. Das hätte Taron fast lieber gehabt. Verfall war ehrlich. Dieser Gang roch, als sei er lange geschlossen gewesen und trotzdem benutzt worden.
 
 „Ich möchte festhalten“, sagte Taron leise, „dass ich gegen unterirdische Teile von Burgen bin.“
-
-Der Erzähler sagte nichts.
-
-„Das war ein guter Satz für dich.“
-
-Nichts.
-
-„Oh, jetzt wirst du still? Jetzt?“
 
 Oswin hob warnend die Hand.
 
