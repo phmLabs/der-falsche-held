@@ -26,18 +26,6 @@ Oder das, was davon übrig war.
 
 Sie ritten langsam weiter. Der Weg senkte sich zwischen Fichten hindurch. Je näher sie kamen, desto mehr Linien erschienen im Gras: Grundmauern, niedrige Steine, halb versunkene Stufen, ein rechteckiger Platz, auf dem nichts mehr stand. Der Turm war nicht allein. Von der alten Burg war er nur der höchste Rest.
 
-„Merlan hat das gesagt“, flüsterte Taron. „Er hat gesagt, Abendriss war eine Burg.“
-
-„Bildung“, sagte der Erzähler, „ist oft eine Sache, die erst später eintrifft und dann so tut, als sei sie rechtzeitig gewesen.“
-
-„Du hast auch nichts gesagt.“
-
-„Ich war dramatisch still.“
-
-„Das ist keine Hilfe.“
-
-„Es war eine andere Dienstleistung.“
-
 Oswin stieg ab.
 
 Das allein reichte, um Taron ebenfalls vom Pferd steigen zu lassen. Wenn Oswin freiwillig zu Fuß ging, gab es dafür entweder einen guten Grund oder einen schlechten in unmittelbarer Nähe.
@@ -74,15 +62,13 @@ Oswin schüttelte den Kopf.
 
 Taron ging einen Schritt zurück. „Wir nehmen nicht die Brunnentreppe.“
 
-Oswin zeigte auf den Turm.
-
 Vom Hof aus war nun zu erkennen, dass der Turm keine Tür hatte. Nicht einmal eine zugemauerte. Er stand auf einer flachen Steinplatte, glatt bis zum Boden. Keine Angeln, kein Griff, kein Spalt.
 
 Taron sah wieder zum Brunnen.
 
 „Natürlich nehmen wir die Brunnentreppe.“
 
-Oswin zog ein kleines Öllämpchen aus seinem Gepäck, entzündete es und reichte Taron eine zweite Lampe. Es war eine sehr vernünftige Handlung, und gerade deshalb erschreckend. Vernünftige Handlungen vor dunklen Treppen waren selten ein gutes Zeichen.
+Oswin zog ein kleines Öllämpchen aus seinem Gepäck, entzündete es und reichte Taron eine zweite Lampe. Es war eine sehr vernünftige Handlung, und gerade deshalb erschreckend. 
 
 Sie stiegen hinab.
 
