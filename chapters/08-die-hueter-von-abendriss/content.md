@@ -884,7 +884,7 @@ Taron tastete mit einer Hand an der Wand entlang. Da war eine Öffnung. Schmal. 
 
 Oswin stieß ihn hindurch.
 
-Taron presste den Schlüssel an die Brust und zwängte sich durch die Öffnung. Stein schabte an seinen Schultern. Sein Atem brannte. Für einen schrecklichen Moment blieb sein Gürtel hängen. Er riss sich los, verlor fast das Messer und dachte voller Zorn, dass er für so etwas eindeutig nicht genug gegessen hatte.
+Taron presste den Schlüssel an die Brust und zwängte sich durch die Öffnung. Stein schabte an seinen Schultern. Sein Atem brannte. Für einen schrecklichen Moment blieb sein Gürtel hängen. Er riss sich los, verlor fast das Messer.
 
 Dann war er draußen.
 
@@ -917,24 +917,6 @@ Dann hob Oswin langsam den Kopf und sah zu Taron.
 „Was?“, fragte Taron.
 
 Oswin zeigte auf Tarons Beutel.
-
-„Nein.“
-
-Oswin zeigte noch einmal.
-
-„Ich weiß, dass du die Rauchkugel meintest.“
-
-„Offensichtlich nicht“, sagte Oswin.
-
-„Ich dachte, sie ist zu wichtig.“
-
-Der Ritter setzte sich auf.
-
-Langsam.
-
-Sehr langsam.
-
-Das war schlechter als schnell.
 
 „Sie ist wichtig“, sagte Oswin. Seine Stimme war rau. „Weil man sie in solchen Augenblicken benutzt.“
 
