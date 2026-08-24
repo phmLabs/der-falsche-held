@@ -266,23 +266,13 @@ Taron hielt Kummer an.
 
 Oswin sah über den Wall hinweg.
 
-„Ja.“
-
-„Die Grenze?“
-
-„Die alte.“
+„Ja. Die alte Grenze“
 
 „Zwischen was und was?“
 
 Oswin antwortete nicht sofort. Das mochte Taron nicht. Bei Oswin bedeutete Schweigen entweder, dass er nachdachte, oder dass die Antwort bereits schlecht genug war, um keine Eile zu brauchen.
 
-„Zwischen Waldkirch“, sagte der Ritter schließlich, „und dem, was vorher nicht Waldkirch war.“
 
-„Das ist erstaunlich ungenau.“
-
-„Grenzen sind oft genauer auf Karten als im Boden.“
-
-Der Erzähler sagte: „Ein Satz, den Könige bedauerlicherweise selten auf ihre Banner sticken lassen.“
 
 Taron betrachtete den Steinwall. Er hatte erwartet, dass eine Grenze sich größer anfühlen würde. Bedeutender. Vielleicht mit einem Torbogen, einem Wappen, einem Mann, der unfreundlich Gebühren verlangte. Stattdessen lag dort nur altes Gestein im Gras.
 
