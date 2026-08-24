@@ -762,8 +762,6 @@ Er war kleiner, als Taron erwartet hatte. Kein goldener Schlüssel mit Zacken wi
 
 Taron nahm ihn nicht sofort.
 
-Das war neu.
-
 Früher hätte er ihn genommen, weil alle ihn angeschrien hätten, sich zu beeilen. Jetzt sah er ihn an und wartete auf den Haken. Auf die Falle. Auf die Stimme. Auf irgendein Zeichen dafür, dass noch etwas fehlte.
 
 Oswin trat neben ihn.
@@ -780,23 +778,11 @@ Also tat er dasselbe, nur schlechter.
 
 Er griff zu.
 
-Der Schlüssel war kalt.
+Der Schlüssel war kalt. Dann war der Saal voller Stimmen. Nicht in seinem Kopf. Überall.
 
-Dann war der Saal voller Stimmen.
-
-Nicht in seinem Kopf. Überall.
-
-„Kein Anspruch.“
-
-„Kein Blut.“
-
-„Kein Orden.“
-
-„Kein Schlüssel.“
+„Kein Anspruch, kein Blut,  kein Orden. Ein Schlüssel.“
 
 Die Hüter standen an den Eingängen des Saals. Sechs, sieben, vielleicht mehr. Masken im letzten Licht. Klingen in den Händen. Manche hatten kurze Bögen. Einer trug einen langen Stab mit einer Hakenklinge. Sie griffen nicht sofort an.
-
-Das war schlimmer.
 
 Taron hielt den Schlüssel fest.
 
@@ -870,25 +856,19 @@ Oswin packte ihn und zog ihn weiter. Sie rollten hinter einen Pfeilerrest. Kling
 
 „Ich weiß.“
 
-„Später war der Ort, an dem du sie aufheben wolltest.“
+„Später war der Ort, für dem du sie aufheben wolltest.“
 
 „Ich weiß!“
 
 Taron steckte die Rauchkugel wieder weg.
 
-Oswin sah ihn an, und in diesem Blick lag eine ganze Rede. Eine sehr kurze Rede, die hauptsächlich aus dem Wort warum bestand und vermutlich mit mehreren Ausrufezeichen endete.
+Oswin sah ihn an, und in diesem Blick lag eine ganze Rede. Eine sehr kurze Rede, die hauptsächlich aus dem Wort "warum" bestand und vermutlich mit mehreren Ausrufezeichen endete.
 
 Taron hob den Menschenschlüssel. „Wenn sie Rauch sehen, schießen sie trotzdem. Wenn wir ins Wasser gehen, vielleicht nicht.“
 
-Oswin blickte zur Zisterne.
+Oswin blickte zur Zisterne. Dann zu Taron. Dann wieder zur Zisterne.
 
-Dann zu Taron.
-
-Dann wieder zur Zisterne.
-
-Er hasste den Plan sichtbar.
-
-Das machte ihn nicht schlechter.
+Er hasste den Plan sichtbar. 
 
 Taron sprang.
 
