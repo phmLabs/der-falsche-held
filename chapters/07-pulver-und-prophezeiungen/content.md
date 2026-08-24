@@ -34,19 +34,11 @@ Merlan legte die Feder beiseite und tippte auf die drei Stellen in der ältesten
 
 „Also zählt er für meinen Auftrag nicht.“
 
-Merlan nahm seine Brille ab, faltete sie zusammen, legte sie vor sich auf den Tisch und sah Taron an.
+Merlan nahm seine Brille ab, klappte sie zusammen, legte sie vor sich auf den Tisch und sah Taron an.
 
-Das war unangenehm. Mit Brille sah Merlan aus wie ein Gelehrter. Ohne Brille sah er aus wie ein Gelehrter, der bereits wusste, wo man begraben lag.
+Das war unangenehm. Mit Brille sah Merlan aus wie ein Gelehrter. Ohne Brille sah er aus wie ein Gelehrter, der bereits wusste, wo man begraben sei wird.
 
 „Eine Prophezeiung“, sagte er, „ist kein Auftrag aus der Vorratskammer.“
-
-„Schade.“
-
-„Man kann nicht sagen: Der dritte Sack Mehl steht im Nachbardorf, also backe ich ohne ihn.“
-
-„Man kann.“
-
-„Man kann auch eine Brücke aus Käse bauen. Die Frage ist nicht, ob man es kann. Die Frage ist, wie lange man darauf stehen möchte.“
 
 Taron sah zu Oswin.
 

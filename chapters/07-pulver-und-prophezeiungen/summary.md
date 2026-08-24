@@ -1,5 +1,5 @@
-- Merlan, Taron und Oswin prüfen drei Prophezeiungsabschriften: Es gibt drei Eidschlüssel, der Zwergenschlüssel fällt für Taron aus, und der Menschenschlüssel ist nur der nächste Schritt; Taron gilt als geeignet, gerade weil er keine Ansprüche oder Herkunft vorweisen kann. 
-- Ein dunkler Fleck verdeckt im Rand-Satz das Wort vor „Freiheit“, wodurch die Deutung („unsere Freiheit“?) unsicher bleibt; der Erzähler scheint mehr zu wissen. 
-- Merlan begleitet sie nicht und wirkt keinen Zauber, gibt Taron stattdessen eine einmalige Rauchkugel als Fluchthilfe und Regeln für den Turm von Abendriss (nichts außer dem Schlüssel nehmen, nichts laut lesen, keine falschen Türen öffnen). 
-- Taron und Oswin reiten nach Westen, passieren markierte, teils beschädigte Grenzsteine und eine unbenutzte, stille Gegend und erreichen den glatten, fensterlosen Turm. 
-- Offen: Was stand wirklich vor „Freiheit“, welche Gefahren und Mechanismen birgt der Turm, und gelingt es Taron mit der Rauchkugel, den Menschenschlüssel zu bergen?
+- In Merlans Haus klären Taron, Merlan und Oswin die Prophezeiungen: Es gibt drei Eidschlüssel, der Menschenschlüssel ist der nächste Schritt, und Taron soll gehen, gerade weil er keine Ansprüche oder Blutlinie hat.
+- Ein befleckter Randvermerk mit „Freiheit“ macht die übliche Lesart unsicher; der Erzähler scheint mehr zu wissen, Merlan behält die gute Abschrift und begleitet sie nicht.
+- Statt eines Zauberschutzes gibt Merlan Taron eine einmalige Rauchkugel als pragmatische Fluchthilfe und strikte Regeln für den Turm (nichts außer dem Schlüssel nehmen, nichts laut lesen, fragliche Türen geschlossen lassen).
+- Taron und Oswin reiten westwärts durch verlassene Grenzsteine und erreichen den dunklen, fensterlosen Turm von Abendriss.
+- Offen bleibt: Welches Wort stand vor „Freiheit“ und was bedeutet die Prophezeiung tatsächlich; welche Gefahren birgt der Turm und gelingt Taron der Menschenschlüssel; was weiß der Erzähler über den Fleck; wird die Rauchkugel über Flucht oder Scheitern entscheiden?
