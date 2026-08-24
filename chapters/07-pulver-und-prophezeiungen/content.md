@@ -372,7 +372,7 @@ Sie schliefen abwechselnd. Taron zuerst, dann Oswin. Seit sie jenseits der alten
 
 Am Morgen weckte Oswin ihn mit einem kurzen Antippen des Stiefels.
 
-Sie aßen trockenes Brot, das sich anfühlte, als wolle es in der nächsten Stunde wieder Brot werden, nur härter. Taron gab Kummer ein Stück Apfel, befühlte im Beutel das kleine, harte Lederpäckchen mit der Rauchkugel, und seine Finger entspannten sich ein wenig, nur weil etwas darin war, das wie ein Plan klang.
+Sie aßen trockenes Brot. Taron gab Kummer ein Stück Apfel, befühlte im Beutel das kleine, harte Lederpäckchen mit der Rauchkugel, und seine Finger entspannten sich ein wenig, nur weil etwas darin war, das wie ein Plan klang.
 
 Sie ritten weiter.
 
@@ -382,7 +382,7 @@ Der zweite Tag brachte mehr vom ersten, nur länger. Der Weg blieb schmal, die H
 
 „Lange genug, dass niemand mehr fragt. Kurz genug, dass noch jemand antworten könnte.“
 
-Gegen Mittag hielten sie am Rand eines Baches, der unter mannshohen Schilfstängeln kroch. Sie tranken, ließen die Pferde saufen und wechselten die Sättel auf die entgegengesetzte Seite der Bäume, nur um sie nicht dort liegen zu lassen, wo jemand sie beim ersten Blick finden würde.
+Gegen Mittag hielten sie am Rand eines Baches, der unter mannshohem Schilf hindurchlief. Sie tranken, ließen die Pferde trinken und führten sie danach auf die andere Seite der Bäume, weg vom offenen Ufer, damit man sie vom Weg aus nicht sofort sah.
 
 „Geschichten“, sagte Oswin wieder, als sie weiterritten. „Erzähl mir eine, die nicht von Ziegen ist.“
 
@@ -393,10 +393,6 @@ Taron zählte innerlich bis fünf, dann bis sieben. „Es gibt eine Kapelle in W
 „Er hat mir später gesagt, ich sei zu leicht zu finden, wenn ich versuche, unsichtbar zu sein. Und dass das für die meisten Menschen gelte.“
 
 Oswin nickte. „Er hat nicht ganz Unrecht.“
-
-„Ich hasse es, wenn er nicht ganz Unrecht hat.“
-
-„Das macht ihn gefährlich.“
 
 „Was ihn wirklich gefährlich macht, ist, dass er möchte, dass alles einen Platz hat. Und dass er die Plätze aussucht.“
 
