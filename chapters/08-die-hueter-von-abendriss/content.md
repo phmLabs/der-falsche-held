@@ -476,8 +476,6 @@ Taron wünschte, Oswin würde in ganzen Sätzen schweigen.
 
 „Wie viele seid ihr?“, fragte Taron.
 
-Der Hüter sah ihn an.
-
 „Genug.“
 
 Der Hüter versuchte sich aufzusetzen, schaffte es nicht und blieb gegen die Wand gelehnt. Unter der gesprungenen Maske lief sein Atem schnell. Trotzdem klang er nicht panisch. Er klang wie jemand, der eine Lehre wiederholte, die ihm so früh beigebracht worden war, dass sie tiefer saß als Schmerz.
