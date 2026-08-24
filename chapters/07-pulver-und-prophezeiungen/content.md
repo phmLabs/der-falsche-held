@@ -476,22 +476,6 @@ Taron drehte das kleine Lederpäckchen mit der Rauchkugel noch einmal zwischen d
 
 „Ich will nicht zwischen dich und den Schlaf treten“, sagte der Erzähler.
 
-„Das ist neu.“
-
-„Das ist schwer.“
-
-„Morgen redest du wieder?“
-
-„Wenn du willst.“
-
-„Ich will, dass du es nicht erst tust, wenn du es für nötig hältst.“
-
-„Ich will, dass du mich nicht erst hörst, wenn du mich brauchst.“
-
-Taron schloss die Augen. „Das ist nicht fair.“
-
-„Nein.“
-
 Oswin saß wach, wie Wachen das tun, die nicht mit Geschichten verwechseln, was wach sein heißt. Taron schaffte es, für eine Weile zu vergessen, dass der Turm existierte. Als er von Oswins Hand an seiner Schulter geweckt wurde, war der Himmel blasser, als wolle er gleich erklären, dass er heute nichts Dramatisches vorhabe.
 
 „Deine Reihe“, sagte Oswin. Sein Gesicht war ruhig. Die Müdigkeit stand darin wie ein vertrauter Gast.
