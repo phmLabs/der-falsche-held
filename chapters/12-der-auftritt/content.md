@@ -1,5 +1,3 @@
-# Kapitel 12: Der Auftritt
-
 Grauwehr lag noch im Dunkeln, als sie aufbrachen.
 
 Das war Absicht. Taron hatte in den letzten Tagen gelernt, dass Menschen weniger Fragen stellten, wenn sie noch nicht gefrühstückt hatten. Leider galt das nur für vernünftige Menschen. Torwachen, Priester, Wirte und Leute mit Gerüchten waren von dieser Regel offenbar ausgenommen.

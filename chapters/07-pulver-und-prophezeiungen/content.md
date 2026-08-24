@@ -2,27 +2,13 @@ Der Nachmittag begann mit einer Feder, drei Abschriften und Tarons sehr ernstem 
 
 Merlan schrieb nicht sofort. Er ordnete zuerst die Pergamente neu. Nicht, weil sie unordentlich gewesen wären. Nichts in diesem Haus war unordentlich. Merlan ordnete Dinge offenbar auch dann, wenn sie bereits ordentlich waren, nur um sicherzugehen, dass kein Zufall sich zu wohl fühlte.
 
-Taron saß. Nicht freiwillig. Irgendwann hatte sein Körper entschieden, dass Stolz in einem stehenden Zustand mehr Kraft kostete als in einem sitzenden, und Taron hatte keine Kraft übrig, die nicht bereits für Schmerz, Verwirrung oder den Wunsch nach einem sehr kleinen Leben im Stall reserviert war.
+Taron saß. Nicht freiwillig. Irgendwann hatte sein Körper entschieden, dass Stolz in einem stehenden Zustand mehr Kraft kostete als in einem sitzenden, und Taron hatte keine Kraft übrig, die nicht bereits für Schmerz, Verwirrung oder den Wunsch nach seinem sehr kleinen Leben im Stall reserviert war.
 
-Oswin saß neben ihm, trank den Tee und nickte gelegentlich. Der Tee roch nach Minze und nassem Stein. 
+Oswin saß neben ihm, trank den Tee.
 
 „Also“, sagte Taron. „Wenn wir alles weglassen, was mir nicht gefällt, bleibt der Menschenschlüssel.“
 
 Merlan tauchte die Feder in Tinte.
-
-„Eine verbreitete Methode der Auslegung.“
-
-„Gut.“
-
-„Bei Königen.“
-
-„Weniger gut.“
-
-„Und bei Kindern, die aus zerbrochenen Töpfen nur die Stücke behalten, auf denen noch Kuchen klebt.“
-
-„Ich habe Hunger. Das macht den Vergleich unfair.“
-
-„Vergleiche sind selten fair. Sonst würden sie weniger Spaß machen.“
 
 Der Erzähler seufzte zufrieden. „Endlich ein Haus, in dem Bildung nicht völlig verschwendet wird.“
 
