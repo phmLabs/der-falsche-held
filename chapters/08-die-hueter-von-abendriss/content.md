@@ -650,11 +650,7 @@ Oswin deutete auf eine Treppe am Rand.
 
 Sie schlichen hinunter.
 
-Eine Stufe.
-
-Zwei.
-
-Drei.
+Eine Stufe. Zwei. Drei.
 
 Die Wand vor ihnen war glatt. Keine Fuge. Kein Griff. Kein Zeichen.
 
