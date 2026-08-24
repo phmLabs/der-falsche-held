@@ -596,9 +596,9 @@ Der Hüter sah Taron an, als hätte er zwar die Worte nicht gehört, aber die K�
 
 „Und wenn ich richtig bin?“
 
-„Dann fürchte ich, dass wir dich durchlassen müssen.“
+„Dann wartet etwas schlimmeres auf dich.“
 
-Taron hätte gern gefragt, wovor genau der Mann sich fürchtete. Die Schritte gaben ihm keine Zeit.
+Taron hätte gerne gefragt, was auf ihn warten würde. Die Schritte gaben ihm keine Zeit.
 
 „Wie kommen wir hin?“
 
@@ -607,34 +607,6 @@ Taron hätte gern gefragt, wovor genau der Mann sich fürchtete. Die Schritte ga
 „Welches Zeichen?“
 
 Der Hüter sah auf Tarons Brust, auf das aufgenähte Zeichen des Hofes, das inzwischen schmutzig, schief und absolut nicht königlich aussah.
-
-„Nicht das.“
-
-Taron seufzte.
-
-„Natürlich nicht das.“
-
-„Das Zeichen ohne Anspruch.“
-
-„Ich hasse diese Art von Wegbeschreibung.“
-
-Oswin packte Taron an der Schulter und zog ihn hoch. Die Schritte kamen näher.
-
-Taron sah auf den Hüter hinab. „Lauf.“
-
-Der Mann bewegte sich nicht.
-
-„Oder kriech. Mir egal. Aber geh.“
-
-„Sie werden mich fragen.“
-
-„Dann sag, du hast uns aufgehalten.“
-
-„Habe ich nicht.“
-
-„Dann lüg besser.“
-
-Der Hüter starrte ihn an, und für einen sehr kurzen Moment sah Taron unter der Maske den Anfang eines Lächelns. Es verschwand sofort.
 
 „Kein Anspruch“, sagte der Hüter.
 
