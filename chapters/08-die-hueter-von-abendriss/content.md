@@ -752,15 +752,9 @@ Von der Tür her kamen Stimmen. Näher.
 
 Taron legte die Hand auf den Falken ohne Krone.
 
-„Ich habe keinen Anspruch“, sagte er. „Aber wenn jemand aus meinem Namen einmal etwas hierhergebracht hat, das nicht hätte bleiben dürfen, dann trage ich wenigstens den Schaden weiter.“
+„Ich habe keinen Anspruch“, sagte er.
 
-Ein leises Klicken kam aus der Wand.
-
-Der Erzähler sagte nichts Lustiges.
-
-Das war beinahe ein Beweis.
-
-Die Wand öffnete sich nicht wie eine Tür. Ein schmales Stück Stein sank ein, kaum breiter als Tarons Unterarm. Dahinter lag eine Nische.
+Ein leises Klicken kam aus der Wand. Sie öffnete sich nicht wie eine Tür. Ein schmales Stück Stein sank ein, kaum breiter als Tarons Unterarm. Dahinter lag eine Nische.
 
 In der Nische lag der Menschenschlüssel.
 
