@@ -168,27 +168,13 @@ Merlan reichte ihm das Kästchen nicht, aber er drehte es so, dass der Ritter di
 
 Oswins Gesicht veränderte sich. Nur wenig. Die Müdigkeit blieb, der Kater vermutlich auch. Aber darunter trat etwas hervor, das Taron schon auf der Straße gesehen hatte: der Teil von Oswin, der Spuren las, Abstände maß und entschied, bevor andere überhaupt verstanden hatten, dass etwas begonnen hatte.
 
-„Rauchmittel“, sagte Oswin.
-
-Es waren seit langem seine ersten zwei Worte.
-
-Taron sah ihn an.
-
-„Kein Zauber?“
-
-Oswin schüttelte den Kopf.
-
-Taron sah zu Merlan.
-
-Merlan sagte nichts.
-
-„Aber hilfreich?“, fragte Taron.
+„Hilfreich?“, fragte Taron.
 
 Oswin nickte. Diesmal langsam.
 
 „Wie hilfreich?“
 
-Oswin sah auf die Kugel. „Ich habe Männer überleben sehen, weil jemand im richtigen Augenblick Rauch hatte. Und ich habe Männer sterben sehen, weil niemand welchen hatte.“
+Oswin sah auf die Kugel. „Ich habe Männer überleben sehen, weil jemand im richtigen Augenblick so etwas hatte. Und ich habe Männer sterben sehen, weil der Feind welchen hatte.“
 
 Taron schwieg.
 

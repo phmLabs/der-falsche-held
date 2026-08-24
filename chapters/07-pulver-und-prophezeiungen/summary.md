@@ -1,5 +1,7 @@
-- Merlan prüft die drei Abschriften: Die Prophezeiung nennt drei Eidschlüssel, der Menschenschlüssel ist nur der nächste Schritt, und Taron soll ihn holen, gerade weil er keiner Linie/Ordnung angehört und nichts beanspruchen kann. 
-- Ein Randvermerk mit „Freiheit“ ist wohl verfälscht, da davor ein ausgelassenes Wort stand, was die gängige Deutung infrage stellt. 
-- Merlan begleitet sie nicht, gibt stattdessen eine einmalig nutzbare Rauchkugel als Fluchthilfe; Oswin bestätigt deren Wirksamkeit aus den Kriegen, und Merlan gibt strenge Regeln für den Turm von Abendriss. 
-- Taron und Oswin reiten los, finden verlassene Grenzsteine und Wege und erreichen schließlich den fenster- und torlosen Turm. 
-- Offen bleibt, welches Wort vor „Freiheit“ fehlt, was sie im Turm erwartet und wie genau der Menschenschlüssel zu erlangen ist.
+- Merlan analysiert drei Abschriften der Prophezeiung: Es gibt drei Eidschlüssel, einer liegt bei den Zwergen; Taron soll den Menschenschlüssel suchen, gerade weil er keine Abstammung, Ansprüche oder Orden hat. 
+- Ein Randvermerk ist teilweise verdeckt: In Waldkirch liest man „Die Schlüssel bringen Freiheit“, doch vor „Freiheit“ fehlte ein Wort, was auf eine mögliche Fehlinterpretation hindeutet. 
+- Merlan begleitet sie nicht, gibt Taron aber eine einmalige Rauchkugel („werfen und laufen“) und Regeln für den Turm von Abendriss: nichts außer dem Schlüssel nehmen, nichts laut lesen, keine falschen Türen öffnen. 
+- Taron und Oswin reiten los; unterwegs markieren Grenzsteine den Bereich des Menschenschlüssels, die Gegend wirkt verlassen und unheimlich. 
+- Sie erreichen den glatten, fensterlosen Turm in einer Senke ohne sichtbaren Eingang.
+
+Offen bleibt: Welches Wort stand vor „Freiheit“ und was bedeutet die Prophezeiung korrekt? Wie gelangt man in den Turm und wo liegt der Menschenschlüssel? Reichen Rauchkugel und Merlans Regeln gegen die unbekannten Gefahren?
