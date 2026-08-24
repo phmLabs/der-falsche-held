@@ -1,5 +1,5 @@
-- Merlan prüft drei Abschriften der Prophezeiung: Es gibt drei Eidschlüssel (einer bei den Zwergen), und als nächster Schritt gilt der Menschenschlüssel; Taron sei gerade wegen fehlender Ansprüche/Blutlinie/Ordenszugehörigkeit dafür brauchbar. 
-- Ein am Rand fleckiger Satz ist verstümmelt: In Waldkirch liest man „Die Schlüssel bringen Freiheit“, doch vor „Freiheit“ fehlt ein Wort. 
-- Merlan begleitet sie nicht, übergibt Taron aber eine einmal einsetzbare Rauchkugel („Schleier der entschlossenen Entfernung“) zum Fliehen und gibt strikte Regeln für den Turm von Abendriss (nur den Schlüssel nehmen, nichts laut lesen, keine „falschen“ Türen öffnen). 
-- Taron und Oswin reiten über die alte Grenze in stilles, verlassenes Land, lagern vorsichtig ohne Feuer, tauschen kurze Geschichten und erkennen, dass Abendriss eine ganze Burgruine ist, nicht nur ein Turm. 
-- Bei Tagesanbruch bereiten sie den Aufbruch zum Turm vor; offen bleiben das fehlende Wort der Prophezeiung, was sie im Turm erwartet und ob der Menschenschlüssel dort liegt.
+- In Merlans Haus klären Merlan, Taron und Oswin: Die Prophezeiung meint drei Eidschlüssel, der „Menschenschlüssel“ ist nur der nächste Schritt, und Taron eignet sich gerade, weil er keiner Linie/Orden/Ansprüche hat; zudem fehlt vor „Freiheit“ ein Wort am Rand, was die gängige Lesart wohl verfälscht. 
+- Merlan begleitet sie nicht, gibt Taron aber eine einmalige Rauchkugel („Schleier der entschlossenen Entfernung“) und strenge Regeln für den Turm von Abendriss (nichts mitnehmen außer dem Schlüssel, nichts laut lesen, keine falschen Türen öffnen). 
+- Taron und Oswin reiten über eine alte Grenze in stille, verlassene Lande, finden keine frischen Spuren, lagern vorsichtig ohne Feuer und tauschen kurz Lebensgeschichten. 
+- Am Abend erkennen sie, dass Abendriss mehr als nur ein Turm ist: Ruinen einer Burg mit einem glatten, dunklen Turm ohne sichtbare Zugänge; sie warten bis zum Morgen für den Anmarsch. 
+- Offenes: Welches fehlende Wort steht vor „Freiheit“ und ändert die Prophezeiung? Welche Gefahren und Mechanismen birgt der Turm, wo liegt der Menschenschlüssel, und wird die Rauchkugel im Ernstfall reichen?

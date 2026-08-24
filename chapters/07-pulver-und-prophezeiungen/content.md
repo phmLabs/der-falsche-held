@@ -436,13 +436,13 @@ Taron legte die Hand auf seinen Beutel und spürte unter Leder die kleine harte 
 
 Sie ritten nicht näher heran.
 
-Die Dämmerung fiel nicht; sie kroch. Erst legte sie ein Grau über die Steine, dann nahm sie dem Wald das Grün und gab ihm dafür Tiefe. Oswin führte Sternfall vom Weg, Taron folgte, und sie suchten keinen Hain diesmal, sondern eine Senke hinter einer bemoosten Böschung, die den Blick auf den Turm unterbrach. Nah genug, um ihn nicht aus den Augen zu verlieren. Fern genug, um nicht das Gefühl zu haben, von seinem Schatten eine Unterschrift verlangen zu müssen.
+Die Dämmerung fiel nicht; sie kroch. Erst legte sie ein Grau über die Steine, dann nahm sie dem Wald das Grün und gab ihm dafür Tiefe. Oswin führte Sternfall vom Weg, Taron folgte, und sie suchten keinen Hain diesmal, sondern eine Senke hinter einer bemoosten Böschung, die den Blick auf den Turm unterbrach. Nah genug, um ihn nicht aus den Augen zu verlieren. Fern genug, um nicht das Gefühl zu haben, von seinem Schatten gesehen zu werden.
 
 „Hier“, sagte Oswin. „Ohne Feuer.“
 
 „Ich dachte, ein kleines—“
 
-„Kein Feuer.“ Oswins Stimme war nicht hart. Sie war so fest wie ein Riemen.
+„Kein Feuer.“ Oswins Stimme war nicht hart. Sie war fest.
 
 Sie banden die Pferde an zwei Haselstämmen fest, lösten die Sättel, ließen die Tiere trinken und fressen. Taron legte die Decken so, dass sie den Boden nicht berührten, den Oswin zuvor mit einem Ast gesäubert hatte. Es war Routine, die aus anderen Nächten in andere Rollen übersetzte, ohne zu fragen, ob sie dafür bestimmt war.
 
@@ -454,15 +454,11 @@ Sie banden die Pferde an zwei Haselstämmen fest, lösten die Sättel, ließen d
 
 „Alles, was nicht Wind, eigene Angst oder Pferd ist.“
 
-„Das ist viel.“
-
-„Ja.“
-
 Sie aßen im Halbdunkel. Brot, das seine besten Tage hinter sich hatte. Ein letztes Stück Käse, das Oswin mit der Klinge sauber teilte, als habe die Gerechtigkeit davon abgehangen. Taron kaute und starrte in die Richtung, in der er den Turm wusste, auch wenn die Böschung ihn verbarg.
 
 „Was, wenn hinter einer Tür wirklich der Schlüssel liegt?“, fragte er, mehr zu sich, als zu Oswin.
 
-„Dann machst du sie auf, ohne sie zu mögen“, sagte Oswin. „Und wieder zu, bevor sie auf die Idee kommt, dir Fragen zu stellen.“
+„Dann machst du sie auf.“, sagte Oswin. „Und wieder zu“
 
 Der Erzähler sagte: „Du hast eine Kugel, die dich vom Antworten befreit. Das ist mehr, als die meisten Menschen behaupten können.“
 
