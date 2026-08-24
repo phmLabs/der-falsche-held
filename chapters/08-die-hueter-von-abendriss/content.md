@@ -24,10 +24,6 @@ Eine Mauer.
 
 Oder das, was davon übrig war.
 
-„Oh“, sagte Taron.
-
-Oswin zog die Brauen zusammen.
-
 Sie ritten langsam weiter. Der Weg senkte sich zwischen Fichten hindurch. Je näher sie kamen, desto mehr Linien erschienen im Gras: Grundmauern, niedrige Steine, halb versunkene Stufen, ein rechteckiger Platz, auf dem nichts mehr stand. Der Turm war nicht allein. Von der alten Burg war er nur der höchste Rest.
 
 „Merlan hat das gesagt“, flüsterte Taron. „Er hat gesagt, Abendriss war eine Burg.“
