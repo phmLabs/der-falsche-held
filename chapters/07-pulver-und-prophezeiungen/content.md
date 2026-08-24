@@ -272,7 +272,7 @@ Oswin sah über den Wall hinweg.
 
 Oswin antwortete nicht sofort. Das mochte Taron nicht. Bei Oswin bedeutete Schweigen entweder, dass er nachdachte, oder dass die Antwort bereits schlecht genug war, um keine Eile zu brauchen.
 
-
+"Zwischen dem, was du kennst und etwas anderem".
 
 Taron betrachtete den Steinwall. Er hatte erwartet, dass eine Grenze sich größer anfühlen würde. Bedeutender. Vielleicht mit einem Torbogen, einem Wappen, einem Mann, der unfreundlich Gebühren verlangte. Stattdessen lag dort nur altes Gestein im Gras.
 
@@ -282,12 +282,6 @@ Gerade das machte es schlimmer.
 
 „Aus dem Teil, der sich noch sicher ist, eins zu sein“, sagte Oswin.
 
-Taron sah ihn an.
-
-„Das war ein Satz mit sehr vielen Folgen.“
-
-„Ja.“
-
 „Ich vermisse die Zeit, in der Wege einfach irgendwohin führten.“
 
 „Das taten sie nie“, sagte der Erzähler. „Du hattest nur weniger Anlass, es persönlich zu nehmen.“
@@ -296,7 +290,7 @@ Sie überschritten die Grenze.
 
 Es geschah nichts.
 
-Kein Donner. Kein Flackern. Kein alter Eid, der aus dem Boden stieg und höflich um eine Unterschrift bat. Kummer setzte einen Huf über den Wall, dann den anderen, und fand die gesamte Angelegenheit offenbar unter seiner Würde.
+Kein Donner. Kein Flackern. Kein alter Eid, der aus dem Boden stieg und höflich um eine Unterschrift bat. Kummer setzte einen Huf über den Wall, dann den anderen.
 
 Taron war fast enttäuscht.
 
@@ -316,23 +310,11 @@ Der Ritter ging ein Stück voraus und untersuchte den Boden. Dann die Büsche. D
 
 „Niemand kommt hier entlang.“
 
-„Nein.“
+„Nein. Das ist wegen des Turms.“
 
-„Das ist wegen des Turms?“
+Taron rieb sich den Nacken. „Vielleicht ist der Turm verlassen.“
 
-Oswin sah zu den Hügeln vor ihnen.
-
-„Vielleicht wegen allem.“
-
-Der Erzähler sagte: „Eine Antwort, die so breit ist, dass man darunter bequem Schutz suchen könnte, wenn sie weniger unangenehm wäre.“
-
-Taron rieb sich den Nacken.
-
-„Vielleicht ist der Turm verlassen.“
-
-Oswin sah ihn an.
-
-„Ich weiß“, sagte Taron. „Das war ein Versuch.“
+Oswin sah ihn an. „Ich weiß“, sagte Taron. „Das war ein Versuch.“
 
 „Ein erkennbarer.“
 
