@@ -30,7 +30,13 @@ Oswin stieg ab.
 
 Das allein reichte, um Taron ebenfalls vom Pferd steigen zu lassen. Wenn Oswin freiwillig zu Fuß ging, gab es dafür entweder einen guten Grund oder einen schlechten in unmittelbarer Nähe.
 
-Sie banden Kummer und Sternfall in einer Senke zwischen zwei Fichten an. Oswin nahm sein Schwert, zog es aber nicht. Taron zog sein eigenes Messer und fühlte sich damit sofort wie jemand, der versucht hatte, einen Sturm mit Besteck zu beeindrucken.
+Sie banden Kummer und Sternfall in einer Senke zwischen zwei Fichten an. Oswin nahm sein Schwert, zog es aber nicht.
+
+Taron zog sein eigenes Messer.
+
+Es war kein Heldending. Es hatte mehr Stricke als Feinde geschnitten, mehr Äpfel geschält als Blut gesehen und einmal einen besonders widerspenstigen Hufriemen gerettet. Taron trug es seit Jahren am Gürtel, weil Menschen, die in Ställen arbeiteten, irgendwann lernten, dass immer etwas klemmte, riss oder nicht freiwillig aufging.
+
+Neben Oswins Schwert sah es aus wie eine schlechte Entschuldigung.
 
 „Ich kann zurückgehen und die Pferde bewachen“, sagte er.
 
@@ -138,53 +144,33 @@ Oswin schob das Steinchen noch ein Stück weiter.
 
 „Ist das klug?“
 
-Der Ritter zuckte mit einer Schulter.
+Der Ritter zuckte mit einer Schulter. Er erhob sich und wählte den mittleren Gang.
 
-„Das war kein Ja.“
+Sie gingen weiter. Hinter ihnen kam erneut das Klopfen. Diesmal brach es mitten im Muster ab. Taron fand das sehr befriedigend und sehr beunruhigend zugleich.
 
-Oswin erhob sich und wählte den mittleren Gang.
-
-„Das war wirklich kein Ja.“
-
-Sie gingen weiter. Hinter ihnen kam erneut das Klopfen. Diesmal brach es mitten im Muster ab.
-
-Taron fand das sehr befriedigend und sehr beunruhigend zugleich.
-
-Der mittlere Gang führte zu einer niedrigen Kammer. An den Wänden waren Nischen eingelassen. In jeder lag eine Maske.
+Der mittlere Gang führte zu einer niedrigen Kammer. An den Wänden waren Nischen eingelassen. In jeder lag ein Gesicht.
 
 Taron blieb im Eingang stehen.
 
 Es waren Dutzende.
 
-Manche aus Leder, manche aus Holz, manche mit dünnen Metallstreifen verstärkt. Keine war gleich. Einige hatten lange Nasenstücke, andere breite Stirnplatten, andere nur schmale Schlitze für die Augen. Keine wirkte wie Schmuck. Sie wirkten benutzt. Repariert. Weitergegeben.
+Manche waren aus Leder, manche aus Holz, manche mit dünnen Metallstreifen verstärkt. Keine war gleich. Einige hatten lange Nasenstücke, andere breite Stirnplatten, andere nur schmale Schlitze für die Augen. Keine wirkte wie Schmuck. Sie wirkten benutzt. Repariert. Weitergegeben.
 
-Unter mehreren Masken lagen Namen in die Wand gekratzt.
+Unter mehreren von ihnen waren Zeichen in die Wand geritzt. Keine Worte, die Taron lesen konnte. Nur Haken, Linien und kleine Kreise, zu sorgfältig für Zufall und zu fremd, um freundlich zu sein.
 
-Taron las die wenigen, die er entziffern konnte.
+„Das ist keine Rüstkammer“, sagte er.
 
-Sera.
-
-Othin.
-
-Marel.
-
-Ben.
-
-Das letzte war so gewöhnlich, dass es ihm einen Stich gab.
-
-„Das sind keine Monsterkammern“, sagte er.
-
-„Nein“, sagte der Erzähler.
+„Eine mutige Feststellung“, sagte der Erzähler.
 
 Oswin stand sehr still.
 
-Taron sah zu ihm. Der Ritter betrachtete die Masken nicht wie ein Mann, der etwas Unheimliches sah. Er betrachtete sie wie ein Mann, der eine Kaserne gesehen hatte, nachdem der Krieg weitergezogen war.
+Taron sah zu ihm. Der Ritter betrachtete die falschen Gesichter nicht wie ein Mann, der etwas Unheimliches sah. Er betrachtete sie wie ein Mann, der eine Kaserne gesehen hatte, nachdem der Krieg weitergezogen war.
 
-„Die geben sie weiter“, sagte Taron.
+„Die benutzen sie“, sagte Taron.
 
-Oswin sah auf die Namen unter den Masken.
+Oswin sah auf die Zeichen darunter.
 
-„Väter an Söhne. Mütter an Töchter. Wer auch immer hier bleibt.“
+„Immer wieder.“
 
 Der Erzähler sagte: „Eide sind oft billiger als Mauern. Darum halten sie manchmal länger.“
 
@@ -210,7 +196,7 @@ Taron trat einen Schritt zurück.
 
 Oswin deutete zurück.
 
-Sie verließen die Maskenkammer durch denselben Eingang, durch den sie gekommen waren. Hinter ihnen blieb der Staub unberührt.
+Sie verließen die Kammer durch denselben Eingang, durch den sie gekommen waren. Hinter ihnen blieb der Staub unberührt.
 
 Der Gang wurde breiter. Links öffnete sich ein Raum, in dem alte Holzgestelle standen. Keine Waffen mehr. Nur Halterungen, Riemenreste, dunkle Flecken auf Stein. Rechts führte eine Treppe hinauf, aber die oberen Stufen waren eingestürzt. Geradeaus hing ein schwarzer Vorhang aus schwerem Stoff.
 
@@ -270,13 +256,13 @@ Das Flüstern kam erneut. Diesmal von rechts, näher.
 
 Taron hob die Lampe höher. Der Schein reichte bis zu einer Wand, zu einem Riss darin, zu nichts.
 
-Dann stand dort eine Maske.
+Dann stand dort ein Gesicht.
 
-Sie war lang und schmal, aus dunklem Leder und dünnen Metallstreifen. Zwei Augenschlitze. Ein vorgezogener Mund ohne Öffnung. Keine Hörner, keine Zähne, nichts Übertriebenes. Gerade das machte sie schlimmer. Sie war nicht wie ein Monster gemacht, das schreien wollte. Sie war wie ein Mensch gemacht, der keines mehr sein wollte.
+Es war lang und schmal, aus dunklem Leder und dünnen Metallstreifen. Zwei Augenschlitze. Ein vorgezogener Mund ohne Öffnung. Keine Hörner, keine Zähne, nichts Übertriebenes. Gerade das machte es schlimmer. Es war nicht wie ein Monster gemacht, das schreien wollte. Es war wie etwas gemacht, das keinen Schrei brauchte.
 
 Taron blinzelte.
 
-Die Maske war weg.
+Das Gesicht war weg.
 
 „Ich habe etwas gesehen.“
 
@@ -296,17 +282,17 @@ Gerade genug.
 
 Oswin stieß Taron zurück.
 
-Etwas schoss aus dem Stoff. Kein Tier. Kein Schatten. Ein Mensch in grauer Kleidung, die eng am Körper lag, mit einer Maske über dem Gesicht und einer kurzen Klinge in der Hand. Oswin fing den ersten Schlag mit dem Schwert ab, drehte sich seitlich und trat den Angreifer gegen die Wand.
+Etwas schoss aus dem Stoff. Kein Tier. Kein Schatten. Eine graue Gestalt, eng am Körper gewickelt, mit dem falschen Gesicht aus der Kammer und einer kurzen Klinge in der Hand. Oswin fing den ersten Schlag mit dem Schwert ab, drehte sich seitlich und trat die Gestalt gegen die Wand.
 
-Ein zweiter kam von rechts.
+Eine zweite kam von rechts.
 
-Taron sah nur Bewegung. Grau, Leder, Metall. Dann war der Mann vor ihm. Taron hob das Messer, viel zu spät. Der Angreifer schlug ihm die Lampe aus der Hand.
+Taron sah nur Bewegung. Grau, Leder, Metall. Dann war die zweite Gestalt vor ihm. Taron hob das Messer, viel zu spät. Sie schlug ihm die Lampe aus der Hand.
 
 Der Raum wurde dunkel.
 
 Sehr dunkel. Merlan hätte das vermutlich besser formuliert und dabei niemandem geholfen.
 
-Oswins Schwert traf etwas Hartes. Ein Mann keuchte. Taron stolperte rückwärts, stieß gegen ein Holzgestell und bekam Holzspäne in den Rücken. Eine Hand packte seinen Ärmel. Er riss sich los, schlug mit dem Messer, traf Stoff, vielleicht Haut, vielleicht gar nichts.
+Oswins Schwert traf etwas Hartes. Etwas keuchte. Taron stolperte rückwärts, stieß gegen ein Holzgestell und bekam Holzspäne in den Rücken. Eine Hand packte seinen Ärmel. Er riss sich los, schlug mit dem Messer, traf Stoff, vielleicht Haut, vielleicht gar nichts.
 
 „Runter“, sagte Oswin.
 
@@ -316,19 +302,19 @@ Taron ließ sich fallen.
 
 Über ihm zischte eine Klinge durch die Luft. Oswin war schon da. Er bewegte sich anders als sonst. Kein taumelnder Ritter, kein schöner Betrunkener, kein Mann mit zu viel Vergangenheit im Blick. Er war plötzlich gerade, schnell und erschreckend nüchtern. Sein Schwert schlug einmal, zweimal. Ein Körper fiel.
 
-Der zweite Angreifer wich zurück und verschwand hinter dem Vorhang.
+Die zweite Gestalt wich zurück und verschwand hinter dem Vorhang.
 
 Stille.
 
 Taron hörte seinen Atem. Dann Oswins. Dann ein drittes Geräusch.
 
-Ein Mensch lag am Boden und versuchte zu atmen.
+Etwas lag am Boden und versuchte zu atmen.
 
 Oswin trat näher. Taron fand seine Lampe. Sie war ausgegangen, aber die von Oswin brannte noch, umgekippt, mit kleiner Flamme hinter Glas. Ihr Licht reichte gerade bis zum Körper.
 
-Der Angreifer trug eine Maske.
+Was Taron für ein Gesicht gehalten hatte, war keines.
 
-Oswin kniete sich hin und zog sie ab.
+Oswin kniete sich hin, griff an den Rand des dunklen Leders und zog es ab.
 
 Darunter war kein Maul.
 
