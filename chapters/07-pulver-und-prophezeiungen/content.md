@@ -254,73 +254,135 @@ Die Freie Burg blieb hinter ihnen zurück, ordentlich, laut und voller Menschen,
 
 Die Straße nach Westen wurde schmaler.
 
-Am Anfang war sie noch eine richtige Straße, mit Radspuren, Pferdemist und jenen kleinen Steinen, die sich zuverlässig unter Hufe legten, wenn ein Reiter ohnehin schlechte Laune hatte. Dann wurde sie zu einem Weg. Dann zu einer Behauptung. Links und rechts wuchsen niedrige Büsche, dahinter Felder, die nicht mehr besonders gepflegt wirkten. Je weiter sie ritten, desto seltener wurden die Häuser.
+Am Anfang war sie noch eine richtige Straße, mit Radspuren, Pferdemist und jenen kleinen Steinen, die sich zuverlässig unter Hufe legten, wenn ein Reiter ohnehin schlechte Laune hatte. Dann wurde sie zu einem Weg. Dann zu einer Entscheidung, die vor langer Zeit jemand getroffen und seitdem niemand mehr gepflegt hatte. Links und rechts wuchsen niedrige Büsche, dahinter Felder, die nicht mehr besonders gepflegt wirkten. Je weiter sie ritten, desto seltener wurden die Häuser.
 
-Am späten Nachmittag erreichten sie den ersten Grenzstein.
+Am späten Nachmittag erreichten sie die alte Grenze.
 
-Er stand am Rand des Weges, halb im Gras. Auf seiner Vorderseite war ein Zeichen eingeritzt, das Taron inzwischen kannte: ein Strich, zwei Haken. Menschenschlüssel. Oder zumindest etwas, das dazugehörte.
+Sie war nicht als Linie zu erkennen. Keine Mauer, kein Tor, kein Schild mit freundlichem Hinweis, dass ab hier alles älter, gefährlicher und schlechter ausgeschildert sei. Nur ein niedriger Wall aus verwitterten Steinen zog sich durch das Gras, halb überwachsen, an manchen Stellen unterbrochen. Auf seiner Krone standen Pfähle, so morsch, dass sie eher Erinnerung als Holz waren. An einem hing noch ein Streifen ausgebleichter Stoff.
 
-„Das ist gut“, sagte Taron.
+Taron hielt Kummer an.
 
-Oswin sah ihn an.
+„Das ist sie?“
 
-„Ich weiß“, sagte Taron. „Wenn ich sage, dass etwas gut ist, kommt meistens gleich jemand und erklärt mir, warum es das nicht ist.“
+Oswin sah über den Wall hinweg.
 
-Der Erzähler sagte: „Das nennt man Lernen.“
+„Ja.“
 
-„Nein. Das nennt man schlechte Muster.“
+„Die Grenze?“
 
-Sie ritten weiter.
+„Die alte.“
 
-Der zweite Grenzstein war umgestürzt. Der dritte war schwarz verfärbt. Nicht von Feuer, zumindest nicht nur. Taron stieg ab und berührte ihn nicht. Er war stolz auf diese Entscheidung. Früher am Tag hätte er ihn vielleicht berührt. Früher am Tag war er jünger gewesen.
+„Zwischen was und was?“
 
-Oswin untersuchte den Boden. Er sagte nichts, aber sein Gesicht wurde ernster.
+Oswin antwortete nicht sofort. Das mochte Taron nicht. Bei Oswin bedeutete Schweigen entweder, dass er nachdachte, oder dass die Antwort bereits schlecht genug war, um keine Eile zu brauchen.
+
+„Zwischen Waldkirch“, sagte der Ritter schließlich, „und dem, was vorher nicht Waldkirch war.“
+
+„Das ist erstaunlich ungenau.“
+
+„Grenzen sind oft genauer auf Karten als im Boden.“
+
+Der Erzähler sagte: „Ein Satz, den Könige bedauerlicherweise selten auf ihre Banner sticken lassen.“
+
+Taron betrachtete den Steinwall. Er hatte erwartet, dass eine Grenze sich größer anfühlen würde. Bedeutender. Vielleicht mit einem Torbogen, einem Wappen, einem Mann, der unfreundlich Gebühren verlangte. Stattdessen lag dort nur altes Gestein im Gras.
+
+Gerade das machte es schlimmer.
+
+„Also reiten wir jetzt aus dem Königreich?“
+
+„Aus dem Teil, der sich noch sicher ist, eins zu sein“, sagte Oswin.
+
+Taron sah ihn an.
+
+„Das war ein Satz mit sehr vielen Folgen.“
+
+„Ja.“
+
+„Ich vermisse die Zeit, in der Wege einfach irgendwohin führten.“
+
+„Das taten sie nie“, sagte der Erzähler. „Du hattest nur weniger Anlass, es persönlich zu nehmen.“
+
+Sie überschritten die Grenze.
+
+Es geschah nichts.
+
+Kein Donner. Kein Flackern. Kein alter Eid, der aus dem Boden stieg und höflich um eine Unterschrift bat. Kummer setzte einen Huf über den Wall, dann den anderen, und fand die gesamte Angelegenheit offenbar unter seiner Würde.
+
+Taron war fast enttäuscht.
+
+Dann bemerkte er, dass hinter ihnen noch Vögel riefen.
+
+Vor ihnen nicht.
+
+Der Weg auf der anderen Seite war schmaler und härter. Kein Wagen hatte ihn seit Wochen benutzt, vielleicht seit Monaten. Gras wuchs in der Mitte. An einer Stelle lag ein zerbrochenes Rad halb im Graben, so alt, dass Moos die Speichen füllte. Ein Stück weiter standen drei Pfosten am Weg, aber die Querbalken fehlten. Vielleicht war dort einmal ein Zollhaus gewesen. Vielleicht ein Wachposten. Vielleicht nur etwas, das Menschen gebaut hatten, um sich einzureden, sie könnten bestimmen, was durch diese Gegend ging.
+
+Oswin stieg ab.
 
 „Was?“
 
-Der Ritter zeigte auf den Weg. Keine frischen Spuren. Keine Wagen. Keine Hufe außer ihren eigenen.
+Der Ritter ging ein Stück voraus und untersuchte den Boden. Dann die Büsche. Dann den Rand des Weges, wo ein Hufabdruck hätte sein müssen, wenn irgendjemand hier entlanggeritten wäre.
 
-„Niemand kommt hier entlang“, sagte Taron.
+„Keine frischen Spuren“, sagte er.
 
-Oswin nickte.
+„Niemand kommt hier entlang.“
+
+„Nein.“
 
 „Das ist wegen des Turms?“
 
-Oswin hob die Schultern.
+Oswin sah zu den Hügeln vor ihnen.
 
-„Das war kein Nein.“
+„Vielleicht wegen allem.“
 
-Oswin schüttelte den Kopf.
+Der Erzähler sagte: „Eine Antwort, die so breit ist, dass man darunter bequem Schutz suchen könnte, wenn sie weniger unangenehm wäre.“
 
-„Es war aber auch kein Ja.“
-
-Oswin nickte.
-
-„Ich vermisse Gespräche, in denen Leute Wörter benutzen.“
-
-„Ich nicht“, sagte der Erzähler.
-
-Gegen Abend wurde es stiller.
-
-Nicht still. Es gab Wind, das Knacken von Zweigen, Kummers Atem, Sternfalls Hufschlag. Aber der übliche Lärm fehlte. Keine Hunde. Keine fernen Stimmen. Keine Axt auf Holz. Nicht einmal viele Vögel.
-
-Taron ritt langsamer.
+Taron rieb sich den Nacken.
 
 „Vielleicht ist der Turm verlassen.“
 
 Oswin sah ihn an.
 
-„Das war ein Versuch.“
+„Ich weiß“, sagte Taron. „Das war ein Versuch.“
 
-Oswin nickte.
+„Ein erkennbarer.“
 
 „Ein schlechter?“
 
-Oswin nickte wieder.
+„Ja.“
 
-Der Erzähler sagte: „Ich hätte ihn durchschnittlich genannt. Aber ich bin großzügig, wenn Menschen müde sind.“
+„Ich habe das Gefühl, du wirst gesprächiger, wenn du mich enttäuschst.“
 
-Die Sonne sank, und das Licht wurde flach. Die Hügel vor ihnen warfen lange Schatten über den Weg. Zwischen zwei schwarzen Fichten sah Taron schließlich etwas, das zuerst wie ein Felsen aussah.
+„Übung.“
+
+Gegen Abend wurde es stiller.
+
+Nicht still. Es gab Wind, das Knacken von Zweigen, Kummers Atem, Sternfalls Hufschlag. Aber der übliche Lärm fehlte. Keine Hunde. Keine fernen Stimmen. Keine Axt auf Holz. Nicht einmal viele Vögel. Die Welt hinter der Grenze hatte nicht aufgehört zu leben, aber sie tat es leiser, als wolle sie nicht anwesend sein, wenn jemand fragte.
+
+Die Sonne sank, und das Licht wurde flach. Die Hügel vor ihnen warfen lange Schatten über den Weg. Taron bemerkte die Ruinen zuerst nicht.
+
+Das war vielleicht ihr schlimmster Teil.
+
+Sie standen nicht groß genug da, um sofort als Ruinen erkannt zu werden. Ein niedriger Stein im Gras war erst nur ein Stein. Dann sah Taron, dass er zu gerade lag. Eine Reihe schwarzer Büsche war erst nur Gestrüpp. Dann erkannte er dazwischen den Rest einer Mauer. Ein Hügel war erst nur ein Hügel. Dann zeigte das Abendlicht eine Kante, die kein Hügel haben sollte.
+
+„Das ist nicht nur ein Turm“, sagte Taron.
+
+Oswin zog Sternfall langsamer.
+
+„Nein.“
+
+„Merlan sagte, Abendriss war eine Burg.“
+
+„Ja.“
+
+„Ich dachte, er meint damit: Da war noch eine Mauer oder so.“
+
+„Da war mehr.“
+
+„Das wäre eine gute Stelle gewesen, das früher zu sagen.“
+
+Der Erzähler sagte: „Zu seiner Verteidigung: Er tat es. Du hast nur eine kleinere Vorstellung behalten, weil sie weniger Platz für Unheil ließ.“
+
+Zwischen zwei schwarzen Fichten sah Taron schließlich etwas, das zuerst wie ein Felsen aussah.
 
 Dann bewegte sich der Weg ein Stück nach links, und der Felsen wurde zu einer Kante.
 
