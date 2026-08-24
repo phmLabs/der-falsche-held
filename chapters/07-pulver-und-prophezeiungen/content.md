@@ -460,19 +460,13 @@ Sie aßen im Halbdunkel. Brot, das seine besten Tage hinter sich hatte. Ein letz
 
 „Dann machst du sie auf.“, sagte Oswin. „Und wieder zu“
 
-Der Erzähler sagte: „Du hast eine Kugel, die dich vom Antworten befreit. Das ist mehr, als die meisten Menschen behaupten können.“
+Der Erzähler sagte: „Du hast auch eine Kugel, die dich vom Antworten befreit. Das ist mehr, als die meisten Menschen behaupten können, die den Schlüssel gesucht haben.“
 
 „Wenn ich sie werfe, kann ich sie nicht mehr werfen“, murmelte Taron.
 
 „So funktionieren die meisten Entscheidungen.“
 
-Taron nickte düster. Er war müde. Müde war kein Zustand mehr, sondern eine Landschaft, durch die man gehen konnte. Die Angst stand darin wie Bäume, an denen sich Nebel verfing.
-
-„Für den Morgen“, sagte Oswin leise. „Ich will den Ort im Licht sehen. Ich traue Schatten nicht, wenn sie entscheiden dürfen, was sie zeigen.“
-
-„Ich traue Licht nicht, wenn es zu freundlich scheint“, sagte Taron.
-
-„Dann sind wir uns einig.“
+Taron nickte düster. Er war müde. 
 
 Sie legten sich, nachdem Oswin die Umgebung einmal umkreist hatte. Er blieb dabei manchmal stehen, hob den Kopf, wie ein Hund, der etwas in der Luft suchte, das nur für ihn da war, und kam wieder so leise zurück, als sei der Wald empfindlich.
 
