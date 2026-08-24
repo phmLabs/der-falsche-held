@@ -76,8 +76,6 @@ Taron lehnte sich zurück. „Das ist also die gute Nachricht? Ich bin wichtig, 
 
 „Brauchbar klingt schlimmer.“
 
-„Es ist ehrlicher.“
-
 Der Erzähler sagte: „Ich finde, es hat eine gewisse Schlichtheit.“
 
 „Du findest auch Hinrichtungen dramaturgisch sauber.“
@@ -91,8 +89,6 @@ Merlan betrachtete wieder die alte Abschrift. „Der Satz am Rand bleibt das gr�
 „Die Schlüssel bringen Freiheit“, sagte Merlan. „So wird es in Waldkirch gelesen.“
 
 „Das klingt ausnahmsweise nicht schlecht.“
-
-„Weil in Waldkirch gern vergessen wird, dass ein Satz nicht automatisch freundlich ist, nur weil er kurz ist.“
 
 Merlan drehte die Abschrift ein Stück. Dort war der Fleck: dunkel, alt, ausgefranst. Taron hatte in seinem Leben genug Flecken gesehen, um diesen sofort nicht zu mögen. Die meisten Flecken auf Stallkleidung sagten wenigstens ehrlich, was passiert war. Dieser hier sah aus, als habe jemand vor langer Zeit etwas verschüttet und damit mehreren Generationen erlaubt, sich sehr sicher zu irren.
 
