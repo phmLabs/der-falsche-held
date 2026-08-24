@@ -20,31 +20,7 @@ Merlan sah nicht auf. „Niemand?“
 
 „Er mischt sich oft ein?“
 
-„Nur wenn ich atme.“
-
-Merlan machte eine kleine Notiz am Rand eines leeren Blattes.
-
-„Schreib das nicht auf.“
-
-„Ich schreibe nicht das auf.“
-
-„Was dann?“
-
-„Dass du Einmischung für etwas hältst, das von außen kommt.“
-
-Taron wartete.
-
-Merlan schrieb weiter.
-
-„Das ist einer dieser Sätze, die klug klingen und später Ärger machen“, sagte Taron.
-
-„Dann behalte ihn.“
-
-„Ich möchte ihn nicht.“
-
-„Noch besser. Dann bleibt er.“
-
-Oswin nickte einmal, offenbar aus Erfahrung.
+„Nur, wenn es am meisten stört.“
 
 Merlan legte die Feder beiseite und tippte auf die drei Stellen in der ältesten Abschrift. „Die Prophezeiung spricht von drei Eidschlüsseln. Nicht von drei Aufgaben, die man beliebig verteilen kann. Nicht von einem Schlüssel, der poetisch überarbeitet wurde. Drei.“
 
