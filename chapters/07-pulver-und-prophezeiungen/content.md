@@ -216,11 +216,9 @@ Taron sah das Kästchen an.
 
 „Das klingt besser.“
 
-Merlan zog ein kleines Stück Leder hervor und wickelte das Kästchen darin ein. „Bewahr sie trocken auf. Nicht in der Nähe von Feuer. Nicht unter etwas Schwerem. Nicht in einer Tasche mit Nägeln, Münzen oder ritterlichen Erinnerungsstücken.“
+Merlan zog ein kleines Stück Leder hervor und wickelte das Kästchen darin ein.
 
-Oswin nickte, als sei jeder dieser Punkte aus guten Gründen entstanden.
-
-Taron steckte das Lederpäckchen vorsichtig in seinen Beutel.
+Taron steckte es vorsichtig in seinen Beutel.
 
 „Wenn es kein Zauber ist“, sagte er, „warum behandeln alle es, als sei es einer?“
 
