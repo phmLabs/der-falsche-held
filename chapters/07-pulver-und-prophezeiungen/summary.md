@@ -1,5 +1,5 @@
-- In Merlans Haus wird geklärt: Es gibt drei Eidschlüssel (einer gehört den Zwergen), der Menschenschlüssel ist nur der nächste Schritt, und Taron ist wegen fehlender Ansprüche/Abstammung geeignet; ein Fleck in der ältesten Abschrift deutet darauf, dass vor „Freiheit“ ein fehlendes Wort stand.
-- Merlan begleitet sie nicht, gibt Taron aber eine einmalige Rauchkugel zum Entkommen, deren Wirksamkeit Oswin bestätigt.
-- Mit Warnungen für den Turm von Abendriss (nichts außer dem Schlüssel nehmen, nichts laut lesen, keine „falschen“ Türen öffnen) reiten Taron und Oswin nach Westen; die Gegend wirkt verlassen, Grenzsteine sind umgestürzt oder geschwärzt, es gibt keine frischen Spuren.
-- Bei Dämmerung erreichen sie den glatten, fensterlosen Turm in einer Senke ohne sichtbares Tor.
-- Offen bleibt, welches Wort vor „Freiheit“ stand, wie sie in den Turm gelangen, welche Gefahren dort warten und ob die Rauchkugel den Unterschied machen wird.
+- Merlan, Taron und Oswin prüfen die Prophezeiung: Es gibt drei Eidschlüssel (einer bei den Zwergen), der nächste Schritt ist der Menschenschlüssel; Taron gilt als brauchbar, weil er keine Ansprüche, Linie oder Ordensbindung hat. Zudem ist in der ältesten Abschrift vor „Freiheit“ ein fehlendes/überdecktes Wort.
+- Merlan begleitet sie nicht, gibt Taron aber eine einmalig wirkende Rauchkugel und strikte Regeln für den Turm von Abendriss (nur den Schlüssel nehmen, nichts laut lesen, keine „falschen“ Türen öffnen).
+- Taron und Oswin reiten Westen, passieren Grenzsteine mit dem Menschenschlüssel-Zeichen, bemerken das Ausbleiben von Spuren und ungewöhnliche Stille.
+- Am Abend erreichen sie den in einer Senke verborgenen, glatten, fensterlosen Turm von Abendriss.
+- Offene Fragen: Welches Wort fehlt vor „Freiheit“ und wie ändert es die Deutung? Was erwartet sie im Turm, wo liegt der Menschenschlüssel, und reicht die Rauchkugel/Regeln, um lebend wieder herauszukommen?

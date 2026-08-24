@@ -246,35 +246,7 @@ Merlan stand auf der Schwelle, sauber, gerade und unangenehm ruhig.
 
 „Bis zum Tor?“
 
-„Ich sehe es von hier.“
-
-„Sehr hilfreich.“
-
 „Ich bin Gelehrter. Wir helfen oft aus Entfernung. Das schützt alle Beteiligten.“
-
-Oswin stieg auf und nickte Merlan zu.
-
-Merlan nickte zurück.
-
-Taron sah zwischen beiden hin und her. „Ihr habt schon wieder gesprochen, oder?“
-
-Oswin nickte.
-
-„Was hat er gesagt?“
-
-Oswin zeigte auf Taron, dann auf den Beutel, dann machte er eine kurze Bewegung mit zwei Fingern: werfen. Danach zeigte er auf die Straße.
-
-„Er hat gesagt, ich soll die Rauchkugel werfen und laufen.“
-
-Oswin nickte.
-
-„Das hat Merlan schon gesagt.“
-
-Oswin nickte wieder.
-
-„Ihr seid beide sehr zufrieden mit euch.“
-
-Merlan sagte: „Nicht zufrieden. Nur wiederholt.“
 
 Sie ritten aus Hohensteg hinaus.
 
