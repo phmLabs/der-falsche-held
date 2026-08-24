@@ -42,13 +42,7 @@ Das war unangenehm. Mit Brille sah Merlan aus wie ein Gelehrter. Ohne Brille sah
 
 Taron sah zu Oswin.
 
-Oswin hob beide Hände ein wenig. Offenbar wollte er zu Käsebrücken keine fachliche Einschätzung abgeben.
-
 „Der Menschenschlüssel ist der nächste Schritt“, sagte Merlan. „Mehr nicht. Das ist wichtig. Wer den ersten Schritt für die ganze Reise hält, fällt spätestens beim zweiten in etwas hinein.“
-
-„In was?“
-
-„Geschichte, meistens.“
 
 Der Erzähler machte ein leises, zustimmendes Geräusch.
 
