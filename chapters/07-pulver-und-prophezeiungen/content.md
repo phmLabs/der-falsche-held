@@ -322,19 +322,15 @@ Als die Sonne tief hing, führte Oswin sie von der Straße weg zu einem kleinen 
 
 „Warum?“, fragte Taron, obwohl er es bereits wusste.
 
-„Weil der Turm ein Grund ist, die Aufmerksamkeit von anderen Dingen nicht zusätzlich zu kaufen.“
+"Weil wir es vermeiden möchten, jemandem zu sagen, dass wir kommen."
 
-Sie entzündeten eine schmale, lange Flamme in einer Mulde zwischen Steinen, die kaum höher als Oswins Hand wurde. Der Rauch zog flach davon, als schäme er sich, gesehen zu werden. Sie aßen Brot und hartes Fleisch, und Taron trank Wasser mit dem Geschmack, den ein Lederschlauch stehlen konnte.
+Sie entzündeten eine schmale, lange Flamme in einer Mulde zwischen Steinen, die kaum höher als Oswins Hand wurde. Der Rauch zog flach davon. Sie aßen Brot und hartes Fleisch, und Taron trank Wasser mit dem Geschmack des Lederschlauches.
 
 „Erzähl“, sagte Oswin, nachdem die Geräusche der Pferde das Schweigen zuerst gefüllt hatten. „Etwas aus deinem Stall.“
 
 Taron kaute.
 
-„Ich habe mir oft geschworen, dass ich niemandem mehr etwas erzähle“, sagte er.
-
-„Dann fang klein an.“
-
-Taron dachte an Waldkirch, an die Ziegen, an Elva mit dem Eimer, an den Hunger in der Tiefe, der mehr nach altem Stein als nach Zähnen gerochen hatte.
+Er dachte an Waldkirch, an die Ziegen, an Elva mit dem Eimer, an den Hunger in der Tiefe, der mehr nach altem Stein als nach Zähnen gerochen hatte.
 
 „Es gab eine Ziege“, sagte er. „Sie hieß Königin. Nicht, weil sie aussah wie eine, sondern weil jeder so lief, wie sie es wollte. Wenn die anderen Ziegen auf die Weide mussten, ging sie immer dorthin, wo nicht die Weide war. Ich habe drei Wochen gebraucht, um herauszufinden, dass sie nicht auf den Stock reagierte, nicht auf Rufen, nicht auf Fluchen. Aber sie blieb stehen, wenn man ihr die Ohren kraulte. Also bin ich jeden Morgen eine halbe Stunde eher aufgestanden, nur um sie über den Hof zu bringen.“
 
