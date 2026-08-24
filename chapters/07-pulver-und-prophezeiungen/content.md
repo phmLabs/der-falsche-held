@@ -96,27 +96,7 @@ Merlan drehte die Abschrift ein Stück. Dort war der Fleck: dunkel, alt, ausgefr
 
 Der Erzähler schwieg.
 
-Es war kein normales Schweigen. Normales Schweigen war leer. Dieses Schweigen hatte Kanten.
-
-„Du weißt etwas“, sagte Taron in seinen Kopf.
-
-„Ich weiß vieles.“
-
-„Über den Fleck.“
-
-„Ich weiß, dass Wein selten zur Verbesserung heiliger Texte beiträgt.“
-
-„Das ist keine Antwort.“
-
-„Es war auch nicht als eine verkleidet.“
-
-Merlan sah Taron kurz an. Nur kurz. Lang genug, um zu merken, dass er das Gespräch mitbekam, ohne es zu hören. Dann wandte er sich wieder den Abschriften zu.
-
 „Ich werde euch nicht begleiten“, sagte er.
-
-„Das war nicht die Frage.“
-
-„Es wird gleich wieder die Frage.“
 
 Taron schloss den Mund.
 
