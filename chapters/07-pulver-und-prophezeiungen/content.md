@@ -58,19 +58,11 @@ Merlan schob Malchiors Abschrift mit einem Finger zur Seite. „Gerade deshalb.�
 
 „Ich bin Stallbursche. Ich passe sehr gut in Ställe.“
 
-„Ställe sind selten das Problem.“
-
 Merlan nahm eine der neueren Abschriften und zeigte auf mehrere Stellen, ohne sie vorzulesen. „Hier wird von Blutlinien gesprochen. Hier von Orden. Hier von Erben. Hier von Leuten, die Schlösser öffnen und sofort behaupten, sie hätten ein Recht darauf, weil ihre Vorfahren einmal in der Nähe gehustet haben.“
 
 „Adel“, sagte Taron.
 
 „Unter anderem.“
-
-Oswin sah in seinen Becher.
-
-„Nichts gegen anwesende Ritter“, sagte Merlan.
-
-Oswin nickte mit der Gelassenheit eines Mannes, der wusste, dass sehr viel gegen anwesende Ritter sprach.
 
 „Du hast keinen Anspruch“, sagte Merlan zu Taron. „Keine bekannte Linie. Keinen Orden. Kein Erbrecht. Du stehst nicht gut genug, um Besitz zu fordern, und nicht hoch genug, um Gehorsam zu verlangen. Das macht dich für einen Eid interessanter, als es dir angenehm sein dürfte.“
 
