@@ -174,19 +174,11 @@ Oswin nickte. Diesmal langsam.
 
 „Wie hilfreich?“
 
-Oswin sah auf die Kugel. „Ich habe Männer überleben sehen, weil jemand im richtigen Augenblick so etwas hatte. Und ich habe Männer sterben sehen, weil der Feind welchen hatte.“
+Oswin sah auf die Kugel. „Ich habe Männer überleben sehen, weil jemand im richtigen Augenblick so etwas hatte. Und ich habe Männer sterben sehen, weil der Feind welche hatte.“
 
 Taron schwieg.
 
-„In den Zwergenkriegen?“, fragte Taron leiser.
-
-Oswin nickte.
-
 Merlan schloss das Kästchen. „Sie funktioniert einmal. Wenn du sie wirfst, zerbricht sie. Wenn sie zerbricht, kommt Rauch. Wenn Rauch kommt, läufst du. Nicht kämpfen. Nicht reden. Nicht nachdenken, ob es würdevoll aussieht. Laufen.“
-
-„Ich kann laufen.“
-
-„Das habe ich gehofft.“
 
 „Ich bin schon vor einem Monster weggelaufen.“
 
@@ -198,9 +190,7 @@ Taron nahm das Kästchen, als überreiche man ihm etwas Kleines, Dunkles und mö
 
 „Wie heißt sie?“
 
-„Rauchkugel.“
-
-Taron wartete.
+„Rauchkugel.“ sagte der Magier. Taron wartete.
 
 „Das ist alles?“
 
@@ -208,41 +198,13 @@ Taron wartete.
 
 „Kein alter Name?“
 
-Merlan seufzte.
+Merlan seufzte.„Wenn du unbedingt einen alten Namen brauchst: Schleier der entschlossenen Entfernung.“
 
-„Wenn du unbedingt einen alten Namen brauchst: Schleier der entschlossenen Entfernung.“
+Taron sah das Kästchen an. „Das klingt besser.“
 
-Taron sah das Kästchen an.
-
-„Das klingt besser.“
-
-Merlan zog ein kleines Stück Leder hervor und wickelte das Kästchen darin ein.
-
-Taron steckte es vorsichtig in seinen Beutel.
-
-„Wenn es kein Zauber ist“, sagte er, „warum behandeln alle es, als sei es einer?“
-
-Merlan schloss den Schrank wieder ab. Ein Schlüssel. Zweiter Schlüssel. Dritter Schlüssel.
-
-„Weil viele Menschen Magie nicht erkennen würden, wenn sie ihnen höflich die Suppe salzt. Aber Rauch, der im richtigen Augenblick eine Gasse füllt, verstehen sie sofort.“
-
-„Das beantwortet meine Frage nicht.“
-
-„Doch. Nur nicht in der Richtung, in der du sie gestellt hast.“
+Merlan zog ein kleines Stück Leder hervor und wickelte das Kästchen darin ein. Taron steckte es vorsichtig in seinen Beutel.
 
 Merlan sammelte die Abschriften ein. Die schlechte von Malchior gab er Taron zurück. Die gute behielt er.
-
-„Die bekommt Ihr nicht mit?“
-
-„Nein.“
-
-„Warum?“
-
-„Weil du sie verlieren würdest.“
-
-„Das ist beleidigend.“
-
-„Es ist eine Einschätzung mit Reisebezug.“
 
 Oswin stand auf. Er zog die Riemen seiner Handschuhe fest. Taron tat ebenfalls so, als hätte er etwas vorzubereiten, obwohl er im Wesentlichen nur seinen Beutel dreimal überprüfte und dabei jedes Mal erleichtert war, dass die Rauchkugel noch ganz war.
 
