@@ -96,11 +96,11 @@ Merlan drehte die Abschrift ein Stück. Dort war der Fleck: dunkel, alt, ausgefr
 
 Der Erzähler schwieg.
 
+- 
+
 „Ich werde euch nicht begleiten“, sagte der Zauberer.
 
 Taron schloss den Mund.
-
-Merlan hatte leider recht.
 
 „Dann wirkt wenigstens einen Schutzzauber“, sagte Taron.
 
@@ -110,33 +110,13 @@ Merlan blinzelte.
 
 „Einen Schutzzauber. Gegen den Turm. Gegen alte Eide. Gegen Türen, die mich nicht mögen. Gegen alles, was in meiner Nähe zu leuchten anfängt.“
 
-„Türen mögen dich nicht?“
-
-„Nicht zuverlässig.“
-
-„Das kann an deiner Art liegen, sie zu öffnen.“
-
-„Ich wurde gestern in einen Dungeon geworfen.“
-
-„Das war eher die Art anderer Leute, dich zu öffnen.“
+„Ich wurde gestern in einen Dungeon geworfen.“  ergänzte Taron wütend: 
 
 Oswin stellte seinen Becher ab und sah Merlan an. Zum ersten Mal seit einer Weile wirkte sein Nicken nicht schläfrig, sondern wachsam.
 
 „Also?“, fragte Taron. „Habt Ihr einen?“
 
 Merlan setzte seine Brille wieder auf.
-
-„Nein.“
-
-Taron starrte ihn an.
-
-„Ihr habt nicht einmal überlegt.“
-
-„Doch.“
-
-„Wann?“
-
-„Vor Jahren.“
 
 „Vor Jahren habt Ihr überlegt, ob Ihr mir heute einen Schutzzauber geben könnt?“
 
