@@ -146,37 +146,9 @@ Oswin schob das Steinchen noch ein Stück weiter.
 
 Der Ritter zuckte mit einer Schulter. Er erhob sich und wählte den mittleren Gang.
 
-Sie gingen weiter. Hinter ihnen kam erneut das Klopfen. Diesmal brach es mitten im Muster ab. Taron fand das sehr befriedigend und sehr beunruhigend zugleich.
+Sie gingen weiter. Hinter ihnen kam erneut das Klopfen. Diesmal brach es mitten im Muster ab. 
 
-Der mittlere Gang führte zu einer niedrigen Kammer. An den Wänden waren Nischen eingelassen. In jeder lag ein Gesicht.
-
-Taron blieb im Eingang stehen.
-
-Es waren Dutzende.
-
-Manche waren aus Leder, manche aus Holz, manche mit dünnen Metallstreifen verstärkt. Keine war gleich. Einige hatten lange Nasenstücke, andere breite Stirnplatten, andere nur schmale Schlitze für die Augen. Keine wirkte wie Schmuck. Sie wirkten benutzt. Repariert. Weitergegeben.
-
-Unter mehreren von ihnen waren Zeichen in die Wand geritzt. Keine Worte, die Taron lesen konnte. Nur Haken, Linien und kleine Kreise, zu sorgfältig für Zufall und zu fremd, um freundlich zu sein.
-
-„Das ist keine Rüstkammer“, sagte er.
-
-„Eine mutige Feststellung“, sagte der Erzähler.
-
-Oswin stand sehr still.
-
-Taron sah zu ihm. Der Ritter betrachtete die falschen Gesichter nicht wie ein Mann, der etwas Unheimliches sah. Er betrachtete sie wie ein Mann, der eine Kaserne gesehen hatte, nachdem der Krieg weitergezogen war.
-
-„Die benutzen sie“, sagte Taron.
-
-Oswin sah auf die Zeichen darunter.
-
-„Immer wieder.“
-
-Der Erzähler sagte: „Eide sind oft billiger als Mauern. Darum halten sie manchmal länger.“
-
-Taron wollte eine spitze Antwort geben, aber keine kam. Nicht, weil ihm keine einfiel. In diesem Raum hätte sie falsch geklungen.
-
-Aus der Kammer führte ein weiterer Gang hinaus. Auf seinem Boden lag Staub. Echter Staub diesmal, dick und ungestört. Oswin ging nicht hinein. Er zeigte auf den Staub und dann auf die Wand daneben.
+Der mittlere Gang wurde niedriger. Auf seinem Boden lag Staub. Echter Staub diesmal, dick und ungestört. Oswin blieb stehen, zeigte auf den Staub und dann auf die Wand daneben.
 
 Dort waren Handabdrücke.
 
@@ -188,25 +160,15 @@ Als hätte jemand sich seitlich an ihr entlang bewegt, um den Boden nicht zu ber
 
 Taron trat einen Schritt zurück.
 
-„Ich mag sie nicht.“
+„Ich mag das nicht.“
 
-„Das Urteil fällt spät“, sagte der Erzähler.
+Oswin deutete auf den schmalen Rand an der Wand. Danach setzte er den Fuß vorsichtig darauf.
 
-„Ich meine fachlich.“
-
-Oswin deutete zurück.
-
-Sie verließen die Kammer durch denselben Eingang, durch den sie gekommen waren. Hinter ihnen blieb der Staub unberührt.
-
-Der Gang wurde breiter. Links öffnete sich ein Raum, in dem alte Holzgestelle standen. Keine Waffen mehr. Nur Halterungen, Riemenreste, dunkle Flecken auf Stein. Rechts führte eine Treppe hinauf, aber die oberen Stufen waren eingestürzt. Geradeaus hing ein schwarzer Vorhang aus schwerem Stoff.
+Der Gang wurde breiter. Links standen alte Holzgestelle an der Wand. Keine Waffen mehr. Nur Halterungen, Riemenreste, dunkle Flecken auf Stein. Rechts führte eine Treppe hinauf, aber die oberen Stufen waren eingestürzt. Geradeaus hing ein schwarzer Vorhang aus schwerem Stoff.
 
 Taron blieb stehen.
 
 „Der ist neu.“
-
-Oswin trat sofort näher.
-
-„Wie neu?“
 
 Oswin trat näher, rieb den Stoff zwischen zwei Fingern und sah dann auf seine Hand. Kein Staub.
 
@@ -218,11 +180,7 @@ Nur ein Schritt.
 
 Dann nichts.
 
-Oswin drehte sich langsam um.
-
-Taron hob die Lampe.
-
-Der Gang hinter ihnen war leer.
+Oswin drehte sich langsam um. Taron hob die Lampe. Der Gang hinter ihnen war leer.
 
 „Wind?“, flüsterte Taron.
 
@@ -258,7 +216,7 @@ Taron hob die Lampe höher. Der Schein reichte bis zu einer Wand, zu einem Riss 
 
 Dann stand dort ein Gesicht.
 
-Es war lang und schmal, aus dunklem Leder und dünnen Metallstreifen. Zwei Augenschlitze. Ein vorgezogener Mund ohne Öffnung. Keine Hörner, keine Zähne, nichts Übertriebenes. Gerade das machte es schlimmer. Es war nicht wie ein Monster gemacht, das schreien wollte. Es war wie etwas gemacht, das keinen Schrei brauchte.
+Es war lang und schmal. Zwei Augenschlitze. Ein vorgezogener Mund ohne Öffnung. Keine Hörner, keine Zähne, nichts Übertriebenes. Gerade das machte es schlimmer. Es war nicht wie ein Monster gemacht, das schreien wollte. Es war wie etwas gemacht, das keinen Schrei brauchte.
 
 Taron blinzelte.
 
@@ -282,13 +240,13 @@ Gerade genug.
 
 Oswin stieß Taron zurück.
 
-Etwas schoss aus dem Stoff. Kein Tier. Kein Schatten. Eine graue Gestalt, eng am Körper gewickelt, mit dem falschen Gesicht aus der Kammer und einer kurzen Klinge in der Hand. Oswin fing den ersten Schlag mit dem Schwert ab, drehte sich seitlich und trat die Gestalt gegen die Wand.
+Etwas schoss aus dem Stoff. Kein Tier. Kein Schatten. Eine graue Gestalt, eng am Körper gewickelt, mit diesem falschen Gesicht und einer kurzen Klinge in der Hand. Oswin fing den ersten Schlag mit dem Schwert ab, drehte sich seitlich und trat die Gestalt gegen die Wand.
 
 Eine zweite kam von rechts.
 
 Taron sah nur Bewegung. Grau, Leder, Metall. Dann war die zweite Gestalt vor ihm. Taron hob das Messer, viel zu spät. Sie schlug ihm die Lampe aus der Hand.
 
-Der Raum wurde dunkel.
+Der Gang wurde dunkel.
 
 Sehr dunkel. Merlan hätte das vermutlich besser formuliert und dabei niemandem geholfen.
 
