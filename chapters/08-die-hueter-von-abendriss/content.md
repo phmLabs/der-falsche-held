@@ -584,27 +584,11 @@ Der Hüter hob eine Hand.
 
 Taron dachte, er würde nach ihm greifen. Stattdessen schlug der Hüter mit zwei Knöcheln gegen die Wand.
 
-Einmal.
-
-Pause.
-
-Dreimal.
-
-Pause.
-
-Einmal.
+Einmal. Pause. Dreimal. Pause. Einmal.
 
 Die Schritte im Gang hielten nicht an, aber sie veränderten sich. Sie wurden langsamer.
 
 „Was war das?“, fragte Taron.
-
-„Kein Jagdzeichen“, sagte der Hüter.
-
-„Das ist gut?“
-
-„Es ist weniger schlecht.“
-
-„Eine beliebte Sorte gut“, sagte der Erzähler sehr leise.
 
 Der Hüter sah Taron an, als hätte er zwar die Worte nicht gehört, aber die Kälte dahinter gespürt.
 
