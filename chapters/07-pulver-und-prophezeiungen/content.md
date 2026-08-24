@@ -346,7 +346,7 @@ Oswin lächelte mit einem Mundwinkel. „Ich hatte einen Leutnant, der hieß auc
 
 „Und du?“, fragte Taron. „Hohenklamm. Wie ist das?“
 
-Oswin sah in die flache Flamme. „Wind“, sagte er. „Stein. Wasser, das fällt, wenn es keine Geduld mehr hat. Und Menschen, die glauben, dass eine Klippe trotzdem ein Weg ist, wenn man nur schnell genug läuft. Ich habe dort zum ersten Mal ein Schwert gehalten und gemerkt, dass ich Hände habe, mit denen ich nach etwas greifen kann, das keine Ziege ist.“
+Oswin sah in die flache Flamme. „Wind. Stein. Wasserfälle. Wege, die keine waren, aber trotzdem benutzt wurden. Ich habe dort zum ersten Mal ein Schwert gehalten und begriffen, dass meine Hände vielleicht für mehr gut waren als Stallarbeit und Prügel.“
 
 „Romantisch.“
 
