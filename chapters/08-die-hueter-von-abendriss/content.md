@@ -934,7 +934,7 @@ Der Erzähler sagte leise: „Eine erstaunlich solide Zusammenfassung.“
 
 Taron wischte sich Wasser aus den Augen. „Woher wusstest du das?“
 
-„Dass links eine Richtung ist? Ein langer Bildungsweg.“
+„Dass Links meist die bessere Wahl war? Ein langer Bildungsweg.“
 
 „Den Gang.“
 
@@ -948,7 +948,7 @@ Taron sah auf.
 
 „Vor dir.“
 
-„Mit wem?“
+"Mit wem?"
 
 Der Wind strich durch die Fichten. Oswin sah zwischen Taron und dem leeren Raum neben ihm hin und her, als hätte er beschlossen, Fragen vorerst für Menschen mit weniger Blutverlust aufzuheben.
 
@@ -963,10 +963,6 @@ Taron wartete.
 „Mehr nicht?“
 
 „Mehr nicht.“
-
-„Weil du nicht willst?“
-
-„Weil ich bleiben will.“
 
 Oswin stand auf, wankte kurz und fing sich. Seine Stirn blutete noch. Am Arm hatte er einen langen Schnitt. Nicht tief genug, um ihn sofort umzubringen, was Taron in diesem Moment als gute Nachricht einstufte. Seine Maßstäbe hatten sich dem Tag angepasst.
 
@@ -991,16 +987,6 @@ An die Stimmen in den Gängen.
 An Freiheit.
 
 Für wen?
-
-Der Erzähler räusperte sich in seinem Kopf.
-
-„Nun“, sagte er, „das war pädagogisch ungünstig.“
-
-Taron lachte nicht.
-
-Danach blieb der Kommentar aus.
-
-Das gefiel Taron fast weniger.
 
 Sie gingen zu den Pferden. Kummer trat nach Taron, verfehlte ihn knapp und schien damit zufrieden. Sternfall ließ Oswin näherkommen, als habe der Ritter wenigstens einen Teil seiner Würde behalten.
 
