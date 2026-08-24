@@ -96,7 +96,7 @@ Merlan drehte die Abschrift ein Stück. Dort war der Fleck: dunkel, alt, ausgefr
 
 Der Erzähler schwieg.
 
-„Ich werde euch nicht begleiten“, sagte er.
+„Ich werde euch nicht begleiten“, sagte der Zauberer.
 
 Taron schloss den Mund.
 
