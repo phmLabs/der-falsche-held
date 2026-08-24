@@ -490,7 +490,7 @@ Taron hörte trotz der Schritte zu.
 
 „Warum geht ihr nicht fort?“
 
-Der Hüter sah ihn an, als sei die Frage sehr jung.
+Der Hüter sah ihn an, als sei die Frage sehr naiv.
 
 „Einige sind fort“, sagte er. „Vor Jahren. Vor Generationen. Sie wollten leben wie andere Menschen. Felder, Handel, Namen, die nicht an Steine gebunden sind.“
 
@@ -528,7 +528,7 @@ Der Hüter hob langsam den Kopf.
 
 Der Hüter sah an Taron vorbei in den Gang, als könne dort noch jemand stehen, der die alte Antwort kannte.
 
-„Weil danach etwas Schlimmes kommt“, sagte er. „So wurde es weitergegeben. Erst mit Namen. Dann mit Liedern. Dann mit Zeichen. Jetzt mit Blut und Atem. Mehr ist geblieben.“
+„Weil danach etwas Schlimmes kommt“, sagte er. „So wurde es weitergegeben. Erst mit Namen. Dann mit Liedern. Dann mit Zeichen. Jetzt mit Blut und Atem. Das ist geblieben.“
 
 Oswin blickte scharf zu ihnen.
 
@@ -548,9 +548,7 @@ Der Hüter schloss die Augen.
 
 „Für wen?“
 
-Der Hüter öffnete die Augen wieder.
-
-Diesmal sah er Taron direkt an.
+Der Hüter öffnete die Augen wieder. Diesmal sah er Taron direkt an.
 
 „Das fragten die Letzten zu spät.“
 
@@ -564,13 +562,77 @@ Taron packte den Arm des Hüters. „Wie kommen wir hin?“
 
 „Ihr kommt nicht hin.“
 
-„Das ist keine gute Antwort.“
+„Dann sterben wir hier.“
+
+„Das ist der Zweck von Türen.“
+
+„Ich will nicht sterben, weil eine Tür eine Meinung hat.“
+
+Der Hüter sah zu Oswin. Auf das Schwert. Auf den Mann, der Taron nicht führte, aber vor ihm stand. Dann sah er wieder zu Taron.
+
+„Der ohne Blut“, sagte er leise.
+
+Taron blinzelte. „Ich blute sehr viel für jemanden ohne Blut.“
+
+„Der ohne Blutrecht.“
+
+Aus Tarons Kopf kam nichts. Keine Verbesserung. Kein Spott.
+
+Der Hüter zog die Brauen unter der gesprungenen Maske zusammen.
+
+„Und der mit der fremden Klinge neben sich.“
+
+Oswin hielt das Schwert fester.
+
+„Ich bin nicht seine Klinge“, sagte er.
+
+„Nein“, sagte der Hüter. „Darum ist sie fremd.“
+
+Von hinten kam das Zeichen noch einmal. Kürzer diesmal. Drängender.
+
+Der Hüter hob eine Hand.
+
+Taron dachte, er würde nach ihm greifen. Stattdessen schlug der Hüter mit zwei Knöcheln gegen die Wand.
+
+Einmal.
+
+Pause.
+
+Dreimal.
+
+Pause.
+
+Einmal.
+
+Die Schritte im Gang hielten nicht an, aber sie veränderten sich. Sie wurden langsamer.
+
+„Was war das?“, fragte Taron.
+
+„Kein Jagdzeichen“, sagte der Hüter.
+
+„Das ist gut?“
+
+„Es ist weniger schlecht.“
+
+„Eine beliebte Sorte gut“, sagte der Erzähler sehr leise.
+
+Der Hüter sah Taron an, als hätte er zwar die Worte nicht gehört, aber die Kälte dahinter gespürt.
+
+„Wenn du falsch bist“, sagte er, „töten sie dich im Saal.“
+
+„Und wenn ich richtig bin?“
+
+„Dann fürchte ich, dass wir dich durchlassen müssen.“
+
+Taron hätte gern gefragt, wovor genau der Mann sich fürchtete. Die Schritte gaben ihm keine Zeit.
+
+„Wie kommen wir hin?“
 
 „Durch die Zisterne. Unter dem alten Saal. Drei Stufen nach unten, dann die Wand ohne Fuge. Das Zeichen erkennt ihn.“
 
 „Welches Zeichen?“
 
-Der Hüter sah auf Tarons Brust, auf das aufgenähte Falkenzeichen, das inzwischen schmutzig, schief und absolut nicht königlich aussah.
+Der Hüter sah auf Tarons Brust, auf das aufgenähte Zeichen des Hofes, das inzwischen schmutzig, schief und absolut nicht königlich aussah.
 
 „Nicht das.“
 
@@ -698,13 +760,69 @@ Taron legte beide Hände an die glatte Wand.
 
 „Ich habe keinen Anspruch“, sagte er leiser. „Keinen Namen, der ihn verlangt. Kein Blut, das ihn erbt. Kein Recht. Ich will ihn nicht besitzen. Ich will ihn tragen, weil alle anderen, die ihn haben wollen, mir noch weniger gefallen.“
 
-Nichts geschah.
+Zuerst geschah wieder nichts.
 
-„Und wenn das nicht reicht“, fügte Taron hinzu, „dann ist diese alte Burg schlechter organisiert als Merlans Schrank.“
+Dann fiel ein feiner Staubstreifen unter seinen Fingern herab.
+
+Taron zog die Hände zurück.
+
+Im Stein standen Zeichen.
+
+Nicht plötzlich. Sie waren die ganze Zeit dort gewesen, nur so flach, dass die Lampe sie erst jetzt fing: eine Krone, ein Schwert, ein Kelch, eine offene Hand, ein Vogel mit Krone über dem Kopf und darunter, kleiner als die anderen, ein Falke ohne Krone.
+
+Taron sah sofort zum gekrönten Vogel.
+
+Natürlich tat er das.
+
+Er trug das Zeichen des Hofes auf der Brust, auch wenn es schmutzig war und aussah, als hätte das Königreich es ihm mit schlechtem Gewissen geliehen. Der gekrönte Vogel war größer. Ordentlicher. Wichtiger.
+
+„Nicht der hübsche“, sagte der Erzähler.
+
+Taron hielt inne.
+
+„Welcher hübsche?“
+
+„Eine Frage, die ganze Dynastien zu spät stellen.“
+
+Oswin sah zwischen den Zeichen hin und her. Er sagte nichts, aber sein Blick blieb nicht bei der Krone. Er blieb bei dem kleinen Falken.
+
+Taron trat näher.
+
+Der Falke ohne Krone war nicht prächtig. Nur ein paar Linien: Flügel, Kopf, eine Kralle, die nichts hielt. Kein Reich. Kein Schild. Kein Befehl.
+
+Der Erzähler atmete ein.
+
+Das war neu.
+
+Taron hatte nie gewusst, ob Stimmen in Köpfen atmen mussten.
+
+„Den habe ich lange nicht gesehen“, sagte der Erzähler.
+
+„Was?“
+
+„Einen besseren Falken.“
+
+Taron sah auf das Zeichen. Dann auf seine eigenen Hände. Sie waren dreckig, aufgeschürft und zitterten immer noch.
+
+„Ich kenne den nicht.“
+
+„Nein“, sagte der Erzähler. Seine Stimme war leiser geworden. „Aber er kennt deinen Namen.“
+
+„Das ergibt keinen Sinn.“
+
+„Familien tun das selten.“
+
+Von der Tür her kamen Stimmen. Näher.
+
+Taron legte die Hand auf den Falken ohne Krone.
+
+„Ich habe keinen Anspruch“, sagte er. „Aber wenn jemand aus meinem Namen einmal etwas hierhergebracht hat, das nicht hätte bleiben dürfen, dann trage ich wenigstens den Schaden weiter.“
 
 Ein leises Klicken kam aus der Wand.
 
-Der Erzähler sagte: „Respektlosigkeit. Oft unterschätzt.“
+Der Erzähler sagte nichts Lustiges.
+
+Das war beinahe ein Beweis.
 
 Die Wand öffnete sich nicht wie eine Tür. Ein schmales Stück Stein sank ein, kaum breiter als Tarons Unterarm. Dahinter lag eine Nische.
 
@@ -921,6 +1039,42 @@ Der Erzähler sagte leise: „Eine erstaunlich solide Zusammenfassung.“
 „Einmal.“
 
 „Qualität vor Menge.“
+
+Taron wischte sich Wasser aus den Augen. „Woher wusstest du das?“
+
+„Dass links eine Richtung ist? Ein langer Bildungsweg.“
+
+„Den Gang.“
+
+Der Erzähler brauchte diesmal zu lange für eine Antwort.
+
+„Ich bin ihn schon einmal gegangen.“
+
+Taron sah auf.
+
+„Wann?“
+
+„Vor dir.“
+
+„Mit wem?“
+
+Der Wind strich durch die Fichten. Oswin sah zwischen Taron und dem leeren Raum neben ihm hin und her, als hätte er beschlossen, Fragen vorerst für Menschen mit weniger Blutverlust aufzuheben.
+
+„Du hast den Falken gesehen“, sagte der Erzähler. „Das ändert die Regeln ein wenig. Nicht genug, um klug zu sein. Aber ein wenig.“
+
+„Mit wem?“, fragte Taron noch einmal.
+
+„Mit jemandem, der einem König Nein sagte.“
+
+Taron wartete.
+
+„Mehr nicht?“
+
+„Mehr nicht.“
+
+„Weil du nicht willst?“
+
+„Weil ich bleiben will.“
 
 Oswin stand auf, wankte kurz und fing sich. Seine Stirn blutete noch. Am Arm hatte er einen langen Schnitt. Nicht tief genug, um ihn sofort umzubringen, was Taron in diesem Moment als gute Nachricht einstufte. Seine Maßstäbe hatten sich dem Tag angepasst.
 
