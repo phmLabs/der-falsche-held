@@ -216,16 +216,6 @@ Taron sah das Kästchen an.
 
 „Das klingt besser.“
 
-„Das klingt albern.“
-
-„Aber magischer.“
-
-„Genau deshalb ist es schlechter.“
-
-Der Erzähler sagte: „Ich persönlich hätte Nebel der plötzlichen Selbsterhaltung vorgeschlagen.“
-
-„Niemand wird gefragt“, sagte Taron.
-
 Merlan zog ein kleines Stück Leder hervor und wickelte das Kästchen darin ein. „Bewahr sie trocken auf. Nicht in der Nähe von Feuer. Nicht unter etwas Schwerem. Nicht in einer Tasche mit Nägeln, Münzen oder ritterlichen Erinnerungsstücken.“
 
 Oswin nickte, als sei jeder dieser Punkte aus guten Gründen entstanden.
