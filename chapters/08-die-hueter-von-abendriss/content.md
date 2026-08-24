@@ -86,17 +86,11 @@ Er beugte sich vor.
 
 „Nein“, sagte der Erzähler.
 
-Taron zuckte zusammen. „Du bist doch da.“
-
-„Leider.“
-
 „Was steht da?“
 
 „Nichts, was besser wird, wenn du es laut vorliest.“
 
 „Ich kann es nicht laut vorlesen. Ich kann es gar nicht lesen.“
-
-„Eine seltene Form von Sicherheit.“
 
 Oswin berührte Tarons Arm und schüttelte den Kopf. Dann deutete er nach vorn.
 
@@ -135,12 +129,6 @@ Oswin berührte zwei Finger an seine Lippen.
 „Für sie.“
 
 Dann zeigte er auf die Seitengänge.
-
-Der Erzähler sagte: „Endlich. Eine Wegbeschreibung, die nicht für euch gedacht ist. Das macht sie deutlich zuverlässiger.“
-
-„Woran erkennen wir dann, was sie bedeutet?“
-
-„Gar nicht. Das ist der Kern der Erfahrung.“
 
 Oswin nahm ein Steinchen vom Ende der Linie und legte es zwei Handbreit daneben.
 
