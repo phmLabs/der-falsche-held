@@ -1,5 +1,4 @@
-- Merlan untersucht die drei Abschriften: Es gibt drei Eidschlüssel (einer gehört den Zwergen), als nächster Schritt gilt der Menschenschlüssel; ein verschmierter Randvermerk lässt vor „Freiheit“ ein fehlendes Wort offen.
-- Taron soll gerade wegen fehlender Blutlinie und Ansprüche gehen; Merlan begleitet nicht und behält die gute Abschrift.
-- Statt Magie gibt Merlan Taron eine einmalige Rauchkugel mit der Anweisung zu fliehen; Oswin bestätigt deren Nützlichkeit aus Kriegs­erfahrung.
-- Mit strikten Regeln für den Turm (nur den Schlüssel nehmen, nichts laut lesen, keine unpassenden Türen öffnen) reiten Taron und Oswin nach Westen, sehen Grenzsteine mit Menschenschlüssel-Zeichen, keine frischen Spuren und schwarze Verfärbungen.
-- Bei Dämmerung erreichen sie den glatten, dunklen, scheinbar eingangslosen Turm von Abendriss; offen bleibt das fehlende Wort der Prophezeiung, wie sie hineinkommen, welche Gefahren warten und ob Rauchkugel und Regeln genügen.
+- Merlan, Taron und Oswin prüfen drei Abschriften: Die Prophezeiung spricht eindeutig von drei Eidschlüsseln (einer gehört den Zwergen), der Menschenschlüssel ist nur der nächste Schritt, und Taron ist ausgerechnet wegen fehlender Ansprüche/Abstammung geeignet; in der ältesten Randzeile ist vor „Freiheit“ ein ausgelöschtes Wort.
+- Merlan begleitet sie nicht, verweigert Magie, gibt stattdessen eine einmalige Rauchkugel (von Oswin als Kriegs-Rauchmittel erkannt) und strikte Regeln für den Turm von Abendriss.
+- Taron und Oswin brechen auf, finden Grenzsteine mit Menschenschlüssel-Zeichen, bemerken fehlende Spuren und unheimliche Stille.
+- Sie erreichen den dunklen, fensterlosen Turm; offen bleibt, welches Wort vor „Freiheit“ fehlt, was sie im Turm erwartet und ob Rauchkugel und Tarons Anspruchslosigkeit ihnen dort nützen.

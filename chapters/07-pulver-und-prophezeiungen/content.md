@@ -118,21 +118,9 @@ Merlan stand auf.
 
 Das war offenbar kein dramatischer Moment, aber Taron hielt trotzdem den Atem an. In Merlans Haus hatte selbst ein Gang zu einem Regal die Möglichkeit, das Leben schwieriger zu machen.
 
-Der Gelehrte ging zu einem schmalen Schrank neben dem Ofen. Der Schrank war aus dunklem Holz und mit drei kleinen Schlössern versehen. Merlan zog einen Schlüssel aus seiner Westentasche, dann einen zweiten aus einem Band an seinem Handgelenk und einen dritten aus einer Stelle, an der Taron keinen Schlüssel vermutet hätte und über die er nicht nachdenken wollte.
+Der Gelehrte ging zu einem schmalen Schrank neben dem Ofen. Der Schrank war aus dunklem Holz und mit drei kleinen Schlössern versehen. Merlan zog einen Schlüssel aus seiner Westentasche, dann einen zweiten aus einem Band an seinem Handgelenk.
 
 „Das sieht nach Magie aus“, sagte Taron.
-
-„Das sieht nach Vorsicht aus.“
-
-„Warum braucht Vorsicht drei Schlüssel?“
-
-„Weil Menschen einen verlieren.“
-
-„Und die anderen beiden?“
-
-„Weil Menschen lügen.“
-
-Oswin nickte ernst. Das war offenbar ein Grundsatz, den auch Ritter anerkannten.
 
 Merlan öffnete den Schrank. Darin lag kein leuchtender Stab, kein Amulett, keine Phiole mit flüssigem Sternenlicht. Darin lagen kleine Kästchen, jedes sauber beschriftet. Merlan nahm eines heraus. Es war aus hellem Holz, kaum größer als Tarons Hand, und mit rotem Faden verschnürt.
 
