@@ -1038,24 +1038,12 @@ Unter ihm lagen Gänge, Stimmen, Masken und Tote. Über ihm lag eine Prophezeiun
 
 Der Ritter sah nicht zu ihm.
 
-„Beim nächsten Mal benutze ich sie vielleicht.“
+„Beim nächsten Mal benutze ich sie.“
 
 Oswin atmete langsam aus.
-
-„Vielleicht“, sagte er, „ist ein gefährliches Wort.“
-
-Taron nickte.
-
-Der Erzähler sagte: „Fortschritt. Er erkennt Wörter als Bedrohung.“
-
-Diesmal musste Taron doch beinahe lächeln.
-
-Nur beinahe.
 
 Hinter ihnen blieb Abendriss dunkel.
 
 Vor ihnen lag die Straße nach Waldkirch, und irgendwo jenseits davon lagen zwei weitere Schlüssel.
 
 Taron hatte das Gefühl, dass der Tag ihm sehr deutlich erklärt hatte, was er von einfachen Plänen hielt.
-
-Er nahm es persönlich.
