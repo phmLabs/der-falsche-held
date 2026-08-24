@@ -4,19 +4,11 @@ Taron hätte die Rauchkugel geworfen, wenn der Turm danach ebenfalls verschwunde
 
 Leider hatte Merlan nichts davon gesagt, dass Rauch alte Bauwerke entfernte. Er hatte überhaupt erstaunlich viele Dinge nicht gesagt, die Taron jetzt nützlich gefunden hätte.
 
-„Gut“, sagte Taron noch einmal, weil er offenbar entschlossen war, aus demselben Fehler eine Gewohnheit zu machen.
-
-Oswin antwortete nicht. Er saß auf Sternfall und betrachtete den Turm mit der ruhigen Unzufriedenheit eines Mannes, der in seinem Leben schon zu viele Mauern gesehen hatte, hinter denen andere Männer sterben sollten.
+Oswin saß auf Sternfall und betrachtete den Turm mit der ruhigen Unzufriedenheit eines Mannes, der in seinem Leben schon zu viele Mauern gesehen hatte, hinter denen zu viel Gefahr für zwei Personen lauerte.
 
 Der Erzähler hielt sich ebenfalls heraus.
 
-Das war das Beunruhigendste.
-
-„Du könntest jetzt etwas sagen“, murmelte Taron.
-
-„Könnte ich.“
-
-„Etwas Hilfreiches.“
+„Du könntest jetzt etwas Hilfreiches sagen“, murmelte Taron.
 
 „Das schränkt die Auswahl unnötig ein.“
 
