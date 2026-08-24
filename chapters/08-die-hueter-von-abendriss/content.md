@@ -1016,8 +1016,6 @@ Der Hüter stand sehr still.
 
 Das war keine Drohung.
 
-Das war schlimmer. Es klang wie Erfahrung.
-
 „Wie heißt du?“, rief Taron.
 
 Der Hüter zögerte.
@@ -1025,12 +1023,6 @@ Der Hüter zögerte.
 „Neral.“
 
 „Danke, Neral.“
-
-„Dank ist Anspruch in höflicher Kleidung.“
-
-Taron starrte ihn an.
-
-„Ihr seid wirklich so.“
 
 Neral wandte sich ab und verschwand zwischen den Mauerresten.
 
