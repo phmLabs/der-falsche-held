@@ -364,8 +364,6 @@ Der erste Hüter neigte den Kopf.
 
 „Ich nicht gern.“
 
-„Alle sagen das auch.“
-
 Der zweite Hüter hob seine Klinge.
 
 Oswin bewegte sich zuerst.
@@ -398,8 +396,6 @@ Das war Merlans seltenes Mittel. Vielleicht der einzige echte Schutz, den sie ha
 
 Es war kein Spott in seiner Stimme.
 
-Das machte es schlimmer.
-
 Oswin wurde gegen die Wand gedrängt. Einer der Hüter rammte ihm die Schulter in die Brust. Der Ritter schlug ihn zurück, aber der zweite kam tief, mit einer kurzen Klinge.
 
 Taron hatte die Rauchkugel in der Hand.
@@ -410,13 +406,11 @@ Er steckte sie wieder ein.
 
 „Nicht jetzt“, flüsterte er.
 
-„Eine Entscheidung“, sagte der Erzähler leise, „von jener Sorte, die Überlebende später Mut nennen, sofern ihnen niemand die Einzelheiten erklärt.“
+„Eine Entscheidung“, sagte der Erzähler leise, „von jener Sorte, die Überlebende später Mut nennen, Falls sie überleben.“
 
 Taron griff stattdessen nach der erloschenen Lampe an seinem Gürtel und warf sie.
 
-Nicht gut.
-
-Nicht gezielt.
+Nicht gut. Nicht gezielt.
 
 Aber sie traf den zweiten Hüter an der Maske. Glas zerbrach. Öl spritzte. Der Hüter taumelte zurück. Oswin nutzte den Atemzug, stieß den ersten mit dem Schwertgriff nieder und trat dem zweiten das Bein weg. Beide fielen. Einer blieb reglos. Der andere kroch nach hinten.
 
@@ -430,11 +424,7 @@ Der Hüter unter der Klinge atmete schwer. Seine Maske war auf einer Seite gespr
 
 „Bitte“, sagte Taron.
 
-Oswin sah ihn an.
-
-Es war kein freundlicher Blick.
-
-Aber er nahm die Klinge weg.
+Oswin sah ihn an. Es war kein freundlicher Blick. Aber er nahm die Klinge weg.
 
 Der Hüter blieb liegen.
 
@@ -443,16 +433,6 @@ Taron kniete sich vor ihn, was vermutlich sehr dumm war, aber es gab Augenblicke
 „Wir wollen den Schlüssel, aber nicht für uns“, sagte Taron. „Wir müssen ihn nach Waldkirch bringen.“
 
 Der Hüter lachte. Es klang trocken und tat ihm weh.
-
-„Waldkirch.“
-
-„Ja.“
-
-„Könige wechseln. Worte bleiben.“
-
-„Das sagt ihr alle so, als würde es helfen.“
-
-„Es half lange.“
 
 Taron sah zu Oswin. Der Ritter stand mit erhobenem Schwert im Gang und lauschte. Von weit hinten kamen Schritte. Viele Schritte, aber langsam. Die Hüter hetzten sie nicht mehr. Sie schlossen Wege.
 
