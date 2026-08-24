@@ -316,16 +316,6 @@ Taron rieb sich den Nacken. „Vielleicht ist der Turm verlassen.“
 
 Oswin sah ihn an. „Ich weiß“, sagte Taron. „Das war ein Versuch.“
 
-„Ein erkennbarer.“
-
-„Ein schlechter?“
-
-„Ja.“
-
-„Ich habe das Gefühl, du wirst gesprächiger, wenn du mich enttäuschst.“
-
-„Übung.“
-
 Gegen Abend wurde es stiller.
 
 Nicht still. Es gab Wind, das Knacken von Zweigen, Kummers Atem, Sternfalls Hufschlag. Aber der übliche Lärm fehlte. Keine Hunde. Keine fernen Stimmen. Keine Axt auf Holz. Nicht einmal viele Vögel. Die Welt hinter der Grenze hatte nicht aufgehört zu leben, aber sie tat es leiser, als wolle sie nicht anwesend sein, wenn jemand fragte.
@@ -340,17 +330,9 @@ Sie standen nicht groß genug da, um sofort als Ruinen erkannt zu werden. Ein ni
 
 Oswin zog Sternfall langsamer.
 
-„Nein.“
-
 „Merlan sagte, Abendriss war eine Burg.“
 
-„Ja.“
-
-„Ich dachte, er meint damit: Da war noch eine Mauer oder so.“
-
-„Da war mehr.“
-
-„Das wäre eine gute Stelle gewesen, das früher zu sagen.“
+„Ich dachte, er meint damit: Da war noch eine Mauer oder so. Das wäre eine gute Stelle gewesen, das früher zu sagen.“
 
 Der Erzähler sagte: „Zu seiner Verteidigung: Er tat es. Du hast nur eine kleinere Vorstellung behalten, weil sie weniger Platz für Unheil ließ.“
 
