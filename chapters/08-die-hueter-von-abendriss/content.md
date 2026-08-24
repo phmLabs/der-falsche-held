@@ -192,7 +192,15 @@ Das Geräusch der Klinge war nicht laut. Trotzdem füllte es den Gang.
 
 Aus einem Seitendurchlass weit hinten kam ein Flüstern.
 
+„Kein Blut.“
+
+Pause.
+
 „Kein Anspruch.“
+
+Von rechts antwortete eine zweite Stimme.
+
+„Kein König.“
 
 Taron erstarrte.
 
@@ -202,15 +210,13 @@ Oswin bewegte sich vor ihn.
 
 „Ja“, sagte Oswin.
 
-„Gut.“
-
-Der Ritter sah ihn an.
-
-„Nicht gut. Nur besser als nur ich.“
-
 Das Flüstern kam erneut. Diesmal von rechts, näher.
 
-„Kein Blut.“
+„Drei Schlüssel binden.“
+
+Aus dem linken Gang antwortete es:
+
+„Drei Schlüssel lösen.“
 
 Taron hob die Lampe höher. Der Schein reichte bis zu einer Wand, zu einem Riss darin, zu nichts.
 
@@ -224,21 +230,9 @@ Das Gesicht war weg.
 
 „Ich habe etwas gesehen.“
 
-„Ich auch“, sagte Oswin.
-
-„Du auch?“
-
-„Leider.“
-
-„Dann hasse ich es weniger.“
-
 Der schwarze Vorhang bewegte sich.
 
-Nicht viel.
-
-Gerade genug.
-
-Oswin stieß Taron zurück.
+Nicht viel. Gerade genug. Oswin stieß Taron zurück.
 
 Etwas schoss aus dem Stoff. Kein Tier. Kein Schatten. Eine graue Gestalt, eng am Körper gewickelt, mit diesem falschen Gesicht und einer kurzen Klinge in der Hand. Oswin fing den ersten Schlag mit dem Schwert ab, drehte sich seitlich und trat die Gestalt gegen die Wand.
 
@@ -258,7 +252,7 @@ Es war kein Ruf. Es war ein Befehl.
 
 Taron ließ sich fallen.
 
-Über ihm zischte eine Klinge durch die Luft. Oswin war schon da. Er bewegte sich anders als sonst. Kein taumelnder Ritter, kein schöner Betrunkener, kein Mann mit zu viel Vergangenheit im Blick. Er war plötzlich gerade, schnell und erschreckend nüchtern. Sein Schwert schlug einmal, zweimal. Ein Körper fiel.
+Über ihm zischte eine Klinge durch die Luft. Oswin war schon da. Er bewegte sich anders als sonst. Kein taumelnder Ritter, kein schöner Betrunkener, kein Mann mit zu viel Vergangenheit im Blick. Er war plötzlich gerade, schnell und erschreckend anwesend. Sein Schwert schlug einmal, zweimal. Ein Körper fiel.
 
 Die zweite Gestalt wich zurück und verschwand hinter dem Vorhang.
 
@@ -274,11 +268,7 @@ Was Taron für ein Gesicht gehalten hatte, war keines.
 
 Oswin kniete sich hin, griff an den Rand des dunklen Leders und zog es ab.
 
-Darunter war kein Maul.
-
-Keine alte Fratze.
-
-Kein Wesen aus einer Geschichte, bei der Kinder näher ans Feuer rückten.
+Darunter war kein Maul. Keine alte Fratze. Kein Wesen aus einer Geschichte, bei der Kinder näher ans Feuer rückten.
 
 Darunter war ein Mann. Vielleicht dreißig. Vielleicht jünger. Schweiß klebte ihm die Haare an die Stirn. Er hatte Sommersprossen auf der Nase und eine Narbe an der Lippe, schlecht verheilt. Seine Augen suchten einen Punkt über Taron und fanden ihn nicht.
 
@@ -299,12 +289,6 @@ Nichts.
 „Es sind Menschen“, sagte Taron.
 
 „Ja.“
-
-„Sie haben uns angegriffen.“
-
-„Auch ja.“
-
-„Ich weiß.“
 
 Der Ritter hob die Maske auf. Innen war dunkles Tuch befestigt, mit einer Schicht aus Kohle und etwas Feinfasrigem. Kein Zauber. Schutz gegen Staub, Rauch, vielleicht gegen Gestank.
 
@@ -331,8 +315,6 @@ Nicht viele. Drei, vier. Genug.
 Sie rannten.
 
 Der Gang führte abwärts, dann wieder aufwärts. Taron hielt die Lampe fest, obwohl sie wild hin und her schwang und kaum half. Links öffnete sich ein schmaler Spalt. Aus ihm kam ein Arm mit einer Klinge. Oswin schlug mit dem Knauf seines Schwertes dagegen. Knochen knackte. Der Arm verschwand.
-
-Taron wollte sich entschuldigen und tat es nicht. Dafür war keine Luft da.
 
 „Links“, sagte der Erzähler.
 
@@ -368,9 +350,9 @@ Taron prallte fast gegen seinen Rücken.
 
 Seine Stimme war nicht alt. Auch nicht tief. Sie war die Stimme eines Menschen, der sie absichtlich flach hielt.
 
-„Kein Orden“, sagte der andere.
+„Kein König“, sagte der andere.
 
-Taron hob eine Hand. „Ja. Gut. Das stimmt alles. Kein Blut. Kein Orden. Kein Anspruch. Genau genommen habe ich nicht einmal ein gutes Paar Stiefel, wenn man ehrlich ist.“
+Taron hob eine Hand. „Ja. Gut. Das stimmt alles. Kein Blut. Kein König. Kein Anspruch. Genau genommen habe ich nicht einmal ein gutes Paar Stiefel, wenn man ehrlich ist.“
 
 Oswin sah ihn nicht an, aber Taron spürte die Missbilligung.
 
