@@ -394,12 +394,6 @@ Taron zählte innerlich bis fünf, dann bis sieben. „Es gibt eine Kapelle in W
 
 Oswin nickte. „Er hat nicht ganz Unrecht.“
 
-„Was ihn wirklich gefährlich macht, ist, dass er möchte, dass alles einen Platz hat. Und dass er die Plätze aussucht.“
-
-Der Erzähler sagte: „Auch du magst Plätze. Du nennst sie Ställe.“
-
-„Meine Plätze riechen nach Heu, nicht nach Weihrauch.“
-
 Als der Nachmittag tiefer wurde, erzählte Oswin, ohne dass Taron gefragt hatte. „Ich war dreizehn, als ich Hohenklamm zum ersten Mal verließ“, sagte er. „Ich dachte, die Welt sei größer und würde dadurch netter. Sie war nur größer. Ich habe gelernt, dass das eine mit dem anderen nichts zu tun hat. Ich bin zu einem Ritter gekommen, der aussah, als hätten Gebirge beschlossen, laufen zu lernen. Er hat mir beigebracht, keine Abdrücke zu hinterlassen, wenn ich sie nicht will. Und dass Hinsehen nicht Gnade ist. Es ist Pflicht.“
 
 „Das mit den Abdrücken gelingt dir schlecht“, sagte Taron und sah auf die Spuren ihrer Hufe.
