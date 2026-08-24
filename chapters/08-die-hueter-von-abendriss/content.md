@@ -1,12 +1,14 @@
 Der Turm stand noch immer dort.
 
-Taron hatte in den letzten Tagen gelernt, dass dies keine Selbstverständlichkeit war. Dinge verschwanden. Leute verschwanden. Pläne verschwanden am schnellsten, meistens kurz nachdem man sie laut ausgesprochen hatte. Aber der Turm von Abendriss stand in der Senke, dunkel, glatt und ohne jedes Licht.
+Taron hätte die Rauchkugel geworfen, wenn der Turm danach ebenfalls verschwunden wäre. Das wäre seiner Meinung nach ein angemessener Einsatz für ein Mittel gewesen, das Merlan mit so viel Sorgfalt überreicht hatte.
+
+Leider hatte Merlan nichts davon gesagt, dass Rauch alte Bauwerke entfernte. Er hatte überhaupt erstaunlich viele Dinge nicht gesagt, die Taron jetzt nützlich gefunden hätte.
 
 „Gut“, sagte Taron noch einmal, weil er offenbar entschlossen war, aus demselben Fehler eine Gewohnheit zu machen.
 
 Oswin antwortete nicht. Er saß auf Sternfall und betrachtete den Turm mit der ruhigen Unzufriedenheit eines Mannes, der in seinem Leben schon zu viele Mauern gesehen hatte, hinter denen andere Männer sterben sollten.
 
-Der Erzähler schwieg ebenfalls.
+Der Erzähler hielt sich ebenfalls heraus.
 
 Das war das Beunruhigendste.
 
@@ -18,7 +20,7 @@ Das war das Beunruhigendste.
 
 „Das schränkt die Auswahl unnötig ein.“
 
-Taron atmete aus. Es war merkwürdig, wie sehr ihn die Stimme gleichzeitig beruhigen und ärgern konnte. Wenn sie redete, wollte er Ruhe. Wenn sie schwieg, wollte er, dass sie redete. Das war vermutlich eine Form von Freundschaft, aber eine schlechte, die man keinem Priester hätte erklären sollen.
+Taron atmete aus. Es war merkwürdig, wie sehr ihn die Stimme gleichzeitig beruhigen und ärgern konnte. Wenn sie redete, wollte er Ruhe. Wenn sie schwieg, wollte er, dass sie redete. Das war vermutlich eine Form von Freundschaft.
 
 Oswin hob eine Hand.
 
@@ -678,7 +680,7 @@ Oswin sah ihn an.
 
 Oswin blickte scharf zu ihnen.
 
-Auch der Erzähler schwieg wieder.
+Auch aus Tarons Kopf kam nichts.
 
 „Welchen Fehler?“, fragte Taron.
 
@@ -814,7 +816,7 @@ Taron schloss die Augen.
 
 „Hilf mir.“
 
-Der Erzähler schwieg einen Atemzug lang.
+Der Erzähler antwortete nicht sofort.
 
 Dann sagte er: „Was hast du, das kein Anspruch ist?“
 
@@ -1098,7 +1100,7 @@ Der Erzähler räusperte sich in seinem Kopf.
 
 Taron lachte nicht.
 
-Der Erzähler schwieg danach.
+Danach blieb der Kommentar aus.
 
 Das gefiel Taron fast weniger.
 
