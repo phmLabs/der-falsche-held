@@ -134,8 +134,6 @@ Merlan löste den Faden sehr langsam. „Es ist ein Mittel, das zwischen dir und
 
 „Das klingt nach Schutzzauber.“
 
-„Es klingt nach einem Satz, den ich bewusst gewählt habe.“
-
 Im Kästchen lag eine kleine Kugel aus dunklem Ton. Sie war mit Wachs versiegelt. In das Wachs war ein Zeichen gedrückt: kein heiliger Stern, kein Zaubersiegel, sondern ein schlichtes Dreieck mit drei Punkten.
 
 Taron flüsterte: „Was macht sie?“
@@ -150,19 +148,13 @@ Merlan sah ihn an.
 
 Der Blick dauerte einen Moment zu lang.
 
-„Seltener Rauch“, sagte Merlan.
+„Also gut, magischer Rauch“, sagte Merlan.
 
-Der Erzähler machte ein Geräusch, das sehr nah an einem Lachen lag und gerade weit genug davon entfernt blieb, um später alles abstreiten zu können.
+Der Erzähler machte ein Geräusch, das sehr nah an einem Lachen lag.
 
 Taron ignorierte ihn.
 
 „Und der schützt mich?“
-
-„Wenn dein Gegner nichts sieht, hat er es schwerer, dich sauber zu töten.“
-
-„Das ist ja fast poetisch.“
-
-„Nein. Das ist praktisch.“
 
 Oswin beugte sich vor.
 
