@@ -478,7 +478,7 @@ Taron drehte das kleine Lederpäckchen mit der Rauchkugel noch einmal zwischen d
 
 Oswin saß wach, wie Wachen das tun, die nicht mit Geschichten verwechseln, was wach sein heißt. Taron schaffte es, für eine Weile zu vergessen, dass der Turm existierte. Als er von Oswins Hand an seiner Schulter geweckt wurde, war der Himmel blasser, als wolle er gleich erklären, dass er heute nichts Dramatisches vorhabe.
 
-„Deine Reihe“, sagte Oswin. Sein Gesicht war ruhig. Die Müdigkeit stand darin wie ein vertrauter Gast.
+„Deine Schicht“, sagte Oswin. Sein Gesicht war ruhig. Die Müdigkeit stand darin wie ein vertrauter Gast.
 
 Taron setzte sich auf, zog den Mantel dichter, nahm Kummers Zügel einmal in die Hand, nur um etwas zu halten, das lebendig war. Er lauschte. Wind. Pferd. Eigene Angst.
 

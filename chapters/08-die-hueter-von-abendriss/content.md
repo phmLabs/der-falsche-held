@@ -1,6 +1,6 @@
 Der Turm stand noch immer dort.
 
-Taron hatte in den letzten Tagen gelernt, dass dies keine Selbstverständlichkeit war. Dinge verschwanden. Leute verschwanden. Pläne verschwanden am schnellsten, meistens kurz nachdem man sie laut ausgesprochen hatte. Aber der Turm von Abendriss stand in der Senke, dunkel, glatt und schweigsam, als habe er nie etwas anderes getan.
+Taron hatte in den letzten Tagen gelernt, dass dies keine Selbstverständlichkeit war. Dinge verschwanden. Leute verschwanden. Pläne verschwanden am schnellsten, meistens kurz nachdem man sie laut ausgesprochen hatte. Aber der Turm von Abendriss stand in der Senke, dunkel, glatt und ohne jedes Licht.
 
 „Gut“, sagte Taron noch einmal, weil er offenbar entschlossen war, aus demselben Fehler eine Gewohnheit zu machen.
 
@@ -34,7 +34,7 @@ Oder das, was davon übrig war.
 
 Oswin zog die Brauen zusammen.
 
-Sie ritten langsam weiter. Der Weg senkte sich zwischen Fichten hindurch. Je näher sie kamen, desto mehr Linien erschienen im Gras: Grundmauern, niedrige Steine, halb versunkene Stufen, ein rechteckiger Platz, auf dem nichts mehr stand. Der Turm war nicht allein. Er war nur der Teil, der sich am längsten geweigert hatte, zu fallen.
+Sie ritten langsam weiter. Der Weg senkte sich zwischen Fichten hindurch. Je näher sie kamen, desto mehr Linien erschienen im Gras: Grundmauern, niedrige Steine, halb versunkene Stufen, ein rechteckiger Platz, auf dem nichts mehr stand. Der Turm war nicht allein. Von der alten Burg war er nur der höchste Rest.
 
 „Merlan hat das gesagt“, flüsterte Taron. „Er hat gesagt, Abendriss war eine Burg.“
 
@@ -50,7 +50,7 @@ Sie ritten langsam weiter. Der Weg senkte sich zwischen Fichten hindurch. Je nä
 
 Oswin stieg ab.
 
-Das allein reichte, um Taron ebenfalls vom Pferd steigen zu lassen. Wenn Oswin freiwillig zu Fuß ging, gab es dafür entweder einen guten Grund oder der Boden war bereits dabei, einen schlechten vorzubereiten.
+Das allein reichte, um Taron ebenfalls vom Pferd steigen zu lassen. Wenn Oswin freiwillig zu Fuß ging, gab es dafür entweder einen guten Grund oder einen schlechten in unmittelbarer Nähe.
 
 Sie banden Kummer und Sternfall in einer Senke zwischen zwei Fichten an. Oswin nahm sein Schwert, zog es aber nicht. Taron zog sein eigenes Messer und fühlte sich damit sofort wie jemand, der versucht hatte, einen Sturm mit Besteck zu beeindrucken.
 
@@ -72,7 +72,7 @@ Der Ritter deutete auf den Turm.
 
 Oswin ging voran.
 
-Die Ruinen von Abendriss lagen tiefer, als Taron zuerst geglaubt hatte. Der Boden fiel nicht steil ab, sondern in kleinen Stufen, als sei die ganze Burg langsam in die Erde gesunken. Zwischen den Mauern wuchsen Büsche, deren Zweige an alten Steinen kratzten. Hier und da standen noch Bögen ohne Türen. Ein Brunnen lag in der Mitte eines Hofes, aber als Taron hineinblickte, sah er keine Tiefe, sondern eine schmale Treppe, die in Dunkelheit führte.
+Die Ruinen von Abendriss lagen tiefer, als Taron zuerst geglaubt hatte. Der Boden fiel nicht steil ab, sondern in kleinen Stufen. Zwischen den Mauern wuchsen Büsche, ihre Zweige kratzten an alten Steinen. Hier und da standen noch Bögen ohne Türen. Ein Brunnen lag in der Mitte eines Hofes, aber als Taron hineinblickte, sah er keine Tiefe, sondern eine schmale Treppe ins Dunkel.
 
 „Das ist kein Brunnen“, sagte er.
 
@@ -96,7 +96,7 @@ Oswin zog ein kleines Öllämpchen aus seinem Gepäck, entzündete es und reicht
 
 Sie stiegen hinab.
 
-Die ersten Stufen waren breit und feucht. Danach wurden sie schmaler. Der Stein war alt, aber nicht brüchig. Er trug ihre Schritte ohne Knirschen, ohne lose Kanten, ohne jene kleinen Warnungen, für die Taron dankbar gewesen wäre. Nach wenigen Atemzügen war der Hof über ihnen nur noch ein graues Rechteck.
+Die ersten Stufen waren breit und feucht. Danach wurden sie schmaler. Der Stein war alt, aber nicht brüchig. Ihre Schritte klangen kaum, und es gab keine losen Kanten, keine kleinen Warnungen, für die Taron dankbar gewesen wäre. Nach wenigen Atemzügen war der Hof über ihnen nur noch ein graues Rechteck.
 
 Dann verschwand auch das.
 
@@ -138,7 +138,7 @@ Oswin berührte Tarons Arm und schüttelte den Kopf. Dann deutete er nach vorn.
 
 Sie kamen an eine Stelle, an der der Gang sich in fünf Richtungen teilte.
 
-Taron blieb stehen und hob die Lampe. Der Schein reichte in jeden Durchlass nur ein paar Schritte weit, dann nahm die Dunkelheit wieder alles zurück. An der Decke hingen alte Eisenringe. An einem davon klemmte ein Stück Seil, so hart und grau, dass es eher wie eine Wurzel aussah. Auf dem Boden lagen kleine helle Steinchen in einer Linie.
+Taron blieb stehen und hob die Lampe. Der Schein reichte in jeden Durchlass nur ein paar Schritte weit, dahinter blieb alles schwarz. An der Decke hingen alte Eisenringe. An einem davon klemmte ein Stück Seil, so hart und grau, dass es eher wie eine Wurzel aussah. Auf dem Boden lagen kleine helle Steinchen in einer Linie.
 
 Oswin ging in die Hocke.
 
@@ -236,7 +236,7 @@ Oswin sah auf die Namen unter den Masken.
 
 Der Erzähler sagte: „Eide sind oft billiger als Mauern. Darum halten sie manchmal länger.“
 
-Taron wollte eine spitze Antwort geben, aber keine kam. Nicht, weil ihm keine einfiel. Weil der Raum sie nicht verdient hatte.
+Taron wollte eine spitze Antwort geben, aber keine kam. Nicht, weil ihm keine einfiel. In diesem Raum hätte sie falsch geklungen.
 
 Aus der Kammer führte ein weiterer Gang hinaus. Auf seinem Boden lag Staub. Echter Staub diesmal, dick und ungestört. Oswin ging nicht hinein. Er zeigte auf den Staub und dann auf die Wand daneben.
 
@@ -350,9 +350,9 @@ Ein zweiter kam von rechts.
 
 Taron sah nur Bewegung. Grau, Leder, Metall. Dann war der Mann vor ihm. Taron hob das Messer, viel zu spät. Der Angreifer schlug ihm die Lampe aus der Hand.
 
-Dunkelheit sprang in den Raum.
+Der Raum wurde dunkel.
 
-Nein, dachte Taron. Nicht sprang. Es wurde einfach dunkel. Merlan hätte das vermutlich besser formuliert und dabei niemandem geholfen.
+Sehr dunkel. Merlan hätte das vermutlich besser formuliert und dabei niemandem geholfen.
 
 Oswins Schwert traf etwas Hartes. Ein Mann keuchte. Taron stolperte rückwärts, stieß gegen ein Holzgestell und bekam Holzspäne in den Rücken. Eine Hand packte seinen Ärmel. Er riss sich los, schlug mit dem Messer, traf Stoff, vielleicht Haut, vielleicht gar nichts.
 
@@ -458,7 +458,7 @@ Taron hätte beinahe gelacht. Nicht aus Freude. Aus dem schlechten Teil von Angs
 
 „Du wirkst wie jemand, der Ergebnisse schätzt.“
 
-Der neue Gang war noch enger. Oswin musste seitlich gehen. Taron kam leichter hindurch, was ihn nur kurz stolz machte, denn am Ende des Ganges warteten zwei Masken.
+Der neue Gang war noch enger. Oswin musste seitlich gehen. Taron kam leichter hindurch, was ihn nur kurz stolz machte, denn am Ende des Ganges standen zwei Masken.
 
 Sie standen still.
 
@@ -514,7 +514,7 @@ Wenn er es warf, kam Rauch. Wenn Rauch kam, liefen sie. Merlan hatte es gesagt. 
 
 Viel zu einfach.
 
-Das war Merlans seltenes Mittel. Vielleicht der einzige echte Schutz, den sie hatten. Vielleicht brauchten sie es für den Turm selbst, für den Schlüssel, für etwas Tieferes, für den Augenblick, in dem der Boden aufging oder ein alter Eid persönlich beleidigt aus einer Wand trat.
+Das war Merlans seltenes Mittel. Vielleicht der einzige echte Schutz, den sie hatten. Vielleicht brauchten sie es für den Turm selbst, für den Schlüssel, für etwas Tieferes, für den Augenblick, in dem unter ihnen Stein brach oder hinter einer Wand Schritte kamen.
 
 „Taron“, sagte der Erzähler.
 
@@ -682,7 +682,7 @@ Auch der Erzähler schwieg wieder.
 
 „Welchen Fehler?“, fragte Taron.
 
-Der Hüter atmete langsam ein. „Drei Schlüssel. Drei Eide. Ein Schloss. Wenn sie getrennt sind, erinnern sie die Völker daran, dass nicht alles ihnen gehört. Wenn sie zusammenkommen, erinnern sie das Schloss daran, dass es öffnen kann.“
+Der Hüter atmete langsam ein. „Drei Schlüssel. Drei Eide. Ein Schloss. Wenn sie getrennt sind, erinnern sie die Völker daran, dass nicht alles ihnen gehört. Wenn sie zusammenkommen, ist das Schloss nicht länger gebunden.“
 
 Taron spürte Kälte im Bauch. Nicht die kalte Luft der Gänge. Etwas Inneres.
 
@@ -844,7 +844,7 @@ Taron legte beide Hände an die glatte Wand.
 
 „Ich habe keinen Anspruch“, sagte er leiser. „Keinen Namen, der ihn verlangt. Kein Blut, das ihn erbt. Kein Recht. Ich will ihn nicht besitzen. Ich will ihn tragen, weil alle anderen, die ihn haben wollen, mir noch weniger gefallen.“
 
-Der Stein blieb still.
+Nichts geschah.
 
 „Und wenn das nicht reicht“, fügte Taron hinzu, „dann ist diese alte Burg schlechter organisiert als Merlans Schrank.“
 
@@ -862,7 +862,7 @@ Taron nahm ihn nicht sofort.
 
 Das war neu.
 
-Früher hätte er ihn genommen, weil alle ihn angeschrien hätten, sich zu beeilen. Jetzt sah er ihn an und wartete auf den Haken. Auf die Falle. Auf die Stimme. Auf das alte Schloss irgendwo in der Welt, das sich räusperte.
+Früher hätte er ihn genommen, weil alle ihn angeschrien hätten, sich zu beeilen. Jetzt sah er ihn an und wartete auf den Haken. Auf die Falle. Auf die Stimme. Auf irgendein Zeichen dafür, dass noch etwas fehlte.
 
 Oswin trat neben ihn.
 
@@ -1080,7 +1080,7 @@ Nicht freundlich.
 
 Aber auch nicht leer.
 
-Taron setzte sich auf. In seiner Hand lag der Menschenschlüssel. Dunkel, schlicht, kalt. Kein Jubel stieg in ihm auf. Keine Musik. Kein Gefühl, dass die Welt jetzt besser verstanden hatte, was sie mit ihm anfangen sollte.
+Taron setzte sich auf. In seiner Hand lag der Menschenschlüssel. Dunkel, schlicht, kalt. Kein Jubel stieg in ihm auf. Keine Musik. Kein Gefühl, dass irgendetwas dadurch einfacher geworden war.
 
 Er dachte an den Mann unter der ersten Maske.
 
@@ -1178,7 +1178,7 @@ Nur beinahe.
 
 Hinter ihnen blieb Abendriss dunkel.
 
-Vor ihnen wartete die Straße nach Waldkirch, und irgendwo jenseits davon warteten zwei weitere Schlüssel.
+Vor ihnen lag die Straße nach Waldkirch, und irgendwo jenseits davon lagen zwei weitere Schlüssel.
 
 Taron hatte das Gefühl, dass der Tag ihm sehr deutlich erklärt hatte, was er von einfachen Plänen hielt.
 
