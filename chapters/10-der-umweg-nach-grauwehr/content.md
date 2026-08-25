@@ -110,8 +110,6 @@ Oswin hob eine Braue.
 
 „Ich sehe ihn gelegentlich panisch an.“
 
-„Besser.“
-
 Taron wickelte das Tuch wieder darum. „Warum nehmt Ihr ihn nicht?“
 
 „Weil er dich gewählt hat.“
@@ -128,23 +126,9 @@ Taron wartete auf den Spott im Gesicht des Ritters. Er kam nicht.
 
 „Ich wollte ihn gar nicht nehmen.“
 
-„Eben.“
-
-Taron sah auf das Tuch in seiner Hand. „Das klingt wieder wie einer dieser Sätze, die mich verletzen werden.“
-
-„Wahrscheinlich.“
-
-Der Erzähler sagte: „Ich mag ihn.“
-
-„Du magst jeden, der mir schlechte Nachrichten in kurzen Sätzen gibt.“
-
-„Ja. Qualität erkennt Qualität.“
-
 Oswin zog den Verband fest. Sein Gesicht blieb ruhig, aber seine Finger zitterten kurz, als der Stoff über die Wunde ging.
 
-Taron sah es.
-
-Oswin sah, dass Taron es sah.
+Taron sah es. Oswin sah, dass Taron es sah.
 
 Für einen Augenblick taten beide so, als sei nichts geschehen. Das war vermutlich die erwachsene Art, einander nicht sofort mit Gefühl zu bewerfen.
 
