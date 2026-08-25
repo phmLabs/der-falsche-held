@@ -232,9 +232,7 @@ Taron legte die Hand auf die Brust.
 
 Für einen Moment sah Elva nicht triumphierend aus. Nicht einmal erleichtert.
 
-Sie sah traurig aus.
-
-Das traf Taron härter als ihre Hand.
+Sie sah traurig aus. Das traf Taron härter als ihre Hand.
 
 „Es stimmt also“, sagte sie.
 
