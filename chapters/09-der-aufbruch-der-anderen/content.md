@@ -1,8 +1,10 @@
-Während Taron Falkenried nass, wund und mit einem Schlüssel in der Tasche nach Osten ritt, saß weit im Westen ein Zwerg vor einer kalten Suppe und dachte darüber nach, dass schlechte Nachrichten selten den Anstand hatten, erst nach dem Essen einzutreffen.
+# Kapitel 9: Der Aufbruch der anderen
+
+Während Taron Falkenried nass, wund und mit einem Schlüssel in der Tasche nach Osten ritt, saß weit im Westen ein Zwerg vor einer kalten Suppe und dachte darüber nach, dass schlechte Nachrichten selten erst nach dem Essen kamen.
 
 Der Zwerg hieß Brokk Eisenhand.
 
-Das war kein besonders einfallsreicher Name, aber Zwerge waren in dieser Hinsicht nie verschwenderisch gewesen. Wenn ein Mann Eisen schmiedete, Eisen trug, Eisen brach und einmal mit der bloßen Hand eine glühende Zange aus dem Feuer gezogen hatte, weil der Lehrling daneben zu langsam gewesen war, dann nannte man ihn irgendwann Eisenhand. Dichter hätten daraus vielleicht eine längere Geschichte gemacht. Zwerge hielten Dichter für nützlich, solange sie nach der dritten Strophe wieder arbeiteten gehen.
+Das war kein besonders einfallsreicher Name, aber Zwerge waren in dieser Hinsicht nie verschwenderisch gewesen. Wenn ein Mann Eisen schmiedete, Eisen trug, Eisen brach und einmal mit der bloßen Hand eine glühende Zange aus dem Feuer gezogen hatte, weil der Lehrling daneben zu langsam gewesen war, dann nannte man ihn irgendwann Eisenhand. Dichter hätten daraus vielleicht eine längere Geschichte gemacht. Zwerge hielten Dichter für nützlich, solange sie nach der dritten Strophe wieder arbeiteten.
 
 Brokk saß in der Halle von Karndorn, an einem langen Tisch aus dunklem Stein. Vor ihm stand eine Schale mit Gerstensuppe. Neben der Schale lag ein Stück Brot, hart genug, um in schlechten Zeiten als Werkzeug durchzugehen. Um ihn herum aßen andere Zwerge. Nicht viele. Nicht laut.
 
@@ -28,9 +30,11 @@ Brokk sah in die Schale. „Ich prüfe, ob sie noch als Nahrung gilt.“
 
 „Unentschieden.“
 
-Lorn lächelte kurz. Dann hörte er wieder auf.
+Lorn lächelte kurz.
 
-Das war Karndorn geworden: ein Ort, an dem selbst junge Krieger ihr Lächeln einholten, bevor es zu weit lief.
+Dann hörte er wieder auf.
+
+Das war Karndorn geworden: ein Ort, an dem selbst junge Krieger ein Lächeln abbrachen, bevor es zu deutlich wurde.
 
 Am oberen Ende der Halle stand der Königsstuhl. Leer. Hoch. Schlicht. Er war nicht für Prunk gebaut, sondern für Gewicht. Früher hatte König Rugar selten lange darauf gesessen. Er hatte den Stuhl benutzt, wenn Recht gesprochen wurde oder fremde Gesandte kamen. Zum Essen saß er lieber unten bei den anderen, trank dunkles Bier, stritt über Taktik und schnitt sich sein Brot mit demselben Messer, mit dem er am Morgen einen Lederriemen gekürzt hatte.
 
@@ -40,7 +44,7 @@ Das war kein Gesetz.
 
 Gesetze waren leichter zu verachten.
 
-Es war nur eine Gewohnheit geworden, und Gewohnheiten hatten in Hallen aus Stein manchmal mehr Macht als Befehle.
+Es war nur eine Gewohnheit geworden, und in Hallen aus Stein konnten Gewohnheiten schwerer wiegen als Befehle.
 
 Brokk schob die Suppe von sich weg.
 
@@ -48,11 +52,7 @@ Brokk schob die Suppe von sich weg.
 
 „Du solltest weniger reden.“
 
-„Das sagt Hauptmann Varga auch.“
-
-„Dann hat Hauptmann Varga offenbar noch brauchbare Augen.“
-
-Lorn grinste wieder, diesmal vorsichtiger.
+Lorn grinste vorsichtiger.
 
 Brokk mochte ihn. Das war ärgerlich. Junge Krieger, die man mochte, hatten die schlechte Angewohnheit, später auf Befehl irgendwohin zu gehen, wo ältere Krieger sie nicht mehr zurückholen konnten.
 
@@ -82,15 +82,13 @@ Brokk nahm sein Brot vom Tisch und steckte es in die Tasche.
 
 „Sie hat verloren.“
 
-Diesmal lachte Lorn nicht.
-
 Brokk ging an den langen Tischen vorbei. Mehrere Zwerge sahen ihm nach. Niemand fragte etwas. Das war eine weitere neue Gewohnheit: nicht fragen, wenn jemand zum König gerufen wurde. Früher hätten drei Leute sofort gewusst, warum, vier hätten es falsch weitererzählt und einer hätte daraus ein Lied gemacht, bevor der Betroffene überhaupt zurück war.
 
 Brokk hatte diese Zeit gekannt.
 
 Er hatte sie nicht genug geschätzt.
 
-Das fiel einem bei guten Zeiten oft erst auf, wenn sie nicht mehr höflich genug waren, wiederzukommen.
+Das fiel einem bei guten Zeiten oft erst auf, wenn sie vorbei waren.
 
 Die Gänge von Karndorn führten vom Speisesaal hinauf zur oberen Halle, nicht hinab. Menschen stellten sich Zwergenreiche gern als endlose Tiefen vor, weil Menschen alles, was sie nicht verstanden, entweder unter die Erde oder in den Himmel verlegten. Karndorn lag in einem Gebirge, ja, aber seine alten Hallen waren in die Flanke eines grauen Massivs gebaut, mit breiten Fensterschlitzen nach Westen und Terrassen, auf denen im Sommer Kräuter wuchsen. Zwerge mochten Stein. Das bedeutete nicht, dass sie Licht hassten.
 
@@ -104,7 +102,7 @@ Brokk blieb stehen.
 
 Er tat das selten.
 
-Das Bild war nicht besonders kunstvoll. Die Gesichter waren zu hart, die Schultern zu breit, und Brokk sah darauf aus wie jemand, der eine Wand persönlich beleidigt hatte. Aber Rugar war gut getroffen. Nicht schön. Zwerge legten auf solche Dinge weniger Wert, weil Schönheit im Stollen selten Erz fand. Aber lebendig. Laut. Wach. Ein König, der seine Leute ansah und dabei wirklich sah.
+Das Bild war nicht besonders kunstvoll. Die Gesichter waren zu hart, die Schultern zu breit, und Brokk sah darauf aus wie jemand, der eine Wand persönlich beleidigt hatte. Aber Rugar war gut getroffen. Nicht prachtvoll. Zwerge legten auf solche Dinge weniger Wert; im Stollen fand Pracht selten Erz. Aber lebendig. Laut. Wach. Ein König, der seine Leute ansah und dabei wirklich sah.
 
 Damals hatten sie Graumark noch nicht gehalten.
 
@@ -130,7 +128,7 @@ Brokk hatte gegrunzt.
 
 Rugar hatte ihm die Nadel abgenommen und es selbst gemacht. Schlecht, aber mit großem Selbstvertrauen.
 
-Später hatten sie gegessen. Nicht viel. Altes Brot, ein Stück geräucherter Fisch, ein Topf mit Rüben, die selbst im Tod Widerstand leisteten. Jemand hatte ein Lied begonnen. Erst leise. Dann lauter. Rugar hatte mitgesungen, falsch an zwei Stellen und lauter als nötig.
+Später hatten sie gegessen. Nicht viel. Altes Brot, ein Stück geräucherter Fisch, ein Topf mit Rüben, zäh genug für zwei Schlachten. Jemand hatte ein Lied begonnen. Erst leise. Dann lauter. Rugar hatte mitgesungen, falsch an zwei Stellen und lauter als nötig.
 
 Brokk hatte damals gedacht: So klingt ein Volk, das noch weiß, warum es kämpft.
 
@@ -146,7 +144,7 @@ Rugar war sofort aufgestanden.
 
 Nicht hastig.
 
-Er war nie hastig gewesen. Hektik war für ihn nur Angst in schlechten Stiefeln.
+Er war nie hastig gewesen. Für ihn war Hektik nur Angst in schlechten Stiefeln.
 
 Brokk war mit ihm gegangen. Sechs Krieger, zwei Schreiber, ein alter Priester, der mehr über Eide wusste als über Treppen, und Rugar selbst. Die Kapelle war halb eingestürzt. Menschen hatten dort gebetet, geheiratet und wahrscheinlich Dinge versprochen, die sie später bereuten. Unter dem Altar führte eine schmale Treppe hinab.
 
@@ -202,7 +200,7 @@ König Rugar stand nicht am Fenster. Er saß auch nicht auf dem Stuhl. Er stand 
 
 Brokk sah den Namen sofort.
 
-Rugar war älter geworden. Natürlich war er das. Zehn Jahre taten solche Dinge, selbst bei Zwergen, die gern so taten, als sei Zeit eine menschliche Schwäche. Aber es war nicht das Alter, das Brokk störte. Es war die Stille um ihn. Früher hatte Rugar einen Raum betreten, und man hatte gewusst, dass der Raum nun weniger Wahl hatte. Heute stand er da, gerade, sauber, kalt, und der Raum blieb unverändert.
+Rugar war älter geworden. Natürlich war er das. Zehn Jahre taten solche Dinge, selbst bei Zwergen, die gern so taten, als sei Zeit eine menschliche Schwäche. Aber es war nicht das Alter, das Brokk störte. Es war die Stille um ihn. Früher hatte Rugar einen Raum betreten, und alle hatten ihn bemerkt. Heute stand er da, gerade, sauber, kalt, und nichts veränderte sich.
 
 Sein Bart war kürzer als früher, strenger geflochten. Seine Rüstung trug kein Liedzeichen mehr, keine kleine Gravur für gewonnene Schlachten, keine Kerbe für gefallene Freunde. Nur den schwarzen Winkel.
 
@@ -338,7 +336,7 @@ Brokk sah den König an.
 
 Diesmal wurde es wirklich still.
 
-Brokk wusste, dass der Satz gefährlich war, sobald er aus seinem Mund kam. Er hatte ihn nicht geplant. Das war bei wichtigen Sätzen oft so. Geplante Sätze trugen Rüstung. Ungeplante hatten nur Wahrheit und schlechte Aussichten.
+Brokk wusste, dass der Satz gefährlich war, sobald er aus seinem Mund kam. Er hatte ihn nicht geplant. Das war bei wichtigen Sätzen oft so. Die geplanten kamen geschützt. Die ungeplanten kamen nackt und mit schlechten Aussichten.
 
 Rugar trat langsam um den Tisch herum.
 
@@ -456,8 +454,6 @@ Haldrin begleitete ihn bis zur Treppe.
 
 „Ich hatte viel Gelegenheit.“
 
-„Das ist nicht dasselbe wie Grund.“
-
 Brokk blieb stehen. „Du hast ihn auch gehört.“
 
 Haldrin sah nicht zu ihm.
@@ -471,10 +467,6 @@ Der Schreiber schwieg.
 In Karndorn konnte Schweigen vieles bedeuten. Zustimmung. Angst. Verrat. Weisheit. Oder nur, dass jemand keine Lust hatte, später verhört zu werden.
 
 „Ich schreibe Befehle auf“, sagte Haldrin schließlich. „Keine Luft.“
-
-„Praktisch.“
-
-„Überlebenswichtig.“
 
 Brokk wollte weitergehen.
 
@@ -491,10 +483,6 @@ Der Schreiber sah jetzt doch zu ihm. Sein Gesicht war ruhig, aber seine Hand lag
 Brokk hätte gern etwas Spöttisches gesagt. Etwas über junge Krieger, die zu viel redeten und zu langsam lernten, wann man den Mund hielt. Aber Haldrins Blick ließ keinen Platz dafür.
 
 „Wenn ich kann.“
-
-„Das sagst du oft.“
-
-„Es ist oft wahr.“
 
 Haldrin nickte nicht. Das wäre zu einfach gewesen. Er ging nur zurück zur Tür des Königs, und Brokk stieg allein hinunter.
 
@@ -514,12 +502,6 @@ Brokk ging an ihm vorbei.
 
 Lorn folgte ihm. „Der König hat mich genannt.“
 
-„Der König ist nicht hier.“
-
-„Aber sein Befehl.“
-
-„Der läuft langsamer als ich.“
-
 „Hauptmann.“
 
 Brokk blieb stehen.
@@ -532,21 +514,11 @@ Lorn hob das Kinn. „Ich bin tapfer.“
 
 „Das ist heilbar.“
 
-„Ich habe trainiert.“
-
-„Gegen Männer, die dich mochten.“
-
-Das traf. Gut. Besser hier als später mit Eisen.
-
 Brokk ging zur Waffenkammer.
 
 Sie lag neben der unteren Schmiede, nicht weil Waffen dort hingehörten, sondern weil Zwerge gern kurze Wege zwischen Herstellung und Beschwerde hatten. Hauptmann Varga stand bereits dort und prüfte eine Reihe kurzer Äxte. Sie war älter als Brokk, breiter in den Schultern und hatte ein Gesicht, das nur dann freundlich aussah, wenn jemand anders in Schwierigkeiten war.
 
-„Du gehst“, sagte sie.
-
-„Ja.“
-
-„Ohne Banner.“
+„Du gehst ohne Banner“, sagte sie.
 
 „Ja.“
 
@@ -560,11 +532,7 @@ Brokk nahm sie, prüfte das Gewicht, gab sie zurück und nahm eine andere.
 
 „Die erste war besser“, sagte Varga.
 
-„Die erste wollte beeindrucken.“
-
-„Äxte wollen nichts.“
-
-„Dann hat sie schlecht angefangen.“
+„Die erste war zum Beeindrucken.“
 
 Varga schnaubte. Bei ihr war das fast ein Lachen.
 
@@ -588,10 +556,6 @@ Varga legte sechs Messer auf den Tisch, zwei Rauchkapseln, drei Seile, eine Lede
 
 „Gut genug, um Menschen schlecht sehen zu lassen.“
 
-„Das ist eine bescheidene Empfehlung.“
-
-„Bescheidene Empfehlungen sind ehrlicher.“
-
 Brokk steckte sie ein.
 
 „Menschenritter dabei?“, fragte Varga.
@@ -608,11 +572,9 @@ Brokk steckte sie ein.
 
 „Weil die Linke oft lügt.“
 
-Brokk sah sie an.
+Brokk sah sie an. Varga zuckte mit den Schultern.
 
-Varga zuckte mit den Schultern. „Menschen.“
-
-Das war keine Erklärung. Bei Varga war das oft dasselbe.
+Bei Varga war das Erklärung genug.
 
 Brokk nahm seinen Helm vom Haken. Er war schlicht, dunkel, mit zwei alten Kerben über dem Stirnrand. Keine Hörner. Zwerge trugen keine Hörner an Helmen, weil sie nicht völlig lebensmüde waren. Die Kerben stammten von einem Menschenbeil und einem Zwergenfehler. Brokk wusste noch, welcher tiefer ging.
 
@@ -626,9 +588,7 @@ Varga hielt ihm ein kleines Bündel hin.
 
 „Weil du deins vorhin eingesteckt hast, und wenn du unterwegs Hunger bekommst, wirst du schlechter gelaunt.“
 
-„Ich bin Hauptmann. Schlechte Laune ist Teil meiner Ausrüstung.“
-
-„Dann nimm mehr Brot.“
+„Schlechte Laune ist Teil meiner Ausrüstung.“
 
 Brokk nahm es.
 
@@ -678,7 +638,7 @@ Keine Lieder.
 
 Nur graue Mäntel, dunkle Helme und der Auftrag, den Menschenschlüssel zu finden, bevor die Menschen verstanden, was sie hatten.
 
-Am Tor standen ein paar Zwerge. Nicht viele. Aufbrüche ohne Banner zogen kein Volk an. Oder vielleicht taten sie es früher und jetzt nicht mehr.
+Am Tor standen ein paar Zwerge. Nicht viele. Zu Aufbrüchen ohne Banner kamen selten viele. Vielleicht war auch das früher anders gewesen.
 
 Haldrin war da.
 
