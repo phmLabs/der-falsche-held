@@ -332,13 +332,9 @@ Der König sagte: „Du wirst diesen Auftrag ausführen.“
 
 „Wenn ich kann.“
 
-„Du wirst ihn zurückbringen.“
+„Du wirst ihn zurückbringen. Oder du kommst gar nicht mehr zurück“
 
 Brokk senkte den Kopf.
-
-Nicht tief.
-
-Genug.
 
 „Wie Ihr befehlt.“
 
