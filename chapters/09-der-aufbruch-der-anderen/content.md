@@ -510,21 +510,7 @@ Brokk sah nicht zu ihr.
 
 „Ja.“
 
-„Ich sage das nicht gern.“
-
-„Dann sag es nicht zweimal.“
-
-„Bring zurück, was du kannst.“
-
-„Den Schlüssel?“
-
-Varga antwortete nicht sofort.
-
-„Auch.“
-
-Brokk verstand.
-
-Das mochte er an Varga. Sie sagte selten genug, dass man ihr zuhören musste.
+Das mochte er an Varga. Sie sprach selten genug, sodass man ihr zuhören musste.
 
 Eine Stunde später standen sechs Zwerge im Osttor von Karndorn.
 
