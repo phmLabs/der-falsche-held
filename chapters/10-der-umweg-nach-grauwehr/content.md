@@ -208,21 +208,11 @@ Oswin wurde sehr still.
 
 „Wir wissen es nicht“
 
-Sie lachte einmal kurz. Nicht, weil es lustig war. Weil es absurd genug klang, um wahr zu sein.
-
-„Dann bleibt Stallbursche, wenn Ihr klug seid.“
-
-Taron hätte gern gesagt, dass er genau das versucht hatte. Mehrfach. Mit wenig Unterstützung der Umstände.
-
 Sie gaben der Gruppe ein Stück von Merlans Brot und etwas Trockenfleisch. Oswin tat es, ohne Taron anzusehen. Taron gab zusätzlich einen der Äpfel, die Kummer nicht hatte fressen wollen, was den Wert der Geste je nach Blickwinkel deutlich senkte.
 
 Als die Flüchtlinge weiterzogen, sah Taron ihnen nach.
 
 „Das fühlt sich größer an“, sagte er.
-
-„Was?“
-
-„Alles.“
 
 Oswin blickte nach Westen.
 
@@ -230,7 +220,7 @@ Oswin blickte nach Westen.
 
 Der Erzähler sagte nichts.
 
-Das hatte er heute oft getan. Dann wieder war er plötzlich aufgedreht wie ein Kind vor einem Jahrmarkt, falls Kinder auf Jahrmärkten über alte Schlüssel, tote Hüter und dramatische Zuspitzung redeten. Taron fand beides anstrengend. Er wusste nur noch nicht, was gefährlicher war.
+Das hatte er heute oft getan. Dann wieder war er plötzlich aufgedreht wie ein Kind vor einem Jahrmarkt, falls Kinder auf Jahrmärkten über alte Schlüssel, tote Hüter und dramatische Zuspitzung redeten. Taron fand beides anstrengend. Er wusste nur noch nicht, was schlimmer war.
 
 Grauwehr erreichten sie kurz vor Sonnenuntergang.
 
