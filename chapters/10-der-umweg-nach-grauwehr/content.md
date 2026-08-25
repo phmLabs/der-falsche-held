@@ -250,8 +250,6 @@ Der Wächter sah erleichtert aus und enttäuscht zugleich. „Alle reden davon.�
 
 „Alle reden gern.“
 
-„Heute besonders.“
-
 Taron zog den Mantel enger.
 
 „Warum?“
@@ -296,9 +294,7 @@ Taron sah es an.
 
 „Ehrliche Werbung.“
 
-„Selten“, sagte Oswin.
-
-Innen war es warm, voll und roch nach Bier, Eintopf und Menschen, die schon vor Stunden hätten schlafen sollen. Ein Feuer brannte in einer gemauerten Ecke. An den Wänden hingen alte Werkzeuge, zwei stumpfe Schwerter und ein Gemälde von Grauwehr, auf dem die Stadt deutlich größer aussah, als sie sich draußen die Mühe machte zu sein.
+Innen war es warm, voll und roch nach Menschen, die schon vor Stunden hätten schlafen sollen. Ein Feuer brannte in einer gemauerten Ecke. An den Wänden hingen alte Werkzeuge, zwei stumpfe Schwerter und ein Gemälde von Grauwehr, auf dem die Stadt deutlich größer aussah, als sie sich draußen die Mühe machte zu sein.
 
 Der Wirt war ein breiter Mann mit kahlem Kopf, roter Schürze und einem Blick, der Gäste nach Münzen, Ärger und Blutverlust sortierte. Bei Taron blieb er kurz hängen.
 
@@ -314,14 +310,6 @@ Der Wirt war ein breiter Mann mit kahlem Kopf, roter Schürze und einem Blick, d
 
 „Ja“, sagte Taron zu schnell.
 
-Der Wirt musterte ihn. „Ihr seht aus, als hättet Ihr eine Wand verloren.“
-
-„Mehrere Wände waren beteiligt.“
-
-„Grenzland?“
-
-„Ungefähr.“
-
 Der Wirt beugte sich über den Tresen. „Wenn Ihr Neuigkeiten vom Auserwählten habt, gibt’s den ersten Krug aufs Haus.“
 
 Taron hielt den Mund.
@@ -332,19 +320,11 @@ Der Erzähler japste vor innerer Empörung. „Ein kostenloser Krug, Taron.“
 
 „Nein.“
 
-„Und vermutlich Eintopf.“
-
-„Nein.“
-
 „Du bist stärker geworden. Oder müder. Schwer zu unterscheiden.“
 
 Oswin legte Münzen auf den Tresen. „Wir haben keine Neuigkeiten.“
 
 „Jeder hat Neuigkeiten“, sagte der Wirt.
-
-„Unsere sind schlecht.“
-
-„Die kosten normalerweise extra.“
 
 Er gab ihnen trotzdem einen Tisch in der Ecke, vermutlich weil Oswin aussah wie ein Mann, den man nicht in der Mitte eines Raumes platzierte, wenn man seine Stühle behalten wollte.
 
