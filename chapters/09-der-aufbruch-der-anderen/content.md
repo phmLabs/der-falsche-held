@@ -36,6 +36,10 @@ Am oberen Ende der Halle stand der Königsstuhl. Leer. Hoch. Schlicht. Er war ni
 
 Heute blieb der Stuhl meistens leer, und der König aß allein.
 
+Das war kein Gesetz.
+
+Gesetze waren leichter zu verachten.
+
 Es war nur eine Gewohnheit geworden, und Gewohnheiten hatten in Hallen aus Stein manchmal mehr Macht als Befehle.
 
 Brokk schob die Suppe von sich weg.
@@ -43,6 +47,10 @@ Brokk schob die Suppe von sich weg.
 „Du solltest essen“, sagte Lorn.
 
 „Du solltest weniger reden.“
+
+„Das sagt Hauptmann Varga auch.“
+
+„Dann hat Hauptmann Varga offenbar noch brauchbare Augen.“
 
 Lorn grinste wieder, diesmal vorsichtiger.
 
