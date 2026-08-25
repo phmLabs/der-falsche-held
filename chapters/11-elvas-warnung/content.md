@@ -382,6 +382,16 @@ Taron wartete auf einen Kommentar. Auf irgendeinen. Es kam keiner.
 
 „Und wenn es stimmt?“, fragte Taron.
 
+Elva blinzelte.
+
+„Wenn was stimmt?“
+
+„Wenn mein Leiden wirklich hilft.“
+
+Der Satz war klein.
+
+Er passte nicht zu Taron. Oder vielleicht passte er gerade deshalb zu ihm, weil er so lange versucht hatte, solche Sätze durch Lärm zu vermeiden.
+
 Elva sah ihn an, und zum ersten Mal an diesem Abend wusste sie nicht sofort, wohin mit ihrer Wut.
 
 „Wer hat dir das eingeredet?“
@@ -396,11 +406,7 @@ Taron korrigierte sich nicht.
 
 Er brach ab.
 
-Oswin sah zur Seite.
-
-Nicht, weil jemand kam.
-
-Weil er Taron den Blick nicht nehmen wollte.
+Oswin sah zur Seite und gab ihm damit den einzigen Raum, den es in der Speisekammer gab.
 
 Elva trat einen Schritt näher.
 
@@ -864,7 +870,7 @@ Elva zog ihn am Ärmel weiter.
 
 Er ging weiter.
 
-Oben im Zimmer legte sich Elva ahasuf den Boden, bevor Taron protestieren konnte. Oswin nahm den Stuhl an der Tür. Taron saß auf seinem Bett und verstand nicht, wann sein Leben angefangen hatte, sich wie eine schlechte Belagerung anzufühlen.
+Oben im Zimmer legte sich Elva auf den Boden, bevor Taron protestieren konnte. Oswin nahm den Stuhl an der Tür. Taron saß auf seinem Bett und verstand nicht, wann sein Leben angefangen hatte, sich wie eine schlechte Belagerung anzufühlen.
 
 Der Schlüssel lag wieder auf seiner Brust.
 
