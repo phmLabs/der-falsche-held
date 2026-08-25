@@ -2,7 +2,7 @@ Während Taron Falkenried nass, wund und mit einem Schlüssel in der Tasche nach
 
 Der Zwerg hieß Brokk Eisenhand.
 
-Das war kein besonders einfallsreicher Name, aber Zwerge waren in dieser Hinsicht nie verschwenderisch gewesen. Wenn ein Mann Eisen schmiedete, Eisen trug, Eisen brach und einmal mit der bloßen Hand eine glühende Zange aus dem Feuer gezogen hatte, weil der Lehrling daneben zu langsam gewesen war, dann nannte man ihn irgendwann Eisenhand. Dichter hätten daraus vielleicht eine längere Geschichte gemacht. Zwerge hielten Dichter für nützlich, solange sie nach der dritten Strophe wieder arbeiteten.
+Das war kein besonders einfallsreicher Name, aber Zwerge waren in dieser Hinsicht nie verschwenderisch gewesen. Wenn ein Mann Eisen schmiedete, Eisen trug, Eisen brach und einmal mit der bloßen Hand eine glühende Zange aus dem Feuer gezogen hatte, weil der Lehrling daneben zu langsam gewesen war, dann nannte man ihn irgendwann Eisenhand. Dichter hätten daraus vielleicht eine längere Geschichte gemacht. Zwerge hielten Dichter für nützlich, solange sie nach der dritten Strophe wieder arbeiteten gehen.
 
 Brokk saß in der Halle von Karndorn, an einem langen Tisch aus dunklem Stein. Vor ihm stand eine Schale mit Gerstensuppe. Neben der Schale lag ein Stück Brot, hart genug, um in schlechten Zeiten als Werkzeug durchzugehen. Um ihn herum aßen andere Zwerge. Nicht viele. Nicht laut.
 
@@ -28,19 +28,13 @@ Brokk sah in die Schale. „Ich prüfe, ob sie noch als Nahrung gilt.“
 
 „Unentschieden.“
 
-Lorn lächelte kurz.
-
-Dann hörte er wieder auf.
+Lorn lächelte kurz. Dann hörte er wieder auf.
 
 Das war Karndorn geworden: ein Ort, an dem selbst junge Krieger ihr Lächeln einholten, bevor es zu weit lief.
 
 Am oberen Ende der Halle stand der Königsstuhl. Leer. Hoch. Schlicht. Er war nicht für Prunk gebaut, sondern für Gewicht. Früher hatte König Rugar selten lange darauf gesessen. Er hatte den Stuhl benutzt, wenn Recht gesprochen wurde oder fremde Gesandte kamen. Zum Essen saß er lieber unten bei den anderen, trank dunkles Bier, stritt über Taktik und schnitt sich sein Brot mit demselben Messer, mit dem er am Morgen einen Lederriemen gekürzt hatte.
 
 Heute blieb der Stuhl meistens leer, und der König aß allein.
-
-Das war kein Gesetz.
-
-Gesetze waren leichter zu verachten.
 
 Es war nur eine Gewohnheit geworden, und Gewohnheiten hatten in Hallen aus Stein manchmal mehr Macht als Befehle.
 
@@ -49,10 +43,6 @@ Brokk schob die Suppe von sich weg.
 „Du solltest essen“, sagte Lorn.
 
 „Du solltest weniger reden.“
-
-„Das sagt Hauptmann Varga auch.“
-
-„Dann hat Hauptmann Varga offenbar noch brauchbare Augen.“
 
 Lorn grinste wieder, diesmal vorsichtiger.
 
