@@ -1,5 +1,3 @@
-# Kapitel 9: Der Aufbruch der anderen
-
 Während Taron Falkenried nass, wund und mit einem Schlüssel in der Tasche nach Osten ritt, saß weit im Westen ein Zwerg vor einer kalten Suppe und dachte darüber nach, dass schlechte Nachrichten selten erst nach dem Essen kamen.
 
 Der Zwerg hieß Brokk Eisenhand.
