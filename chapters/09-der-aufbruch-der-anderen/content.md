@@ -430,13 +430,9 @@ Unten in der Halle war die Suppe abgeräumt.
 
 Lorn stand bereits auf.
 
-Natürlich.
-
 Junge Krieger rochen Aufbruch, bevor jemand ihn aussprach. Es war eine ihrer gefährlichsten Eigenschaften.
 
-„Ich komme mit“, sagte er.
-
-Brokk ging an ihm vorbei.
+„Ich komme mit“, sagte er. Brokk ging an ihm vorbei.
 
 „Nein.“
 
@@ -444,15 +440,11 @@ Lorn folgte ihm. „Der König hat mich genannt.“
 
 „Hauptmann.“
 
-Brokk blieb stehen.
-
-Lorn prallte beinahe gegen ihn.
+Brokk blieb stehen. Lorn prallte beinahe gegen ihn.
 
 „Du kommst mit“, sagte Brokk. „Aber du wirst nicht vorne gehen. Du wirst nicht reden, wenn Steine Ohren haben. Du wirst nicht glauben, dass Menschen langsamer sterben, weil sie größer sind. Und du wirst nicht versuchen, vor mir tapfer zu sein.“
 
 Lorn hob das Kinn. „Ich bin tapfer.“
-
-„Das ist heilbar.“
 
 Brokk ging zur Waffenkammer.
 
@@ -462,15 +454,9 @@ Sie lag neben der unteren Schmiede, nicht weil Waffen dort hingehörten, sondern
 
 „Ja.“
 
-„Schlechter Auftrag.“
+Varga reichte ihm eine Axt. Brokk nahm sie, prüfte das Gewicht, gab sie zurück und nahm eine andere.
 
-„Ja.“
-
-Varga reichte ihm eine Axt.
-
-Brokk nahm sie, prüfte das Gewicht, gab sie zurück und nahm eine andere.
-
-„Die erste war besser“, sagte Varga.
+„Die erste war besser“, sagte Varga. 
 
 „Die erste war zum Beeindrucken.“
 
@@ -490,13 +476,7 @@ Lorn stand hinter Brokk und versuchte, keine Fragen zu stellen. Es gelang ihm sc
 
 „Dann vergisst er es.“
 
-Varga legte sechs Messer auf den Tisch, zwei Rauchkapseln, drei Seile, eine Ledertasche mit getrocknetem Fleisch und ein kleines Säckchen Salz. Brokk sah auf die Rauchkapseln.
-
-„Sind die noch gut?“
-
-„Gut genug, um Menschen schlecht sehen zu lassen.“
-
-Brokk steckte sie ein.
+Varga legte sechs Messer auf den Tisch, drei Seile, eine Ledertasche mit getrocknetem Fleisch und ein kleines Säckchen Salz. Brokk sah auf die Rauchkapseln.
 
 „Menschenritter dabei?“, fragte Varga.
 
@@ -504,17 +484,7 @@ Brokk steckte sie ein.
 
 „Aus den alten Kriegen?“
 
-„Vielleicht.“
-
-„Dann pass auf seine rechte Hand auf.“
-
-„Warum?“
-
-„Weil die Linke oft lügt.“
-
-Brokk sah sie an. Varga zuckte mit den Schultern.
-
-Bei Varga war das Erklärung genug.
+„Wahrscheinlich.“
 
 Brokk nahm seinen Helm vom Haken. Er war schlicht, dunkel, mit zwei alten Kerben über dem Stirnrand. Keine Hörner. Zwerge trugen keine Hörner an Helmen, weil sie nicht völlig lebensmüde waren. Die Kerben stammten von einem Menschenbeil und einem Zwergenfehler. Brokk wusste noch, welcher tiefer ging.
 
