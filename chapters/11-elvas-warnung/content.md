@@ -164,31 +164,15 @@ Elvas Gesicht wurde wieder ernst.
 
 Taron sah zu Oswin.
 
-„Kummer ist ein sehr auffälliges Pferd.“
-
-„Du auch“, sagte Elva.
-
-„Das ist unfair.“
-
 „Du bist ein junger verletzter Stallbursche, über den das halbe Reich gerade ein Lied erfinden will. Unauffällig war vorbei, bevor ich die Burg verlassen habe.“
 
 Taron lächelte beinahe.
-
-Elva nicht.
-
-Das Lächeln blieb, wo es war.
 
 Sie entfaltete das Pergament und drückte es ihm gegen die Brust. Diesmal nicht auf den Schlüssel. Das war freundlich oder Zufall.
 
 „Lies.“
 
-Taron nahm es.
-
-„Du weißt, dass ich unter Druck schlechter lese.“
-
-„Du liest immer unter Druck. Dein Leben ist inzwischen Druck mit Beinen.“
-
-Oswin trat näher und blickte über Tarons Schulter.
+Taron nahm es. Oswin trat näher und blickte über Tarons Schulter.
 
 Das Pergament war kein vollständiger Erlass. Eher eine Abschrift. Manche Zeilen waren hastig geschrieben, andere fehlten. Oben stand das Siegel Waldkirchs, schlecht abgezeichnet, aber erkennbar: Turm, Falke, Krone.
 
