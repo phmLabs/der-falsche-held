@@ -484,7 +484,7 @@ Von einem König im Westen, der seine Schmieden auch nachts brennen ließ.
 
 Von Waldkirch, wo angeblich alle Glocken geläutet hatten, als der Auserwählte durch das Tor geritten war, obwohl Taron zu diesem Zeitpunkt in einer alten Zisterne beinahe ertrunken war.
 
-Die Welt war sehr beschäftigt damit, über ihn zu sprechen, während er versuchte, nicht in seinen Eintopf zu fallen.
+Die Welt war sehr beschäftigt damit, über ihn zu sprechen.
 
 Später bekamen sie ein Zimmer unter dem Dach.
 
@@ -492,9 +492,7 @@ Es war klein, niedrig und hatte zwei Betten, von denen eines klang, als habe es 
 
 Er legte den Menschenschlüssel unter sein Hemd.
 
-Nicht unter das Kissen.
-
-Nicht in den Beutel.
+Nicht unter das Kissen. Nicht in den Beutel.
 
 An seinen Körper.
 
@@ -524,45 +522,13 @@ Taron wusste es, weil Menschen, die schliefen, nicht so kontrolliert atmeten.
 
 „Beides.“
 
-Taron drehte den Kopf zur Wand.
+Taron drehte den Kopf zur Wand. Der Schlüssel war kalt auf seiner Brust.
 
-Der Schlüssel war kalt auf seiner Brust.
-
-„Glaubt Ihr, Waldkirch sucht mich auch?“
-
-Oswin antwortete nicht sofort.
-
-Das war Antwort genug.
-
-„Ich dachte, wenn ich ihn habe, kann ich zurück und sagen: Da. Bitte. Fertig.“
+„Glaubt Ihr, Waldkirch sucht mich auch?", Er fuht fort „Ich dachte, wenn ich ihn habe, kann ich zurück und sagen: Da. Bitte. Fertig.“
 
 „Nein.“
-
-„Das ist sehr kurz.“
-
-„Ja.“
-
-„Ihr könntet es ausschmücken.“
-
-„Es wäre trotzdem nein.“
 
 Taron schloss die Augen.
-
-Der Erzähler sagte: „Möchtest du die gute Nachricht?“
-
-„Nein.“
-
-„Es gibt keine.“
-
-„Das war vorhersehbar.“
-
-„Die andere Nachricht ist, dass du nicht mehr nur verfolgt wirst.“
-
-„Das ist nicht besser.“
-
-„Doch. Du bewegst auch andere.“
-
-Taron öffnete die Augen wieder.
 
 Im Dunkeln war nichts zu sehen. Nur ein schmaler Streifen Mondlicht am Fenster.
 
