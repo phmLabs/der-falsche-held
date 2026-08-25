@@ -106,8 +106,6 @@ Taron öffnete den Mund.
 
 Dann schloss er ihn wieder.
 
-Der Erzähler sagte: „Manchmal ist Fortschritt nur der Moment, in dem jemand merkt, dass keine Antwort besser ist als die geplante.“
-
 Elva sah an Taron vorbei.
 
 Oswin stand am Fuß der Treppe, vollständig angezogen, Schwert am Gürtel, Gesicht ruhig. Neben ihm wirkte jedes Wirtshaus sofort ein wenig weniger zufällig.
