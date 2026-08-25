@@ -1,3 +1,5 @@
+# Kapitel 11: Elvas Warnung
+
 Taron blieb liegen.
 
 Er hatte im Dunkeln seinen eigenen Namen aus einer fremden Kehle gehört. Liegenzubleiben war keine Heldentat, aber es passte hervorragend zu dem Rest dieses Tages.
@@ -32,7 +34,7 @@ Die Dielen knarrten unter seinem Gewicht, aber nur kurz. Danach bewegte er sich 
 
 Oswin legte einen Finger an die Lippen.
 
-Taron hasste praktische Antworten, wenn sie richtig waren.
+Taron hätte eine unpraktische Antwort bevorzugt. Eine mit Worten. Vielleicht sogar eine falsche.
 
 Sie öffneten die Tür einen Spalt.
 
@@ -157,7 +159,7 @@ Der Wirt sah auf die Münzen, dann auf Oswin, dann auf Elvas Küchenmesser.
 „Natürlich ist sie das“, sagte Taron. „Warum sollte eine wichtige Besprechung auch an einem Ort stattfinden, der nicht nach Zwiebeln riecht.“
 
 Der Erzähler sagte: „Ich beginne, sie zu mögen.“
-1
+
 „Nein“, dachte Taron.
 
 „Sie erfüllt mehrere Kriterien.“
@@ -372,23 +374,13 @@ Elva antwortete nicht sofort.
 
 Taron wünschte, sie hätte es getan.
 
-„Wie über ein Werkzeug“, sagte sie schließlich. „Wichtig, nützlich, gut zu bewachen. Aber niemand fragt ein Werkzeug, wohin es will.“
+„Wie über etwas, das man braucht“, sagte sie schließlich. „Nicht wie über jemanden, der Nein sagen darf.“
 
 Aus Tarons Kopf kam keine spöttische Hilfe.
 
-Taron hasste ihn dafür.
+Taron wartete auf einen Kommentar. Auf irgendeinen. Es kam keiner.
 
 „Und wenn es stimmt?“, fragte Taron.
-
-Elva blinzelte.
-
-„Wenn was stimmt?“
-
-„Wenn mein Leiden wirklich hilft.“
-
-Der Satz war klein.
-
-Er passte nicht zu Taron. Oder vielleicht passte er gerade deshalb zu ihm, weil er so lange versucht hatte, solche Sätze durch Lärm zu vermeiden.
 
 Elva sah ihn an, und zum ersten Mal an diesem Abend wusste sie nicht sofort, wohin mit ihrer Wut.
 
@@ -872,7 +864,7 @@ Elva zog ihn am Ärmel weiter.
 
 Er ging weiter.
 
-Oben im Zimmer legte sich Elva auf den Boden, bevor Taron protestieren konnte. Oswin nahm den Stuhl an der Tür. Taron saß auf seinem Bett und verstand nicht, wann sein Leben angefangen hatte, sich wie eine schlechte Belagerung anzufühlen.
+Oben im Zimmer legte sich Elva ahasuf den Boden, bevor Taron protestieren konnte. Oswin nahm den Stuhl an der Tür. Taron saß auf seinem Bett und verstand nicht, wann sein Leben angefangen hatte, sich wie eine schlechte Belagerung anzufühlen.
 
 Der Schlüssel lag wieder auf seiner Brust.
 
