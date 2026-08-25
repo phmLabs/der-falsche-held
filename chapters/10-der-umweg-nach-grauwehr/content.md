@@ -330,13 +330,13 @@ Er gab ihnen trotzdem einen Tisch in der Ecke, vermutlich weil Oswin aussah wie 
 
 Taron setzte sich.
 
-Sein Körper reagierte darauf mit einer Dankbarkeit, die fast peinlich war.
+Sein Körper reagierte darauf mit einer Dankbarkeit.
 
 Oswin setzte sich gegenüber, den Rücken zur Wand, Blick zur Tür. Taron setzte sich so, dass er möglichst nah am Essen war. Jeder hatte seine Ausbildung.
 
 Der Eintopf kam schnell.
 
-Er war heiß, dick und enthielt Dinge, die Taron nicht identifizieren wollte, solange sie ihn satt machten. Der erste Löffel traf ihn beinahe religiös. Nicht im Sinne einer Offenbarung. Eher im Sinne von: Vielleicht hatte die Welt doch noch eine kleine, dampfende Entschuldigung übrig.
+Er war heiß, dick und enthielt Dinge, die Taron nicht identifizieren wollte, solange sie ihn satt machten. Der erste Löffel traf ihn beinahe religiös. Vielleicht hatte die Welt doch noch eine kleine, dampfende Entschuldigung übrig.
 
 „Du solltest sagen, wer du bist“, sagte der Erzähler.
 
