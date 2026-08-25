@@ -1,6 +1,6 @@
 Taron blieb liegen.
 
-Das war nicht tapfer. Es war auch nicht besonders klug. Aber es war eine Entscheidung, die hervorragend zu einem Menschen passte, der gerade im Dunkeln seinen eigenen Namen aus einer fremden Kehle gehört hatte.
+Er hatte im Dunkeln seinen eigenen Namen aus einer fremden Kehle gehört. Liegenzubleiben war keine Heldentat, aber es passte hervorragend zu dem Rest dieses Tages.
 
 Unten in der Schankstube wurde weitergeredet.
 
@@ -12,11 +12,11 @@ Oswin saß bereits aufrecht auf seinem Bett. Im Mondlicht sah er nicht müde aus
 
 „Vielleicht gibt es mehrere Falkenrieds“, flüsterte Taron.
 
-Der Erzähler sagte: „Eine schöne Hoffnung. “
+Der Erzähler sagte: „Eine gute Hoffnung. Bedauerlich kurzlebig.“
 
 „Still.“
 
-„Ich bin still. Innerlich geradezu vorbildlich.“
+„Innerlich geradezu vorbildlich.“
 
 Unten sagte jemand: „Der Junge aus Waldkirch. Stallbursche, heißt es.“
 
@@ -32,6 +32,8 @@ Die Dielen knarrten unter seinem Gewicht, aber nur kurz. Danach bewegte er sich 
 
 Oswin legte einen Finger an die Lippen.
 
+Taron hasste praktische Antworten, wenn sie richtig waren.
+
 Sie öffneten die Tür einen Spalt.
 
 Aus der Schankstube drang spätes Licht. Stimmen. Schritte. Ein Krug wurde abgestellt. Jemand hustete. Der Wirt sagte etwas, das zu leise war, um es zu verstehen, aber hart genug klang, um Geld zu betreffen.
@@ -44,7 +46,7 @@ Taron erstarrte.
 
 Er kannte diese Stimme.
 
-Nicht aus Gerüchten. Nicht aus Träumen. Nicht aus der Art von Erinnerung, die alte Türen und Prophezeiungen gern benutzten, um Menschen unglücklich zu machen.
+Nicht aus Gerüchten. Nicht aus Träumen. Nicht aus einer jener Erinnerungen, die erst harmlos wirkten und später Ärger bedeuteten.
 
 Aus der Burgküche.
 
@@ -70,9 +72,11 @@ Unten im Schankraum standen noch etwa zehn Gäste. Zwei Händler schliefen mit o
 
 Elva stand vor dem Tresen.
 
-Sie sah nicht aus, als gehöre sie nach Grauwehr. Das hätte Taron beruhigt, wenn er selbst nicht ebenfalls aussah, als gehöre er hauptsächlich in ein Bett und danach in mehrere Wochen Ruhe. Elvas Kleid war am Saum schmutzig, der Mantel viel zu groß und an einer Schulter geflickt. Ihr Haar war unter einem Tuch zusammengebunden, aus dem mehrere Strähnen entkommen waren und offenbar entschlossen waren, dort zu bleiben. An ihrem Gürtel hing ein Küchenmesser.
+Sie sah nicht aus, als gehöre sie nach Grauwehr. Das hätte Taron beruhigt, wenn er selbst nicht ebenfalls aussah, als gehöre er hauptsächlich in ein Bett und danach in mehrere Wochen Ruhe. Elvas Kleid war am Saum schmutzig, der Mantel viel zu groß und an einer Schulter geflickt. Ihr Haar war unter einem Tuch zusammengebunden, aus dem mehrere Strähnen hingen. An ihrem Gürtel hing ein Küchenmesser.
 
 Kein Dolch.
+
+Ein Küchenmesser.
 
 Sie hielt ein gefaltetes Pergament in der Hand.
 
@@ -80,7 +84,11 @@ Der Wirt sagte: „Wenn Ihr ihn nicht feiern wollt, warum sucht Ihr ihn dann?“
 
 „Weil andere ihn feiern wollen“, sagte Elva. „Und das ist bei Taron meistens der Anfang von etwas Schlimmem.“
 
-Taron trat von der Treppe. Elva drehte sich um.
+Taron trat von der Treppe.
+
+„Das ist verletzend genau.“
+
+Elva drehte sich um.
 
 Für einen Moment war ihr Gesicht nur Erschrecken. Dann Erleichterung. Dann Wut. Bei Elva lagen diese Dinge dicht beieinander, damit keines warten musste.
 
@@ -100,11 +108,21 @@ Taron gab ein Geräusch von sich, das ein tapferer Mann vermieden hätte.
 
 „Auch ja.“
 
+„Warum bist du nass?“
+
+„Das ist eine lange Geschichte.“
+
+„Und verletzt?“
+
+„Leider dieselbe.“
+
 „Warum steht dein Name auf einem königlichen Erlass?“
 
 Taron öffnete den Mund.
 
 Dann schloss er ihn wieder.
+
+Der Erzähler sagte: „Manchmal ist Fortschritt nur der Moment, in dem jemand merkt, dass keine Antwort besser ist als die geplante.“
 
 Elva sah an Taron vorbei.
 
@@ -138,6 +156,16 @@ Der Wirt sah auf die Münzen, dann auf Oswin, dann auf Elvas Küchenmesser.
 
 „Natürlich ist sie das“, sagte Taron. „Warum sollte eine wichtige Besprechung auch an einem Ort stattfinden, der nicht nach Zwiebeln riecht.“
 
+Der Erzähler sagte: „Ich beginne, sie zu mögen.“
+1
+„Nein“, dachte Taron.
+
+„Sie erfüllt mehrere Kriterien.“
+
+„Welche?“
+
+„Wütend, richtig, bewaffnet mit Küchengerät.“
+
 Taron folgte Elva, Oswin und dem Wirt hinter den Tresen, durch einen schmalen Gang und in eine Speisekammer. Der Raum war klein, kühl und voller Regale. Säcke mit Mehl standen an der Wand, Fässer mit eingelegtem Gemüse in der Ecke. An der Decke hingen Kräuterbündel und Würste. Der Geruch war so stark, dass Taron kurz überlegte, ob man damit ebenfalls Gegner vertreiben könnte.
 
 Der Wirt stellte eine Lampe auf ein Fass.
@@ -152,11 +180,17 @@ Oswin schloss die Tür und stellte sich daneben.
 
 Taron und Elva standen zwischen Mehl und Zwiebeln und sahen einander an.
 
-Das war nicht der Ort, an dem Taron sich ihr Wiedersehen vorgestellt hatte. Allerdings hatte er sich in seinen besseren Vorstellungen auch nicht mit einem alten Schlüssel unter dem Hemd, blauen Flecken an der Seite und einem Ritter als Aufsichtsperson gesehen.
+So hatte Taron sich ihr Wiedersehen nicht vorgestellt. Allerdings hatte er sich in seinen besseren Vorstellungen auch nicht mit einem alten Schlüssel unter dem Hemd, blauen Flecken an der Seite und einem Ritter als Aufsichtsperson gesehen.
 
 „Du bist wirklich hier“, sagte er.
 
+„Nein“, sagte Elva. „Ich bin eine sehr überzeugende Rübe.“
+
+„Ich meine, wie?“
+
 „Mit einem Salzfuhrwerk bis Nordhain, dann mit zwei Tuchhändlern bis zur Furt, dann zu Fuß, dann auf einem Karren voller Kohl. Frag nicht nach dem Kohl.“
+
+„Ich meine: Warum Grauwehr?“
 
 Elvas Gesicht wurde wieder ernst.
 
@@ -164,17 +198,25 @@ Elvas Gesicht wurde wieder ernst.
 
 Taron sah zu Oswin.
 
-„Du bist ein junger verletzter Stallbursche, über den das halbe Reich gerade ein Lied erfinden will. Unauffällig war vorbei, bevor ich die Burg verlassen habe.“
+„Kummer ist ein sehr auffälliges Pferd.“
+
+„Du auch“, sagte Elva. „Du bist ein junger verletzter Stallbursche, über den das halbe Reich gerade ein Lied erfinden will. Unauffällig warst du schon nicht mehr, als ich die Burg verlassen habe.“
 
 Taron lächelte beinahe.
 
-Sie entfaltete das Pergament und drückte es ihm gegen die Brust. Diesmal nicht auf den Schlüssel. Das war freundlich oder Zufall.
+Sie entfaltete das Pergament und drückte es ihm gegen die Brust. Diesmal nicht auf den Schlüssel. Taron beschloss, das als Absicht zu nehmen.
 
 „Lies.“
 
-Taron nahm es. Oswin trat näher und blickte über Tarons Schulter.
+Taron nahm es.
 
-Das Pergament war kein vollständiger Erlass. Eher eine Abschrift. Manche Zeilen waren hastig geschrieben, andere fehlten. Oben stand das Siegel Waldkirchs, schlecht abgezeichnet, aber erkennbar: Wald, Kirche, Krone.
+„Du weißt, dass ich unter Druck schlechter lese.“
+
+„Du liest immer unter Druck.“
+
+Oswin trat näher und blickte über Tarons Schulter.
+
+Das Pergament war kein vollständiger Erlass. Eher eine Abschrift. Manche Zeilen waren hastig geschrieben, andere fehlten. Oben stand das Siegel Waldkirchs, schlecht abgezeichnet, aber erkennbar: Turm, Falke, Krone.
 
 Taron las langsam.
 
@@ -182,7 +224,7 @@ An alle Torwachen, Vögte, Ritter und getreuen Diener des Reiches.
 
 Taron Falkenried, durch Zeichen und Prüfung erkannter Träger der alten Verheißung, ist bei seiner Rückkehr unverzüglich unter königlichen Schutz zu stellen.
 
-Er darf ohne Begleitung des Hofes weder reisen, reiten, verhandeln, schweigen,  noch sich weiteren Prüfungen aussetzen.
+Er darf ohne Begleitung des Hofes weder reisen, reiten, verhandeln, schweigen noch sich weiteren Prüfungen aussetzen.
 
 Taron sah auf.
 
@@ -198,7 +240,9 @@ Der Erzähler sagte: „Ein ambitionierter Zugriff auf deine Kernkompetenzen.“
 
 Oswin nahm ihm das Pergament ab und las weiter.
 
-Der Menschenschlüssel, sofern durch ihn geborgen, ist im alten Thronsaal dem Reichseid zuzuführen. Bis zur Vollziehung des Ritus verbleibt der Träger in unmittelbarer Obhut der Krone und der Kirche.
+Der Menschenschlüssel, sofern durch ihn geborgen, ist im alten Thronsaal dem Reichseid zuzuführen.
+
+Bis zur Vollziehung des Ritus verbleibt der Träger in unmittelbarer Obhut der Krone und der Kirche.
 
 Jede eigenmächtige Entfernung ist als Gefährdung des Reiches zu behandeln.
 
@@ -210,9 +254,11 @@ Elva verschränkte die Arme. „Das ist das Wort, das sie benutzen, wenn sie nic
 
 Oswin las die letzte Zeile noch einmal.
 
+„Reichseid“, sagte er.
+
 „Malchior“, sagte Elva.
 
-Der Name lag zwischen ihnen wie etwas, das man besser nicht anfasste.
+Bei Malchiors Namen wechselte Oswins Blick kaum merklich.
 
 „Woher hast du das?“, fragte Oswin.
 
@@ -222,17 +268,33 @@ Elva hob das Kinn. „Aus der Schreibstube.“
 
 „Abgeschrieben.“
 
-- 
+„Unbemerkt?“
 
-„Du hast ihn.“ frage Elva.
+„Nicht bis zum Ende.“
+
+Taron sah sie an. „Was heißt am Ende?“
+
+„Es heißt, dass ich danach schneller war als Bruder Helmbrecht.“
+
+„Bruder Helmbrecht ist fast siebzig.“
+
+„Er hat erstaunlich viel Wut im Knie.“
+
+Taron wollte lachen. Er schaffte es nicht.
+
+Elva sah seine Hände.
+
+„Du hast ihn“, sagte sie.
 
 Taron legte die Hand auf die Brust.
 
-„Den Schlüssel? Ja.“
+„Den Schlüssel?“
+
+„Ja.“
 
 Für einen Moment sah Elva nicht triumphierend aus. Nicht einmal erleichtert.
 
-Sie sah traurig aus. Das traf Taron härter als ihre Hand.
+Sie sah traurig aus, und Taron musste an ihre Hand auf seiner Brust denken. Die hatte weniger wehgetan.
 
 „Es stimmt also“, sagte sie.
 
@@ -256,7 +318,7 @@ Elva atmete aus.
 
 Taron sah auf das Pergament.
 
-Die Worte bewegten sich nicht. Das war unhöflich. Etwas, das so viel Schaden anrichten konnte, hätte wenigstens die Anständigkeit haben sollen, unruhig zu werden.
+Die Worte standen ruhig auf dem Pergament. Etwas, das so viel Schaden anrichten konnte, durfte ruhig weniger ordentlich aussehen.
 
 „Ich bringe ihn zurück“, sagte Taron leise. „Dann ist es erledigt.“
 
@@ -272,11 +334,11 @@ Elva schüttelte den Kopf.
 
 „Weil ich sie gehört habe.“
 
-Die Speisekammer wurde stiller. Nicht wirklich. Draußen knarrte Holz, irgendwo wurde gelacht, und durch die Wand drang das gedämpfte Gemurmel der Schankstube. Aber in dem kleinen Raum verschwand etwas.
+In der Speisekammer wurde es enger. Nicht wirklich. Draußen knarrte Holz, irgendwo wurde gelacht, und durch die Wand drang das gedämpfte Gemurmel der Schankstube. Aber Taron bekam plötzlich weniger Luft.
 
 Elva sah nicht mehr wütend aus.
 
-Das war schlechter.
+Ihre Stimme wurde leiser.
 
 „In der Küche hört man mehr als im Thronsaal“, sagte sie. „Leute kommen hinein und glauben, Dienstboten seien Möbel, solange sie Brot schneiden. Malchior war bei der Königinmutter. Der König auch. Sie dachten, ich sei in der hinteren Kammer.“
 
@@ -286,7 +348,7 @@ Das war schlechter.
 
 „Gut.“
 
-„Dann kam der Reiterbericht“, sagte Elva. „Ein Bote aus Nordhain. Er war stolz, weil er schneller geritten war als sein Pferd vernünftig fand. Er sagte, du seist auf der Südroute gesehen worden. Der König wurde sehr glücklich. Malchior wurde sehr still. Das war schlimmer.“
+„Dann kam der Reiterbericht“, sagte Elva. „Ein Bote aus Nordhain. Er war stolz, weil er schneller geritten war als sein Pferd vernünftig fand. Er sagte, du seist auf der Südroute gesehen worden. Der König wurde sehr glücklich. Malchior nicht. Der hörte auf, irgendetwas mit den Fingern zu tun.“
 
 Taron spürte, wie seine Finger sich zusammenzogen.
 
@@ -304,7 +366,7 @@ Taron fühlte den Schlüssel auf seiner Haut.
 
 „Gebunden.“
 
-Elva nickte einmal, knapp, nicht als Gewohnheit, sondern weil das Wort keinen besseren Begleiter hatte.
+Elva nickte einmal, knapp.
 
 „An den Reichseid. An Waldkirch. An den alten Thronsaal. Ich habe nicht alles verstanden. Aber ich habe verstanden, wie sie über dich sprachen.“
 
@@ -314,9 +376,9 @@ Elva antwortete nicht sofort.
 
 Taron wünschte, sie hätte es getan.
 
-„Wie über einen Brunnen“, sagte sie schließlich. „Wichtig, nützlich, zu bewachen. Aber niemand fragt einen Brunnen, ob er durstig ist.“
+„Wie über einen Brunnen“, sagte sie schließlich. „Wichtig, nützlich, zu bewachen. Aber niemand fragt, ob er bleiben will.“
 
-Der Erzähler war still.
+Aus Tarons Kopf kam keine spöttische Hilfe.
 
 Taron hasste ihn dafür.
 
@@ -332,13 +394,13 @@ Der Satz war klein.
 
 Er passte nicht zu Taron. Oder vielleicht passte er gerade deshalb zu ihm, weil er so lange versucht hatte, solche Sätze durch Lärm zu vermeiden.
 
-Elva sah ihn an, als habe er ihr etwas Schweres in die Hände gelegt.
+Elva sah ihn an, und zum ersten Mal an diesem Abend wusste sie nicht sofort, wohin mit ihrer Wut.
 
 „Wer hat dir das eingeredet?“
 
 „Niemand.“
 
-Der Erzähler sagte nichts.
+In Tarons Kopf blieb es leer.
 
 Taron korrigierte sich nicht.
 
@@ -346,7 +408,7 @@ Taron korrigierte sich nicht.
 
 Er brach ab.
 
-Oswin sah zur Tür.
+Oswin sah zur Seite.
 
 Nicht, weil jemand kam.
 
@@ -368,7 +430,7 @@ Taron schwieg.
 
 „Und wenn er dich nicht fragt, dann braucht er nicht dein Opfer. Dann braucht er deine Benutzung.“
 
-Der Satz blieb im Raum.
+Nach diesem Satz sprach für einen Moment keiner.
 
 Er war nicht klug auf die Art von Merlan. Nicht glatt. Nicht alt. Nicht mit Randbemerkungen in drei Sprachen.
 
@@ -382,11 +444,7 @@ Elvas Gesicht wurde weicher.
 
 „Ich auch.“
 
-Das half.
-
-Nicht genug.
-
-Aber es half.
+Taron hielt sich an diesen zwei Worten fest, obwohl sie nicht genug waren.
 
 Oswin legte das Pergament auf ein Fass. „Was noch?“
 
@@ -400,7 +458,7 @@ Taron schloss die Augen.
 
 „Malchior hat Karten aus dem Archiv holen lassen. Alte Grenzkarten. Eidschriften. Abschriften aus der Zeit vor Waldkirch. Er sprach vom Schutzschlüssel.“
 
-Der Erzähler wurde sehr still.
+Etwas in Tarons Kopf zog sich zurück.
 
 Taron merkte es.
 
@@ -426,7 +484,7 @@ Elva sah zwischen ihnen hin und her. „Redet er?“
 
 Taron dachte nach.
 
-Das war neu genug, dass der Erzähler dazu sicher einen Kommentar gehabt hätte, wenn er nicht gerade selbst Teil des Problems gewesen wäre.
+Unter gewöhnlichen Umständen hätte der Erzähler diesen Moment sicher kommentiert. Leider war er gerade selbst Teil des Problems.
 
 „Teilweise.“
 
@@ -444,13 +502,13 @@ Taron rieb sich das Gesicht.
 
 Er war müde.
 
-Nicht nur körperlich. Körperliche Müdigkeit war einfach. Sie legte sich in Muskeln und Knochen und tat wenigstens so, als könne Schlaf etwas dagegen tun. Diese andere Müdigkeit hatte keinen Ort. Sie war überall dort, wo ein Gedanke weiterging, obwohl man ihn loslassen wollte.
+Nicht nur körperlich. Muskeln taten weh, Knochen wurden schwer, Schlaf versprach wenigstens eine Art Antwort. Diese andere Müdigkeit hatte keinen Ort. Sie begann dort, wo ein Gedanke weiterging, obwohl man ihn loslassen wollte.
 
 „Was soll ich tun?“, fragte er.
 
 Niemand antwortete sofort.
 
-Das war unfair. Sonst hatten immer alle Antworten. Meistens schlechte. Aber jetzt, wo Taron eine wollte, standen sie da wie Menschen, die plötzlich Respekt vor der Frage hatten.
+Sonst hatten immer alle Antworten. Meistens schlechte. Aber jetzt, wo Taron eine wollte, standen sie da wie Menschen, die plötzlich Respekt vor der Frage hatten.
 
 Der Erzähler sagte schließlich: „Du könntest fliehen.“
 
@@ -474,7 +532,7 @@ Taron sah auf das Pergament.
 
 Dann auf den Schlüssel unter seinem Hemd.
 
-Dann auf die Tür, hinter der Grauwehr murmelte und Gerüchte fraß, um neue Gerüchte auszuspeien.
+Dann auf die Tür, hinter der in der Schankstube wieder geredet wurde.
 
 „Nach Waldkirch“, sagte er.
 
@@ -484,7 +542,7 @@ Elva fuhr auf. „Nein.“
 
 „Hast du mir zugehört?“
 
-„Das war schwer zu vermeiden.“
+„Ich habe es versucht.“
 
 „Dann warum?“
 
@@ -500,7 +558,7 @@ Der Erzähler sagte: „Oh.“
 
 „Nicht oh.“
 
-„Doch. Diesmal ein ganz anderes Oh.“
+„Diesmal ein ganz anderes Oh.“
 
 Oswin verschränkte die Arme. „Du willst die Rolle spielen.“
 
@@ -510,7 +568,7 @@ Oswin verschränkte die Arme. „Du willst die Rolle spielen.“
 
 „Ja.“
 
-„Das ist ein Plan.“
+„Ein Plan.“
 
 „Ihr sagt das so, als müsste noch ein Wort davor.“
 
@@ -532,10 +590,6 @@ Elva sah Taron an, als wolle sie entscheiden, ob sie ihn schütteln oder umarmen
 
 „Du willst so tun, als würdest du dich opfern.“
 
-„Nein.“
-
-„Doch.“
-
 „Ich will so tun, als hätte ich endlich verstanden, was alle von mir wollen.“
 
 „Und dann?“
@@ -553,8 +607,6 @@ Elvas Augen wurden schmal.
 „Ich würde sagen: taktische Entfernung.“
 
 Oswin sagte: „Flucht.“
-
-Der Erzähler sagte: „Traditionsreiche Kernkompetenz.“
 
 Taron sah von einem zum anderen. „Ich bin froh, dass ihr euch alle versteht.“
 
@@ -580,7 +632,7 @@ Der Ritter erwiderte den Blick ruhig.
 
 „Ja“, sagte Taron.
 
-Das war ehrlicher, als er hatte sein wollen.
+Ehrlicher hatte er nicht klingen wollen.
 
 Elva lehnte sich gegen ein Regal mit Mehlsäcken. „Du spielst mit Leuten, die besser darin sind.“
 
@@ -592,11 +644,7 @@ Elva lehnte sich gegen ein Regal mit Mehlsäcken. „Du spielst mit Leuten, die 
 
 „Und du glaubst, du kannst sie austricksen?“
 
-„Nein“, sagte Taron.
-
-Elva wartete.
-
-„Ich glaube, ich kann sie lange genug verwirren.“
+„Nein“, sagte Taron. „Ich glaube, ich kann sie lange genug verwirren.“
 
 Der Erzähler sagte: „Das ist erschreckend plausibel.“
 
@@ -606,13 +654,11 @@ Nur kurz.
 
 Aber Taron sah es.
 
-Es traf ihn an einer Stelle, die nicht verletzt gewesen war, was beinahe verdächtig wirkte.
+Es traf ihn an einer Stelle, die bisher nicht wehgetan hatte.
 
 „Ich komme mit“, sagte Elva.
 
 „Nein.“
-
-„Doch.“
 
 „Du kannst nicht mitkommen.“
 
@@ -620,7 +666,7 @@ Es traf ihn an einer Stelle, die nicht verletzt gewesen war, was beinahe verdäc
 
 „Bis Grauwehr.“
 
-„Das ist eine Richtung.“
+„Das ist nur eine Richtung.“
 
 „Es wird gefährlich.“
 
@@ -628,13 +674,7 @@ Elva sah ihn langsam von oben bis unten an.
 
 „Du bist in einem Wirtshaus, verletzt, gesucht von König, Kirche und vermutlich Zwergen, mit einem alten Schlüssel unter dem Hemd und einer Stimme im Kopf. Ich glaube, gefährlich ist nicht mehr der kommende Teil. Gefährlich ist der Ort, an dem du gerade bist.“
 
-Oswin sagte nichts.
-
-Das war keine Zustimmung.
-
-Es war schlimmer.
-
-Es war kein Widerspruch.
+Oswin ließ den Einwand aus, den Taron erwartet hatte. Für einen Mann, der Widerspruch sehr gut beherrschte, war das auffällig.
 
 „Elva“, sagte Taron.
 
@@ -652,7 +692,7 @@ Taron sah auf ihr Küchenmesser.
 
 „Kannst du damit kämpfen?“
 
-„Ich kann damit sehr überzeugend darauf hinweisen, dass jemand Abstand halten soll.“
+„Ich kann damit sehr überzeugend Abstand verlangen.“
 
 Oswin sagte: „Das reicht am Anfang.“
 
@@ -670,9 +710,9 @@ Der Erzähler sagte: „Er hat einen Punkt. Einen kleinen, schlecht gelaunten, a
 
 Taron ließ sich auf ein Fass sinken. Es war leer, hoffte er.
 
-„Das ist zu viel.“
+„Mir ist das zu viel.“
 
-Elva kniete sich vor ihn, damit er sie ansehen musste. Das war unfair. Elva war sehr gut darin, Menschen durch bloße Positionierung zur Ehrlichkeit zu zwingen.
+Elva kniete sich vor ihn, damit er sie ansehen musste. Sie war sehr gut darin, Menschen durch bloße Positionierung zur Ehrlichkeit zu zwingen.
 
 „Dann sag einmal etwas Wahres.“
 
@@ -714,7 +754,7 @@ Einfach fest.
 
 Taron lachte fast.
 
-„Schöne Aufmunterung.“
+„Du solltest dringend an deinen Aufmunterungen arbeiten.“
 
 „Ich bin nicht hier, um dich anzulügen.“
 
@@ -732,9 +772,7 @@ Taron schwieg.
 
 Der Satz war leise.
 
-Er machte keine große Sache aus sich.
-
-Genau deshalb blieb er.
+Genau deshalb blieb er bei Taron.
 
 Oswin räusperte sich. „Wir sollten vor Morgengrauen entscheiden, ob wir bleiben.“
 
@@ -764,7 +802,7 @@ Er hob eine Hand.
 
 „Aber nicht als Rückkehr. Als Auftritt.“
 
-Der Erzähler wurde still.
+Der Erzähler gab keinen Kommentar dazu ab.
 
 Oswin betrachtete ihn.
 
@@ -784,7 +822,7 @@ Taron nickte diesmal doch. Langsam.
 
 Taron sah auf die Tür.
 
-Dahinter sprach Grauwehr weiter seinen Namen aus.
+Dahinter war sein Name wieder zu hören.
 
 „Dann“, sagte er, „muss ich sehr überzeugend so tun, als hätte ich einen Plan.“
 
@@ -796,7 +834,7 @@ Der Erzähler atmete hörbar ein.
 
 Taron wartete.
 
-„Das war fast ein Kompliment.“
+„Fast ein Kompliment.“
 
 „Ich weiß. Mir geht es auch nicht gut damit.“
 
@@ -808,7 +846,7 @@ Elva nahm das Pergament zurück, schob es in ihren Mantel und öffnete die Tür 
 
 „Du auch.“
 
-„Ich habe Erfahrung im Nicht-schlafen.“
+„Ich habe Erfahrung im Nichtschlafen.“
 
 „Und ich im Weiterarbeiten, während Männer glauben, Müdigkeit sei etwas Besonderes.“
 
@@ -816,7 +854,7 @@ Oswin öffnete die Tür ganz.
 
 „Dann sind wir ausreichend qualifiziert.“
 
-Sie gingen zurück in den Schankraum. Der Wirt sah sie nicht an. Das war vermutlich bezahlte Höflichkeit. Oder Angst. In Grauwehr lagen beide Dinge nahe beieinander.
+Sie gingen zurück in den Schankraum. Der Wirt sah sie nicht an. Vermutlich bezahlte Höflichkeit. Oder Angst. In Grauwehr lagen beide Dinge nahe beieinander.
 
 Der dünne Mann am Tisch erzählte inzwischen, der Auserwählte habe angeblich ein weißes Pferd, silberne Augen und könne durch Stein sehen.
 
@@ -838,7 +876,7 @@ Elva zog ihn am Ärmel weiter.
 
 Er ging weiter.
 
-Oben im Zimmer legte sich Elva auf den Boden, bevor Taron protestieren konnte. Oswin nahm den Stuhl an der Tür. Taron saß auf seinem Bett und verstand nicht, wann sein Leben angefangen hatte, wie eine schlechte Belagerung organisiert zu werden.
+Oben im Zimmer legte sich Elva auf den Boden, bevor Taron protestieren konnte. Oswin nahm den Stuhl an der Tür. Taron saß auf seinem Bett und verstand nicht, wann sein Leben angefangen hatte, sich wie eine schlechte Belagerung anzufühlen.
 
 Der Schlüssel lag wieder auf seiner Brust.
 
@@ -846,18 +884,12 @@ Elvas Pergament knisterte leise in ihrem Mantel.
 
 Oswins Hand ruhte nahe am Schwert.
 
-Und der Erzähler schwieg.
-
-Nicht zufrieden.
-
-Nicht spöttisch.
-
-Wach.
+Und der Erzähler blieb wach.
 
 Taron legte sich hin.
 
 Zum ersten Mal seit Tagen war er nicht allein mit der Stimme.
 
-Das machte alles komplizierter.
+Es machte alles komplizierter.
 
 Und ein wenig leichter.
