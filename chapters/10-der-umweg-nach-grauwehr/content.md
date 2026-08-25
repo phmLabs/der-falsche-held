@@ -482,8 +482,6 @@ Von Karndorn. Von grauen Mänteln. Von Zwergentrupps ohne Hörner.
 
 Von einem König im Westen, der seine Schmieden auch nachts brennen ließ.
 
-Von Ellinger Dörfern, in denen keine Hunde mehr bellten.
-
 Von Waldkirch, wo angeblich alle Glocken geläutet hatten, als der Auserwählte durch das Tor geritten war, obwohl Taron zu diesem Zeitpunkt in einer alten Zisterne beinahe ertrunken war.
 
 Die Welt war sehr beschäftigt damit, über ihn zu sprechen, während er versuchte, nicht in seinen Eintopf zu fallen.
