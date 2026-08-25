@@ -336,17 +336,13 @@ Elva schüttelte den Kopf.
 
 In der Speisekammer wurde es enger. Nicht wirklich. Draußen knarrte Holz, irgendwo wurde gelacht, und durch die Wand drang das gedämpfte Gemurmel der Schankstube. Aber Taron bekam plötzlich weniger Luft.
 
-Elva sah nicht mehr wütend aus.
+Elva sah nicht mehr wütend aus. Ihre Stimme wurde leiser.
 
-Ihre Stimme wurde leiser.
-
-„In der Küche hört man mehr als im Thronsaal“, sagte sie. „Leute kommen hinein und glauben, Dienstboten seien Möbel, solange sie Brot schneiden. Malchior war bei der Königinmutter. Der König auch. Sie dachten, ich sei in der hinteren Kammer.“
+„In der Küche hört man mehr als im Thronsaal“, sagte sie. „Leute kommen hinein und glauben, Dienstboten seien Möbel, solange sie Gemüse schneiden. Malchior war bei der Königinmutter. Der König auch. Sie dachten, ich sei in der hinteren Kammer.“
 
 „Warst du?“
 
 „Nein.“
-
-„Gut.“
 
 „Dann kam der Reiterbericht“, sagte Elva. „Ein Bote aus Nordhain. Er war stolz, weil er schneller geritten war als sein Pferd vernünftig fand. Er sagte, du seist auf der Südroute gesehen worden. Der König wurde sehr glücklich. Malchior nicht. Der hörte auf, irgendetwas mit den Fingern zu tun.“
 
@@ -376,7 +372,7 @@ Elva antwortete nicht sofort.
 
 Taron wünschte, sie hätte es getan.
 
-„Wie über einen Brunnen“, sagte sie schließlich. „Wichtig, nützlich, zu bewachen. Aber niemand fragt, ob er bleiben will.“
+„Wie über ein Werkzeug“, sagte sie schließlich. „Wichtig, nützlich, gut zu bewachen. Aber niemand fragt ein Werkzeug, wohin es will.“
 
 Aus Tarons Kopf kam keine spöttische Hilfe.
 
