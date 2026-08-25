@@ -88,7 +88,7 @@ Nicht als König auf einem Stuhl. Als Krieger in zerbeulter Rüstung, einen Bech
 
 Brokk blieb stehen. Er tat das selten.
 
-Das Bild war nicht besonders kunstvoll. Die Gesichter waren zu hart, die Schultern zu breit, und Brokk sah darauf aus wie jemand, der eine Wand persönlich beleidigt hatte. Aber Rugar war gut getroffen. Nicht prachtvoll. Zwerge legten auf solche Dinge weniger Wert; im Stollen fand Pracht selten Erz. Aber lebendig. Laut. Wach. Ein König, der seine Leute ansah und dabei wirklich sah.
+Das Bild war nicht besonders kunstvoll. Die Gesichter waren zu hart, die Schultern zu breit. Aber Rugar war gut getroffen. Nicht prachtvoll. Zwerge legten auf solche Dinge weniger Wert; im Stollen fand Pracht selten Erz. Aber lebendig. Laut. Wach. Ein König, der seine Leute ansah und dabei wirklich sah.
 
 Damals hatten sie Graumark noch nicht gehalten.
 
@@ -100,7 +100,7 @@ Brokk erinnerte sich an den Tag, an dem sie ihn fanden.
 
 Es war nach der Schlacht bei den roten Feldern gewesen, die in menschlichen Liedern später einen anderen Namen bekam. Menschen gaben Schlachten gern Namen, die klangen, als habe jemand rechtzeitig gewusst, worum es ging. In Wahrheit hatte es geregnet, Pferde waren gestürzt, Befehle waren im Nebel verloren gegangen, und ein ganzer Flügel der Zwergenlinie hatte nur deshalb gehalten, weil ein Koch mit einer Bratpfanne einem menschlichen Kundschafter den Helm eingedellt hatte.
 
-Der Sieg, falls man ihn so nennen wollte, roch nach nassem Leder und Blut.
+Der Sieg, falls man ihn so nennen wollte, roch nach nassem Leder, Blut und Verlust.
 
 Am Abend saßen sie in einer verlassenen menschlichen Scheune. Rugar hatte den Helm abgenommen. Sein Bart war an einer Seite angesengt, über seinem Auge klaffte ein Schnitt, und er lachte, weil Brokk versucht hatte, eine Wunde am Arm mit dem falschen Ende einer Nadel zu nähen.
 
@@ -118,21 +118,17 @@ Brokk hatte damals gedacht: So klingt ein Volk, das noch weiß, warum es kämpft
 
 In derselben Nacht kam der Bote.
 
-Nicht mit Siegesnachricht.
-
-Mit einer Karte.
+Nicht mit Siegesnachricht. Mit einer Karte.
 
 Unter der alten Kapelle von Riedwacht, sagte er, sei ein Gewölbe gefunden worden. Nicht groß. Nicht reich. Aber mit einem Zeichen im Stein, das älter sei als die menschliche Burg darüber. Ein Winkel im Kreis. Das Zeichen des Zwergenschlüssels.
 
 Rugar war sofort aufgestanden.
 
-Nicht hastig.
+Nicht hastig. Er war nie hastig gewesen.
 
-Er war nie hastig gewesen. Für ihn war Hektik nur Angst in schlechten Stiefeln.
+Brokk war mit ihm gegangen. Sechs Krieger, zwei Schreiber, ein alter Priester, der mehr über Eide wusste als Rugar selbst. Die Kapelle war halb eingestürzt. Menschen hatten dort gebetet, geheiratet. Unter dem Altar führte eine schmale Treppe hinab.
 
-Brokk war mit ihm gegangen. Sechs Krieger, zwei Schreiber, ein alter Priester, der mehr über Eide wusste als über Treppen, und Rugar selbst. Die Kapelle war halb eingestürzt. Menschen hatten dort gebetet, geheiratet und wahrscheinlich Dinge versprochen, die sie später bereuten. Unter dem Altar führte eine schmale Treppe hinab.
-
-Sie fanden den Schlüssel in einer Wandnische.
+Sie fanden den Schlüssel in einer Wandnische hinter einem bekannten Symbol.
 
 Dunkles Metall. Schlicht. Ein Griff wie ein Winkel, dessen Enden sich nicht berührten.
 
@@ -160,6 +156,8 @@ Brokk hatte damals geglaubt, es sei Erleichterung.
 
 Heute wusste er nicht mehr, ob das eine Lüge war oder nur Hoffnung mit schlechter Beleuchtung.
 
+- 
+
 „Hauptmann?“
 
 Haldrins Stimme holte ihn zurück.
@@ -174,11 +172,7 @@ Sie gingen weiter zur oberen Halle.
 
 Vor der Tür standen zwei Wachen. Früher hatte dort niemand gestanden. Wer den König sprechen wollte, klopfte an, wurde angeschrien hereinzukommen und bereute es dann auf normale Weise. Jetzt standen Wachen vor der Tür, als müsse man den König vor seinem Volk schützen.
 
-Oder das Volk vor dem König.
-
-Brokk mochte diesen Gedanken nicht.
-
-Er nahm ihn trotzdem mit hinein.
+Brokk mochte diesen Gedanken nicht. Er nahm ihn trotzdem mit hinein.
 
 König Rugar stand nicht am Fenster. Er saß auch nicht auf dem Stuhl. Er stand vor einem Tisch aus schwarzem Stein, auf dem Karten lagen. Graumark. Ellingen. Waldkirch. Die westlichen Pässe. Der Grenzwald. Abendriss.
 
@@ -202,13 +196,9 @@ Rugar legte einen Finger auf die Karte. Abendriss.
 
 „Der Menschenschlüssel wurde bewegt.“
 
-Haldrin senkte den Blick. Offenbar hatte er diesen Satz bereits gehört und nicht besser gefunden.
+Haldrin senkte den Blick. Offenbar hatte er diesen Satz bereits gehört.
 
 Brokk trat näher. „Durch wen?“
-
-„Menschen.“
-
-„Das ist ein weites Feld.“
 
 „Ein Junge mit Falkenzeichen. Ein Ritter.“
 
