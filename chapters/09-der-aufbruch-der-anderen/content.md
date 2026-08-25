@@ -278,7 +278,7 @@ Der König zeigte auf den hellen Stein zwischen den Ländern. „Danach sucht ih
 
 „Welche anderen?“
 
-„Die, die immer kommen, wenn alte Türen wieder Namen bekommen.“
+„Die, die immer kommen, wenn alte Türen wieder heöffnet werden sollen.“
 
 Haldrin schrieb etwas auf seine Tafel.
 
