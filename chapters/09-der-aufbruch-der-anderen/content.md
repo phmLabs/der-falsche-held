@@ -56,11 +56,7 @@ Brokk mochte ihn. Das war ärgerlich. Junge Krieger, die man mochte, hatten die 
 
 Am Ende der Halle wurde eine kleine Glocke geschlagen.
 
-Einmal.
-
-Nicht laut.
-
-Aber jedes Gespräch verstummte.
+Einmal. Nicht laut. Aber jedes Gespräch verstummte.
 
 Brokk sah nicht zur Tür. Er wusste, wer kam, bevor die Schritte den Saal erreichten.
 
@@ -78,15 +74,9 @@ Brokk nahm sein Brot vom Tisch und steckte es in die Tasche.
 
 „Suppe nicht?“, fragte Lorn.
 
-„Sie hat verloren.“
-
 Brokk ging an den langen Tischen vorbei. Mehrere Zwerge sahen ihm nach. Niemand fragte etwas. Das war eine weitere neue Gewohnheit: nicht fragen, wenn jemand zum König gerufen wurde. Früher hätten drei Leute sofort gewusst, warum, vier hätten es falsch weitererzählt und einer hätte daraus ein Lied gemacht, bevor der Betroffene überhaupt zurück war.
 
-Brokk hatte diese Zeit gekannt.
-
-Er hatte sie nicht genug geschätzt.
-
-Das fiel einem bei guten Zeiten oft erst auf, wenn sie vorbei waren.
+Brokk hatte diese Zeit gekannt. Er hatte sie nicht genug geschätzt.
 
 Die Gänge von Karndorn führten vom Speisesaal hinauf zur oberen Halle, nicht hinab. Menschen stellten sich Zwergenreiche gern als endlose Tiefen vor, weil Menschen alles, was sie nicht verstanden, entweder unter die Erde oder in den Himmel verlegten. Karndorn lag in einem Gebirge, ja, aber seine alten Hallen waren in die Flanke eines grauen Massivs gebaut, mit breiten Fensterschlitzen nach Westen und Terrassen, auf denen im Sommer Kräuter wuchsen. Zwerge mochten Stein. Das bedeutete nicht, dass sie Licht hassten.
 
@@ -96,9 +86,7 @@ Es zeigte König Rugar vor zehn Jahren.
 
 Nicht als König auf einem Stuhl. Als Krieger in zerbeulter Rüstung, einen Becher in der Hand, den Fuß auf einem umgestürzten Schild. Neben ihm standen Brokk, Varga, zwei längst tote Hauptleute und ein Sänger, der damals nur deshalb im Bild gelandet war, weil er sich geweigert hatte, aus dem Weg zu gehen.
 
-Brokk blieb stehen.
-
-Er tat das selten.
+Brokk blieb stehen. Er tat das selten.
 
 Das Bild war nicht besonders kunstvoll. Die Gesichter waren zu hart, die Schultern zu breit, und Brokk sah darauf aus wie jemand, der eine Wand persönlich beleidigt hatte. Aber Rugar war gut getroffen. Nicht prachtvoll. Zwerge legten auf solche Dinge weniger Wert; im Stollen fand Pracht selten Erz. Aber lebendig. Laut. Wach. Ein König, der seine Leute ansah und dabei wirklich sah.
 
@@ -120,13 +108,11 @@ Am Abend saßen sie in einer verlassenen menschlichen Scheune. Rugar hatte den H
 
 „Beides verlangt, dass etwas zusammenhält.“
 
-„Dann bete, dass dein Arm kein Reich ist.“
-
 Brokk hatte gegrunzt.
 
 Rugar hatte ihm die Nadel abgenommen und es selbst gemacht. Schlecht, aber mit großem Selbstvertrauen.
 
-Später hatten sie gegessen. Nicht viel. Altes Brot, ein Stück geräucherter Fisch, ein Topf mit Rüben, zäh genug für zwei Schlachten. Jemand hatte ein Lied begonnen. Erst leise. Dann lauter. Rugar hatte mitgesungen, falsch an zwei Stellen und lauter als nötig.
+Später hatten sie gegessen. Nicht viel. Eein Stück geräucherter Fisch, ein Topf mit Rüben, zäh genug für zwei Schlachten. Jemand hatte ein Lied begonnen. Erst leise. Dann lauter. Rugar hatte mitgesungen, falsch an zwei Stellen und lauter als nötig.
 
 Brokk hatte damals gedacht: So klingt ein Volk, das noch weiß, warum es kämpft.
 
@@ -136,7 +122,7 @@ Nicht mit Siegesnachricht.
 
 Mit einer Karte.
 
-Unter der alten Kapelle von Falkenried, sagte er, sei ein Gewölbe gefunden worden. Nicht groß. Nicht reich. Aber mit einem Zeichen im Stein, das älter sei als die menschliche Burg darüber. Ein Winkel im Kreis. Das Zeichen des Zwergenschlüssels.
+Unter der alten Kapelle von Riedwacht, sagte er, sei ein Gewölbe gefunden worden. Nicht groß. Nicht reich. Aber mit einem Zeichen im Stein, das älter sei als die menschliche Burg darüber. Ein Winkel im Kreis. Das Zeichen des Zwergenschlüssels.
 
 Rugar war sofort aufgestanden.
 
