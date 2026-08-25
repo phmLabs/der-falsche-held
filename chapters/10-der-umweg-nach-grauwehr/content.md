@@ -206,21 +206,7 @@ Taron spürte, wie seine Tasche schwerer wurde.
 
 Oswin wurde sehr still.
 
-„Wie viele?“
-
-„Wer zählt Schatten?“, fragte der alte Mann.
-
-Der Erzähler sagte: „Meistens die Leute, die noch Licht haben.“
-
-Taron antwortete nicht. Nicht einmal innerlich.
-
-Die Frau sah auf Tarons Mantel. „Ihr seid verletzt.“
-
-„Ich falle viel.“
-
-„Schlecht für einen Reiter.“
-
-„Ich bin eigentlich Stallbursche.“
+„Wir wissen es nicht“
 
 Sie lachte einmal kurz. Nicht, weil es lustig war. Weil es absurd genug klang, um wahr zu sein.
 
