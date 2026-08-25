@@ -214,27 +214,17 @@ Rugar sah ihn an.
 
 „Der Schlüssel ist nicht mehr dort.“
 
-Brokk stellte keine Frage.
+Brokk stellte keine Frage.Manchmal war die gefährlichste Frage die, auf die man schon eine Antwort fürchtete.
 
-Manchmal war die gefährlichste Frage die, auf die man schon eine Antwort fürchtete.
+Rugar drehte den Kopf leicht zur Seite. Nur ein wenig.
 
-Rugar drehte den Kopf leicht zur Seite.
-
-Nur ein wenig.
-
-Als lausche er jemandem neben dem Tisch.
-
-Brokk sah nichts.
-
-Er hatte noch nie etwas gesehen.
+Als lausche er jemandem neben dem Tisch. Brokk sah nichts. Er hatte noch nie etwas gesehen.
 
 Das war fast das Schlimmste daran.
 
 „Nein“, sagte Rugar leise.
 
-Haldrin rührte sich nicht.
-
-Brokk auch nicht.
+Haldrin rührte sich nicht. Brokk auch nicht.
 
 Der König blickte wieder auf die Karte, als sei nichts geschehen.
 
@@ -248,13 +238,11 @@ Die Wachen an der Tür wurden noch gerader.
 
 Rugar sah Brokk lange an.
 
-Früher hätte er bei so einer Frage gelacht. Nicht freundlich, aber groß. Dann hätte er gesagt, Brokk solle sich nicht anstellen wie ein Priester mit Magenweh, und danach hätte er geantwortet.
+Früher hätte er bei so einer Frage gelacht. Nicht freundlich, aber groß. Dann hätte er gesagt, Brokk solle sich nicht anstellen wie ein Priester und danach hätte er geantwortet.
 
 Heute lachte er nicht.
 
 „Wir wissen genug.“
-
-Das war keine Antwort.
 
 Brokk vermerkte es innerlich auf einer Liste, die in den letzten Jahren zu lang geworden war.
 
@@ -281,12 +269,6 @@ Brokk spürte, wie seine Finger sich schlossen.
 „Dann sollte er keine Schlüssel tragen.“
 
 „Vielleicht weiß er nicht, was er trägt.“
-
-„Das habe ich gesagt.“
-
-„Unwissen macht ihn nicht zum Feind.“
-
-Rugar hob den Blick.
 
 „Unwissen macht ihn gefährlicher.“
 
