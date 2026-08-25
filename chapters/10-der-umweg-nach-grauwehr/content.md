@@ -571,39 +571,23 @@ Taron drehte sich auf die Seite.
 
 „Morgen reiten wir nach Waldkirch?“
 
-Oswin sagte nichts.
-
-„Das war kein Ja.“
-
 „Morgen“, sagte Oswin, „entscheiden wir, welcher Weg uns am wenigsten umbringt.“
 
 Der Erzähler sagte: „Eine erfreulich realistische Reiseplanung.“
 
 Taron schloss die Augen.
 
-Diesmal träumte er nicht vom Turm.
-
-Er träumte von einer Karte.
+Diesmal träumte er nicht vom Turm. Er träumte von einer Karte.
 
 Nicht von einer schönen Karte mit blauen Flüssen und kleinen Bäumen und Bergen, die aussahen wie Zähne. Von einer dunklen Karte aus Stein. Drei Zeichen lagen darauf. Eines kalt auf seiner Brust. Eines weit im Westen. Eines irgendwo zwischen ihnen, unter Erde, Wald oder Wasser.
 
 Und überall auf der Karte bewegten sich kleine Lichter.
 
-Menschen.
-
-Zwerge.
-
-Andere.
-
-Taron wollte eines der Lichter mit dem Finger aufhalten.
-
-Die Karte war zu groß.
+Menschen. Zwerge. Andere.
 
 Als er aufwachte, war es noch dunkel.
 
-Der Schlüssel lag auf seiner Brust.
-
-Und irgendwo unten in der Schankstube sagte eine fremde Stimme:
+Der Schlüssel lag auf seiner Brust. Und irgendwo unten in der Schankstube sagte eine fremde Stimme:
 
 „Bei Waldkirch haben sie den Namen des Auserwählten ausgerufen.“
 
