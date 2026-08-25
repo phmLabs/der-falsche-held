@@ -138,22 +138,6 @@ Der Wirt sah auf die Münzen, dann auf Oswin, dann auf Elvas Küchenmesser.
 
 „Natürlich ist sie das“, sagte Taron. „Warum sollte eine wichtige Besprechung auch an einem Ort stattfinden, der nicht nach Zwiebeln riecht.“
 
-„Weil Zwiebeln ehrlicher sind als Höfe“, sagte Elva.
-
-Der Erzähler sagte: „Ich beginne, sie zu mögen.“
-
-„Nein“, dachte Taron.
-
-„Doch.“
-
-„Du darfst Elva nicht mögen.“
-
-„Ich fürchte, sie erfüllt mehrere Kriterien.“
-
-„Welche?“
-
-„Sie ist wütend, richtig und bewaffnet mit Küchengerät.“
-
 Taron folgte Elva, Oswin und dem Wirt hinter den Tresen, durch einen schmalen Gang und in eine Speisekammer. Der Raum war klein, kühl und voller Regale. Säcke mit Mehl standen an der Wand, Fässer mit eingelegtem Gemüse in der Ecke. An der Decke hingen Kräuterbündel und Würste. Der Geruch war so stark, dass Taron kurz überlegte, ob man damit ebenfalls Gegner vertreiben könnte.
 
 Der Wirt stellte eine Lampe auf ein Fass.
