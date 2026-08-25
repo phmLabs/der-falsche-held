@@ -538,13 +538,8 @@ Oswin bewegte sich im anderen Bett, sagte aber nichts.
 
 „Ja“, sagte der Erzähler.
 
-Endlich.
+Endlich. Ein klares Ja.Taron hatte sich danach gesehnt, bis es da war.
 
-Ein klares Ja.
-
-Taron hatte sich danach gesehnt, bis es da war.
-
-Jetzt hasste er es.
 
 „Warum?“
 
@@ -564,21 +559,11 @@ Der Schlüssel auf seiner Brust war kalt.
 
 Draußen fuhr ein Wagen durch die Straße. Jemand fluchte. Ein Hund bellte einmal und hörte sofort wieder auf.
 
-„Das ist keine gute Antwort“, sagte Taron.
-
-„Nein.“
-
-„Du hast viele davon.“
-
-„Ich hatte lange Zeit.“
-
 Taron wollte weiterfragen. Er wollte wissen, wo der Erzähler gewesen war, warum er verschwunden war, was er im Turm gespürt hatte und warum ein Teil von ihm so klang, als habe er dort nicht nur Angst, sondern Freude gefunden.
 
 Aber Oswin sagte aus der Dunkelheit: „Schlaft.“
 
 Es war kein Befehl.
-
-Nicht ganz.
 
 Eher ein müder Vorschlag von jemandem, der wusste, dass morgen schlechter wurde, wenn man ihm ohne Schlaf begegnete.
 
