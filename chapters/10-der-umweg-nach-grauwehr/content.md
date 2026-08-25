@@ -94,18 +94,6 @@ Am Mittag kamen sie an einer verlassenen Zollstation vorbei.
 
 Das Dach war zur Hälfte eingestürzt. Im Hof stand ein Wagen ohne Räder. An der Wand hing noch ein Schild, auf dem Preise für Salz, Wolle, Eisen, Pferde und „ungeklärte Ladung“ standen. Unter ungeklärte Ladung hatte jemand vor Jahren mit Kohle geschrieben: Könige.
 
-Taron betrachtete das Schild.
-
-„Das ist eine gute Steuerklasse.“
-
-„Teuer“, sagte Oswin.
-
-„Für Könige?“
-
-„Für alle anderen.“
-
-Sie machten dort Halt.
-
 Oswin verband seinen Arm neu. Er tat es mit einer Hand, schlecht gelaunt und besser, als Taron es mit zwei Händen vermocht hätte. Taron wusch sich an einer Pumpe, aus der erst braunes Wasser kam und dann Wasser, das so tat, als sei der Unterschied bedeutend.
 
 Als er den Mantel öffnete, sah er den blauen Fleck an seiner Seite. Er war groß, dunkel und hatte eine Form, die Taron nicht beschreiben konnte, ohne beleidigend gegenüber Landkarten zu werden.
