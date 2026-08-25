@@ -156,17 +156,7 @@ Das war nicht der Ort, an dem Taron sich ihr Wiedersehen vorgestellt hatte. Alle
 
 „Du bist wirklich hier“, sagte er.
 
-„Nein“, sagte Elva. „Ich bin eine sehr überzeugende Rübe.“
-
-„Ich meine, wie?“
-
 „Mit einem Salzfuhrwerk bis Nordhain, dann mit zwei Tuchhändlern bis zur Furt, dann zu Fuß, dann auf einem Karren voller Kohl. Frag nicht nach dem Kohl.“
-
-„Warum?“
-
-„Weil du sonst nach dem Kohl fragst.“
-
-„Ich meine: Warum Grauwehr?“
 
 Elvas Gesicht wurde wieder ernst.
 
