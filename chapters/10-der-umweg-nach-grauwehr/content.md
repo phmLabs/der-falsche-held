@@ -382,17 +382,7 @@ Oswin bemerkte es, sagte aber nichts.
 
 „Es heißt“, sagte der Erzähler, „dass ein Mensch, der zehn Jahre lang blind war und plötzlich wieder Farben sieht, sich vielleicht unangemessen über Rot freut. Selbst wenn Rot gerade Blut ist.“
 
-Taron legte den Löffel hin.
-
-Das Geräusch war klein.
-
-„Das ist kein guter Satz.“
-
-„Nein.“
-
-„Aber ein ehrlicher?“
-
-„Leider.“
+Taron legte den Löffel hin. Das Geräusch war klein.
 
 Für einen Moment war die Herberge zu laut und zu fern zugleich. Taron hörte das Kratzen von Löffeln, das Schieben von Bänken, einen Mann, der über Salzpreise fluchte, eine Frau, die sagte, die Zwerge hätten die Ostpässe bereits geschlossen, obwohl niemand am Tisch wusste, wo genau die Ostpässe lagen.
 
@@ -434,7 +424,7 @@ Taron dachte an Kummer.
 
 „Und mit einer Rüstung aus altem Silber.“
 
-Oswin sah kurz auf Tarons abgenutzten Waffenrock.
+Oswin sah kurz auf Tarons abgenutzten Waffenrock und seinen Mantel.
 
 „Das ist sehr grausam.“
 
@@ -444,7 +434,7 @@ Taron schloss die Augen.
 
 „Ich wurde fast gegessen.“
 
-„Das ist eine Form von Nähe zum Sieg“, sagte der Erzähler.
+„Das ist eine Form von Sieg“, sagte der Erzähler.
 
 Die Frau am anderen Tisch schnaubte. „Wenn er so groß ist, warum braucht er dann einen Ritter?“
 
@@ -455,10 +445,6 @@ Die Frau am anderen Tisch schnaubte. „Wenn er so groß ist, warum braucht er d
 „Der Auserwählte ist nicht klein.“
 
 „Kennst du ihn?“
-
-„Nein.“
-
-„Dann könnte er klein sein.“
 
 Taron sank tiefer über seine Schale.
 
@@ -482,51 +468,17 @@ Der Wirt ging weiter.
 
 Der Erzähler seufzte. „Kostenloser Krug. Ohne Lüge. Ein seltener Sieg für langweilige Moral.“
 
-„Ich nehme ihn.“
-
-„Das dachte ich mir.“
-
 Oswin sah zum Nachbartisch. „Die Gerüchte sind schnell.“
 
 „Zu schnell?“
 
-„Ja.“
-
-„Warum?“
-
-„Weil jemand will, dass sie schnell sind.“
+„Ja. Weil jemand will, dass sie schnell sind.“
 
 Taron ließ den Löffel in der Schale.
 
-Der Satz setzte sich neben ihn, ohne um Erlaubnis zu fragen.
-
-„Waldkirch?“
-
-„Vielleicht.“
-
-„Malchior?“
-
-„Vielleicht.“
-
-„Die Zwerge?“
-
-„Nicht so.“
-
-„Wer dann?“
-
-Oswin trank wieder. „Alle, die von einem Auserwählten profitieren, bevor sie ihn treffen.“
-
-Taron mochte diese Antwort nicht.
-
-Sie war zu groß.
-
 Am Nachbartisch wurde weitergeredet.
 
-Von Karndorn.
-
-Von grauen Mänteln.
-
-Von Zwergentrupps ohne Hörner.
+Von Karndorn. Von grauen Mänteln. Von Zwergentrupps ohne Hörner.
 
 Von einem König im Westen, der seine Schmieden auch nachts brennen ließ.
 
