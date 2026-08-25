@@ -12,7 +12,7 @@ Oswin saß bereits aufrecht auf seinem Bett. Im Mondlicht sah er nicht müde aus
 
 „Vielleicht gibt es mehrere Falkenrieds“, flüsterte Taron.
 
-Der Erzähler sagte: „Eine schöne Hoffnung. Sie hat keine Beine, aber einen sehr hübschen Hut.“
+Der Erzähler sagte: „Eine schöne Hoffnung. “
 
 „Still.“
 
@@ -31,8 +31,6 @@ Die Dielen knarrten unter seinem Gewicht, aber nur kurz. Danach bewegte er sich 
 „Was machen wir?“, flüsterte er.
 
 Oswin legte einen Finger an die Lippen.
-
-Taron hasste praktische Antworten, wenn sie richtig waren.
 
 Sie öffneten die Tür einen Spalt.
 
@@ -76,23 +74,13 @@ Sie sah nicht aus, als gehöre sie nach Grauwehr. Das hätte Taron beruhigt, wen
 
 Kein Dolch.
 
-Kein Schmuckmesser.
-
-Ein Küchenmesser.
-
-Das machte es irgendwie gefährlicher.
-
 Sie hielt ein gefaltetes Pergament in der Hand.
 
 Der Wirt sagte: „Wenn Ihr ihn nicht feiern wollt, warum sucht Ihr ihn dann?“
 
 „Weil andere ihn feiern wollen“, sagte Elva. „Und das ist bei Taron meistens der Anfang von etwas Schlimmem.“
 
-Taron trat von der Treppe.
-
-„Das ist verletzend genau.“
-
-Elva drehte sich um.
+Taron trat von der Treppe. Elva drehte sich um.
 
 Für einen Moment war ihr Gesicht nur Erschrecken. Dann Erleichterung. Dann Wut. Bei Elva lagen diese Dinge offenbar dicht beieinander, damit keines warten musste.
 
