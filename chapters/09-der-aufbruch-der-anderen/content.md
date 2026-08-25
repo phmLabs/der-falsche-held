@@ -546,16 +546,6 @@ Karndorn lag im Abendlicht aus grauem Stein und schmalen Fenstern. Aus den Werks
 
 Der Weg führte zuerst über die Terrassen, dann zwischen schwarzen Felsen hindurch nach Osten. Hinter ihnen blieb Karndorn still. Vor ihnen lagen alte Straßen, menschliche Dörfer, Grenzwälder und ein Junge mit Falkenzeichen, der vermutlich glaubte, sein schlimmster Fehler sei bereits passiert.
 
-Das war verständlich.
-
-Es war auch falsch.
-
 Brokk Eisenhand ging an der Spitze.
 
-Er hatte einen Auftrag.
-
-Er hatte Zweifel.
-
-Er hatte Brot.
-
-Von den dreien war ihm der Auftrag am wenigsten vertraut.
+Er hatte einen Auftrag. Er hatte Zweifel.
