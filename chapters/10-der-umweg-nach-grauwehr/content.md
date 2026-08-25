@@ -1,5 +1,3 @@
-# Kapitel 10: Der Umweg nach Grauwehr
-
 Taron hatte geglaubt, nach Abendriss würde die Welt wenigstens so freundlich sein, eine Weile nichts von ihm zu wollen.
 
 Das war naiv.
