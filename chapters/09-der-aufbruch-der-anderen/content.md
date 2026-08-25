@@ -380,19 +380,7 @@ Die Worte klangen geübt.
 
 Zu geübt.
 
-„Wessen Freiheit?“, fragte Brokk.
-
-Rugar sah wieder zur Seite.
-
-Dieses Mal dauerte es länger.
-
-Brokk spürte, wie sich die Luft in seiner Brust verkleinerte.
-
-Dann lächelte der König.
-
-Es war nicht das Lächeln aus der Scheune vor zehn Jahren.
-
-„Unsere“, sagte er.
+„Unsere Freiheit“, sagte er.
 
 Brokk glaubte ihm nicht.
 
