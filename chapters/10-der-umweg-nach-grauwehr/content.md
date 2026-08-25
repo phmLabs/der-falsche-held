@@ -532,20 +532,6 @@ Taron schloss die Augen.
 
 Im Dunkeln war nichts zu sehen. Nur ein schmaler Streifen Mondlicht am Fenster.
 
-„Ich will niemanden bewegen.“
-
-„Zu spät.“
-
-Der Erzähler klang nicht spöttisch.
-
-Er klang wach.
-
-Fast glücklich.
-
-Das machte Taron wütender als ein Witz.
-
-„Du willst das wieder machen“, flüsterte er.
-
 Oswin bewegte sich im anderen Bett, sagte aber nichts.
 
 „Du willst wieder in so einen Ort. Wieder Schlüssel, Türen, alte Stimmen, gefährliche Sätze.“
