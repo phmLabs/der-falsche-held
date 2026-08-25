@@ -82,7 +82,7 @@ Der Wirt sagte: „Wenn Ihr ihn nicht feiern wollt, warum sucht Ihr ihn dann?“
 
 Taron trat von der Treppe. Elva drehte sich um.
 
-Für einen Moment war ihr Gesicht nur Erschrecken. Dann Erleichterung. Dann Wut. Bei Elva lagen diese Dinge offenbar dicht beieinander, damit keines warten musste.
+Für einen Moment war ihr Gesicht nur Erschrecken. Dann Erleichterung. Dann Wut. Bei Elva lagen diese Dinge dicht beieinander, damit keines warten musste.
 
 Sie ging auf ihn zu und schlug ihm mit der flachen Hand gegen die Brust.
 
@@ -99,14 +99,6 @@ Taron gab ein Geräusch von sich, das ein tapferer Mann vermieden hätte.
 „Du siehst furchtbar aus.“
 
 „Auch ja.“
-
-„Warum bist du nass?“
-
-„Das ist eine lange Geschichte.“
-
-„Warum bist du verletzt?“
-
-„Das ist dieselbe Geschichte.“
 
 „Warum steht dein Name auf einem königlichen Erlass?“
 
