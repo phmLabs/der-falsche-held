@@ -94,19 +94,9 @@ Am Mittag kamen sie an einer verlassenen Zollstation vorbei.
 
 Das Dach war zur Hälfte eingestürzt. Im Hof stand ein Wagen ohne Räder. An der Wand hing noch ein Schild, auf dem Preise für Salz, Wolle, Eisen, Pferde und „ungeklärte Ladung“ standen. Unter ungeklärte Ladung hatte jemand vor Jahren mit Kohle geschrieben: Könige.
 
-Oswin verband seinen Arm neu. Er tat es mit einer Hand, schlecht gelaunt und besser, als Taron es mit zwei Händen vermocht hätte. Taron wusch sich an einer Pumpe, aus der erst braunes Wasser kam und dann Wasser, das so tat, als sei der Unterschied bedeutend.
+Oswin verband seinen Arm neu. Er tat es mit einer Hand, schlecht gelaunt und besser, als Taron es mit zwei Händen vermocht hätte. Taron wusch sich an einer Pumpe, aus der erst braunes Wasser kam und dann Wasser, das so tat, als könne man es trinken.
 
-Als er den Mantel öffnete, sah er den blauen Fleck an seiner Seite. Er war groß, dunkel und hatte eine Form, die Taron nicht beschreiben konnte, ohne beleidigend gegenüber Landkarten zu werden.
-
-„Ich glaube, ich sterbe innerlich.“
-
-„Unwahrscheinlich“, sagte Oswin.
-
-„Das ist nicht tröstlich.“
-
-„Tote beschweren sich weniger.“
-
-Der Erzähler sagte: „Nicht alle.“
+Als er den Mantel öffnete, sah er den blauen Fleck an seiner Seite. Er war groß, dunkel und hatte eine Form, die Taron nicht beschreiben konnte.
 
 Taron sah auf den Schlüssel in seinem Tuch. Er hatte ihn herausgenommen, um sicherzugehen, dass er noch da war. Das war unvernünftig. Wenn er nicht mehr da gewesen wäre, hätte Taron das sehr schnell auch ohne Nachsehen bemerkt, vermutlich durch Schreien.
 
