@@ -544,16 +544,6 @@ Brokk sagte sich, dass ein König nicht zu jedem kleinen Auftrag kommen konnte.
 
 Karndorn lag im Abendlicht aus grauem Stein und schmalen Fenstern. Aus den Werkstätten stieg Rauch. Irgendwo schlug ein Hammer. Ein einzelner Ton. Dann noch einer. Kein Lied nahm ihn auf.
 
-„Noch nicht“, sagte Brokk.
-
-Lorn wartete.
-
-Brokk zog den Mantel enger um die Schultern.
-
-„Wenn wir Glück haben.“
-
-Sie gingen los.
-
 Der Weg führte zuerst über die Terrassen, dann zwischen schwarzen Felsen hindurch nach Osten. Hinter ihnen blieb Karndorn still. Vor ihnen lagen alte Straßen, menschliche Dörfer, Grenzwälder und ein Junge mit Falkenzeichen, der vermutlich glaubte, sein schlimmster Fehler sei bereits passiert.
 
 Das war verständlich.
