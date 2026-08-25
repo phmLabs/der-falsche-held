@@ -536,21 +536,11 @@ Nur graue Mäntel, dunkle Helme und der Auftrag, den Menschenschlüssel zu finde
 
 Am Tor standen ein paar Zwerge. Nicht viele. Zu Aufbrüchen ohne Banner kamen selten viele. Vielleicht war auch das früher anders gewesen.
 
-Haldrin war da.
-
-Varga auch.
+Haldrin war da.Varga auch.
 
 König Rugar nicht.
 
 Brokk sagte sich, dass ein König nicht zu jedem kleinen Auftrag kommen konnte.
-
-Dann sagte er sich, dass es kein kleiner Auftrag war.
-
-Dann hörte er auf, sich Dinge zu sagen.
-
-Lorn sah zurück zur Halle. „Führen wir Krieg?“
-
-Brokk folgte seinem Blick.
 
 Karndorn lag im Abendlicht aus grauem Stein und schmalen Fenstern. Aus den Werkstätten stieg Rauch. Irgendwo schlug ein Hammer. Ein einzelner Ton. Dann noch einer. Kein Lied nahm ihn auf.
 
