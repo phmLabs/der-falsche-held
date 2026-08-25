@@ -174,7 +174,7 @@ Sie entfaltete das Pergament und drückte es ihm gegen die Brust. Diesmal nicht 
 
 Taron nahm es. Oswin trat näher und blickte über Tarons Schulter.
 
-Das Pergament war kein vollständiger Erlass. Eher eine Abschrift. Manche Zeilen waren hastig geschrieben, andere fehlten. Oben stand das Siegel Waldkirchs, schlecht abgezeichnet, aber erkennbar: Turm, Falke, Krone.
+Das Pergament war kein vollständiger Erlass. Eher eine Abschrift. Manche Zeilen waren hastig geschrieben, andere fehlten. Oben stand das Siegel Waldkirchs, schlecht abgezeichnet, aber erkennbar: Wald, Kirche, Krone.
 
 Taron las langsam.
 
@@ -182,7 +182,7 @@ An alle Torwachen, Vögte, Ritter und getreuen Diener des Reiches.
 
 Taron Falkenried, durch Zeichen und Prüfung erkannter Träger der alten Verheißung, ist bei seiner Rückkehr unverzüglich unter königlichen Schutz zu stellen.
 
-Er darf ohne Begleitung des Hofes weder reisen, reiten, verhandeln, schweigen noch sich weiteren Prüfungen aussetzen.
+Er darf ohne Begleitung des Hofes weder reisen, reiten, verhandeln, schweigen,  noch sich weiteren Prüfungen aussetzen.
 
 Taron sah auf.
 
@@ -198,9 +198,7 @@ Der Erzähler sagte: „Ein ambitionierter Zugriff auf deine Kernkompetenzen.“
 
 Oswin nahm ihm das Pergament ab und las weiter.
 
-Der Menschenschlüssel, sofern durch ihn geborgen, ist im alten Thronsaal dem Reichseid zuzuführen.
-
-Bis zur Vollziehung des Ritus verbleibt der Träger in unmittelbarer Obhut der Krone und der Kirche.
+Der Menschenschlüssel, sofern durch ihn geborgen, ist im alten Thronsaal dem Reichseid zuzuführen. Bis zur Vollziehung des Ritus verbleibt der Träger in unmittelbarer Obhut der Krone und der Kirche.
 
 Jede eigenmächtige Entfernung ist als Gefährdung des Reiches zu behandeln.
 
@@ -211,8 +209,6 @@ Taron spürte, wie seine Kehle trocken wurde.
 Elva verschränkte die Arme. „Das ist das Wort, das sie benutzen, wenn sie nicht Fesseln sagen wollen.“
 
 Oswin las die letzte Zeile noch einmal.
-
-„Reichseid“, sagte er.
 
 „Malchior“, sagte Elva.
 
@@ -225,10 +221,6 @@ Elva hob das Kinn. „Aus der Schreibstube.“
 „Gestohlen?“
 
 „Abgeschrieben.“
-
-„Unbemerkt?“
-
-„Am Ende bemerkt.“
 
 Taron sah sie an. „Was heißt am Ende?“
 
