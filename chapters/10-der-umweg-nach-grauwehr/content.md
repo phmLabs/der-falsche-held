@@ -150,7 +150,7 @@ Oswin senkte den Blick auf den Verband.
 
 Taron atmete aus. „Ich wollte nicht, dass noch mehr Menschen sterben.“
 
-Oswin sah ihn an. „Dann lern schneller.“
+Oswin sah ihn an. „Dann lerne schneller.“
 
 Das tat weh.
 
@@ -161,10 +161,6 @@ Taron nickte nicht. Er hatte das Gefühl, wenn er jetzt nickte, würde er etwas 
 „Ich versuche es.“
 
 „Gut.“
-
-Das war alles.
-
-Bei Oswin war alles manchmal erschreckend viel.
 
 Sie ritten weiter, als die Schatten länger wurden. Der alte Handelsweg führte über niedrige Hügel, durch einen Waldstreifen und an einer Reihe verlassener Köhlerplätze vorbei. Zweimal sah Oswin Spuren am Weg und ließ Taron warten, während er sie prüfte. Einmal waren es Hirsche. Einmal Menschen. Mehrere. Mit schweren Stiefeln.
 
@@ -190,8 +186,6 @@ Die älteste Frau musterte ihn, dann Taron, dann die Pferde. „Nördlich von El
 
 Sie sah ihn an, als habe er ihr erklärt, dass Regen nass sei.
 
-„Der Rand ist nie ganz besetzt“, sagte sie. „Nur gefährlich genug, dass man irgendwann nicht mehr prüft, welcher Herr gerade Steuern will.“
-
 Der alte Mann auf dem Karren hustete. „Ihr kommt von Westen?“
 
 Oswin sagte: „Aus Grenzland.“
@@ -200,7 +194,7 @@ Oswin sagte: „Aus Grenzland.“
 
 „Was?“
 
-Der Mann blickte die Straße hinunter, als erwarte er, dass das Gerücht persönlich hinter ihnen herlief.
+Der Mann blickte die Straße hinunter.
 
 „Die Zwerge sind aufgebrochen.“
 
