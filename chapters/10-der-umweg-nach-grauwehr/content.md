@@ -220,29 +220,17 @@ Oswin blickte nach Westen.
 
 Der Erzähler sagte nichts.
 
-Das hatte er heute oft getan. Dann wieder war er plötzlich aufgedreht wie ein Kind vor einem Jahrmarkt, falls Kinder auf Jahrmärkten über alte Schlüssel, tote Hüter und dramatische Zuspitzung redeten. Taron fand beides anstrengend. Er wusste nur noch nicht, was schlimmer war.
+Das hatte er heute oft getan. Dann wieder war er plötzlich aufgedreht wie ein Kind vor einem Jahrmarkt, falls Kinder auf Jahrmärkten über alte Schlüssel, tote Hüter und dramatische Zuspitzung redeten. Taron fand beides anstrengend. Er wusste nur noch nicht, was einfacher zu ertragen war.
 
 Grauwehr erreichten sie kurz vor Sonnenuntergang.
 
 Die Stadt lag an einer breiten Furt, wo zwei Straßen zusammentrafen und ein Fluss über flache Steine lief. Eine Mauer umgab sie, niedriger als die von Hohensteg, aber länger. Auf den Türmen standen keine bunten Banner, sondern einfache graue Wimpel. Taron sah Mühlenräder, Lagerhäuser, einen Marktplatz und mehr Menschen, als ihm nach dem Tag lieb waren.
-
-Grauwehr roch nach nassem Holz, Pferden, Rauch, Fisch und Geld.
 
 „Das ist eine Stadt“, sagte Taron.
 
 „Ja.“
 
 „Eine echte.“
-
-„Ja.“
-
-„Warum heißt sie Grauwehr?“
-
-Oswin zeigte auf die Mauer.
-
-Sie war grau.
-
-„Ich bereue die Frage.“
 
 Am Tor mussten sie warten. Nicht lange, aber lang genug, dass Taron merkte, wie viele Leute unterwegs waren: Händler mit halb leeren Wagen, Bauern mit zu viel Gepäck, zwei Mönche, die sich stritten, ob Eile eine Sünde sei, und ein Mann mit drei Hühnerkäfigen, aus denen Geräusche kamen, die auf schwere Unzufriedenheit schließen ließen.
 
