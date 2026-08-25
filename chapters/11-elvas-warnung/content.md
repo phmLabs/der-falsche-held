@@ -222,27 +222,13 @@ Elva hob das Kinn. „Aus der Schreibstube.“
 
 „Abgeschrieben.“
 
-Taron sah sie an. „Was heißt am Ende?“
+- 
 
-„Es heißt, dass ich danach schneller war als Bruder Helmbrecht.“
-
-„Bruder Helmbrecht ist fast siebzig.“
-
-„Er hat erstaunlich viel Wut im Knie.“
-
-Taron wollte lachen. Er schaffte es nicht.
-
-Elva sah seine Hände.
-
-„Du hast ihn.“
+„Du hast ihn.“ frage Elva.
 
 Taron legte die Hand auf die Brust.
 
-„Ja.“
-
-„Den Schlüssel?“
-
-„Ja.“
+„Den Schlüssel? Ja.“
 
 Für einen Moment sah Elva nicht triumphierend aus. Nicht einmal erleichtert.
 
