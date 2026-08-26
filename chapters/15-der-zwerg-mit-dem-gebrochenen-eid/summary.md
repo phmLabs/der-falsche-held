@@ -1,0 +1,11 @@
+- Die Gruppe lagert ohne Feuer, weil Varga und weitere Zwerge ihnen folgen. Brokks Trupp wirkt wie Soldaten auf der Flucht, aber weiterhin diszipliniert.
+- Brokk erklaert den Begriff Spurbruch: Ein Zwerg folgt Familie, Halle, Meister, Eid und Koenig. Wer diese Spur verlaesst, muss fuerchten, verloren zu sein oder zu erkennen, dass die Spur selbst falsch wurde.
+- Brokk erzaehlt von Koenig Rugar vor der Stimme: ein harter, aber klarer Koenig, der mit seinen Leuten ass, sang und kaempfte.
+- Eine Rueckblende zeigt Rugar und Brokk im Tal von Hollbrand, wo sie nicht fuer Eroberung kaempften, sondern Menschen und Zwerge schuetzten, die zwischen den Grenzen lebten.
+- Rugar sagt sinngemaess, ein Koenig, der nur seine Eigenen schuetzt, sei nur ein groesserer Hauptmann.
+- Brokk berichtet von Riedwacht: Unter der alten Kapelle lag der Zwergenschluessel. Als Rugar ihn beruehrte, sah er erstmals zu einer leeren Stelle und hoerte etwas.
+- Danach veraenderte sich Rugar: erst Misstrauen gegen Menschen, dann Suche nach Menschenschluessel und Schutzschluessel, dann der Satz, die Schluessel brächten Freiheit.
+- Taron und Elva erkennen, dass damals niemand laut genug fragte, fuer wen diese Freiheit bestimmt war.
+- Ein Spaeher meldet, dass Varga die Wachgrube mit mindestens dreissig Zwergen erreicht hat. Die Gruppe kann nicht kaempfen und muss tiefer ins alte Grenzland.
+- Am Ende spuert Taron in einer Innenfalte seines Mantels kurz etwas Hartes, wird aber durch die Nachricht von Licht im Norden unterbrochen. Der Mantel-Payoff wird vorbereitet.
+

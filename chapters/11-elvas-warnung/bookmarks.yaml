@@ -1,28 +1,13 @@
-- id: b-mt8y6h5i
-  created_at: '2026-08-25T17:37:16.374Z'
-  status: active
-  quote: |-
-    nden, der nicht nach Zwiebeln riecht.“
-
-    Taron folgte Elva, Oswin und dem Wirt hinter 
-  start_offset: 40
-  end_offset: 45
-  note: Da
-  author: author
-- id: b-mt8zx4o8
-  created_at: '2026-08-25T18:25:59.528Z'
+- id: b-mt9o3c4d
+  created_at: '2026-08-26T05:42:39.901Z'
   status: active
   quote: |2-
-     Waldkirch frei wird...“
+     die besser darin sind.“
 
-    Er brach ab.
+    „Ich weiß.“
 
-    Oswin sah zur Seite.
-
-    Nicht, weil jemand kam.
-
-    Weil er Taron 
+    „Und mit einer Prophezeiung, die schon gewon
   start_offset: 40
-  end_offset: 61
-  note: Hier
+  end_offset: 43
+  note: Test
   author: author

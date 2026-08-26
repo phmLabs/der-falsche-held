@@ -1,5 +1,3 @@
-# Kapitel 11: Elvas Warnung
-
 Taron blieb liegen.
 
 Er hatte im Dunkeln seinen eigenen Namen aus einer fremden Kehle gehört. Liegenzubleiben war keine Heldentat, aber es passte hervorragend zu dem Rest dieses Tages.
@@ -428,7 +426,7 @@ Nach diesem Satz sprach für einen Moment keiner.
 
 Er war nicht klug auf die Art von Merlan. Nicht glatt. Nicht alt. Nicht mit Randbemerkungen in drei Sprachen.
 
-Er war Elva.
+Er war wie Elva.
 
 Direkt genug, dass er weh tat.
 
@@ -448,8 +446,6 @@ Elva sah ihn an.
 
 Taron schloss die Augen.
 
-„Natürlich.“
-
 „Malchior hat Karten aus dem Archiv holen lassen. Alte Grenzkarten. Eidschriften. Abschriften aus der Zeit vor Waldkirch. Er sprach vom Schutzschlüssel.“
 
 Etwas in Tarons Kopf zog sich zurück.
@@ -463,8 +459,6 @@ Diesmal ließ er es nicht durchgehen.
 „Ich weiß zu wenig.“
 
 „Das ist nicht dasselbe.“
-
-„Nein.“
 
 Elva sah zwischen ihnen hin und her. „Redet er?“
 
@@ -482,7 +476,7 @@ Unter gewöhnlichen Umständen hätte der Erzähler diesen Moment sicher komment
 
 „Teilweise.“
 
-„Gut“, sagte Elva. „Das ist mehr, als ich Priestern gebe.“
+„Gut“, sagte Elva. „Das ist mehr, als ich den Priestern gebe.“
 
 Oswin nahm das Pergament wieder. „Wenn Waldkirch den Schutzschlüssel sucht, wird der König Taron nicht nur festsetzen. Er wird ihn benutzen, um die Suche rechtmäßig aussehen zu lassen.“
 
@@ -492,9 +486,7 @@ Oswin nahm das Pergament wieder. „Wenn Waldkirch den Schutzschlüssel sucht, w
 
 „Dann mehr davon.“
 
-Taron rieb sich das Gesicht.
-
-Er war müde.
+Taron rieb sich das Gesicht. Er war müde.
 
 Nicht nur körperlich. Muskeln taten weh, Knochen wurden schwer, Schlaf versprach wenigstens eine Art Antwort. Diese andere Müdigkeit hatte keinen Ort. Sie begann dort, wo ein Gedanke weiterging, obwohl man ihn loslassen wollte.
 
@@ -522,11 +514,7 @@ Hässlich.
 
 Elva sah Taron an. „Wohin?“
 
-Taron sah auf das Pergament.
-
-Dann auf den Schlüssel unter seinem Hemd.
-
-Dann auf die Tür, hinter der in der Schankstube wieder geredet wurde.
+Taron sah auf das Pergament. Dann auf den Schlüssel unter seinem Hemd.Dann auf die Tür, hinter der in der Schankstube wieder geredet wurde.
 
 „Nach Waldkirch“, sagte er.
 
@@ -588,15 +576,9 @@ Elva sah Taron an, als wolle sie entscheiden, ob sie ihn schütteln oder umarmen
 
 „Und dann?“
 
-Taron antwortete nicht.
-
-Elvas Augen wurden schmal.
+Taron antwortete nicht. Elvas Augen wurden schmal.
 
 „Und dann haust du ab.“
-
-„Das Wort klingt hart.“
-
-„Es ist das richtige Wort.“
 
 „Ich würde sagen: taktische Entfernung.“
 
@@ -616,7 +598,7 @@ Elva trat zurück.
 
 Elva schwieg.
 
-„Ich gehe zurück“, sagte Taron leiser. „Ich sage ihnen, dass der Menschenschlüssel nicht reicht. Dass ich den Schutzschlüssel suchen muss. Das stimmt sogar. Leider. Dann reite ich los. Und wenn ich draußen bin...“
+„Ich gehe zurück“, sagte Taron leiser. „Ich sage ihnen, dass der Menschenschlüssel nicht reicht. Dass ich den Schutzschlüssel suchen muss. Dann reite ich los. Und wenn ich draußen bin...“
 
 „Dann entscheidest du, ob du wirklich suchst“, sagte Oswin.
 
@@ -680,11 +662,7 @@ Oswin ließ den Einwand aus, den Taron erwartet hatte. Für einen Mann, der Wide
 
 Taron sah auf ihr Küchenmesser.
 
-„Du hast ein Messer.“
-
-„Ich hatte mehrere. Dieses war am wenigsten beleidigend.“
-
-„Kannst du damit kämpfen?“
+„Du hast ein Messer. Kannst du damit kämpfen?“
 
 „Ich kann damit sehr überzeugend Abstand verlangen.“
 
