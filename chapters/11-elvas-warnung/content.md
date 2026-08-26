@@ -50,7 +50,15 @@ Als sie Taron sah, wechselte ihr Gesicht so schnell, dass er kaum hinterherkam: 
 
 Sie ging auf ihn zu und schlug ihm mit der flachen Hand gegen die Brust. Der Schlag war nicht hart, traf aber genau den Schlüssel. Taron gab ein Geräusch von sich, das später unter keinen Umständen Teil einer Heldensage werden durfte.
 
-Elva stellte fest, dass er lebte und furchtbar aussah. Taron bestätigte beides mit der Würde eines Menschen, dem keine bessere Verteidigung einfiel.
+„Du lebst“, sagte Elva.
+
+„Ja.“
+
+„Du siehst furchtbar aus.“
+
+„Auch ja.“
+
+Als Verteidigung war das schwach. Vollständig immerhin.
 
 Sie musterte ihn von oben bis unten, blieb bei den nassen Stiefeln hängen, bei der schief sitzenden Schulter, bei dem alten Mantel, der inzwischen mehr erlebt hatte als manche Ritter. Ihre Wut wurde nicht kleiner, aber genauer.
 
@@ -106,7 +114,15 @@ Jede eigenmächtige Entfernung ist als Gefährdung des Reiches zu behandeln.
 
 Taron starrte auf das Wort Obhut. Es war ein höfliches Wort. Eines von der Sorte, die sauber genug klang, um nicht nach Fesseln auszusehen.
 
-Elva verschränkte die Arme und sagte, Malchior habe es schreiben lassen. Die Abschrift stammte aus der Schreibstube. Nicht gestohlen, erklärte sie, nur abgeschrieben, wobei der Unterschied gegen Ende wohl nicht mehr allen Beteiligten gleich wichtig gewesen war.
+Elva verschränkte die Arme. „Malchior hat es schreiben lassen.“
+
+Oswin blickte von der Abschrift auf. „Woher hast du das?“
+
+„Aus der Schreibstube.“
+
+„Gestohlen?“
+
+„Abgeschrieben“, sagte Elva. „Nicht bis zum Ende unbemerkt.“
 
 Taron sah sie an.
 
@@ -132,7 +148,11 @@ Obhut. Reichseid. Träger.
 
 Keines dieser Worte fragte, ob er einverstanden war.
 
-Taron fragte, wie sie über ihn gesprochen hatten. Elva sah ihn eine Weile an, bevor sie antwortete: wie über etwas, das man braucht. Mehr sagte sie nicht. Gerade deshalb blieb es hängen.
+„Wie haben sie über mich gesprochen?“, fragte Taron.
+
+Elva sah ihn eine Weile an. „Wie über etwas, das man braucht.“
+
+Mehr sagte sie nicht. Gerade deshalb blieb es hängen.
 
 Aus Tarons Kopf kam keine spöttische Hilfe. Kein kühler Kommentar, kein geschliffener Satz, nicht einmal eine absichtlich falsche Behauptung darüber, dass Obhut eigentlich ein alter Ausdruck für Urlaub sei.
 
@@ -140,7 +160,11 @@ Taron wartete.
 
 Die Stimme hielt sich zurück.
 
-Taron dachte, dass der Erzähler etwas wusste. Die Antwort kam schnell genug, um vorbereitet zu klingen: zu wenig. Taron glaubte ihm nur halb.
+„Du weißt etwas“, dachte Taron.
+
+„Ich weiß zu wenig.“
+
+Taron glaubte ihm nur halb.
 
 Der Erzähler antwortete nicht sofort. Taron spürte die Pause nicht als Laune. Eher wie eine Grenze, an der jemand stand und die Hand nicht darüberheben durfte.
 
@@ -172,13 +196,17 @@ Der Turm von Abendriss lag noch in seinen Knochen. Die Masken. Der Hüter. Die E
 
 „Wenn mein Leiden hilft“, sagte er leise, „was dann?“
 
-Elva trat sofort näher, aber sie antwortete nicht sofort. Auch sie musste den Satz erst ansehen. Dann sagte sie, man solle ihn vorher fragen.
+Elva trat sofort näher, aber sie antwortete nicht sofort. Auch sie musste den Satz erst ansehen.
+
+„Dann sollen sie dich vorher fragen“, sagte sie.
 
 Es klang nicht wie eine große Lehre. Es klang wie etwas, das in einer Küche wahr blieb, selbst wenn Könige es vergaßen.
 
 Taron sah auf ihre Hand. Sie hatte noch Mehlspuren in den Rillen der Haut, alte Schnitte von Messern, kleine Brandstellen. Hände, die arbeiteten. Hände, die nicht in Prophezeiungen vorkamen und trotzdem dauernd das Reich zusammenhielten, während andere darüber redeten.
 
-Auf seine nächste Frage gab sie keine lange Antwort: Wenn sie nicht fragten, brauchten sie nicht sein Opfer. Dann brauchten sie seine Benutzung.
+„Und wenn sie nicht fragen?“
+
+„Dann brauchen sie nicht dein Opfer“, sagte Elva. „Dann brauchen sie deine Benutzung.“
 
 Oswin wandte den Blick ab, nicht aus Desinteresse. Eher, weil er Taron einen Rest Platz ließ. Für einen Mann, der Räume oft wie ein Schild besetzte, war das erstaunlich rücksichtsvoll.
 
@@ -188,13 +216,15 @@ Er sagte es nicht sofort. Das Wort musste erst durch Stolz, Müdigkeit und mehre
 
 „Ich habe Angst.“
 
-Elvas Gesicht wurde weicher. Sie auch.
+Elvas Gesicht wurde weicher. „Ich auch.“
 
 Zwei Worte. Keine Rettung. Aber eine Hand am Rand.
 
 Der Erzähler sagte leise: „Eine bemerkenswert effiziente Form von Wahrheit.“
 
-Taron fragte, ob das ein Kompliment gewesen sei. Der Erzähler nannte es ein Versehen.
+„War das ein Kompliment?“
+
+„Vermutlich ein Versehen.“
 
 Taron lachte fast. Nicht richtig. Aber genug, dass er wieder atmen konnte.
 
@@ -214,11 +244,25 @@ Er hob die eigene, bevor sie etwas sagen konnte. „Nicht um zu bleiben.“
 
 Der Gedanke war noch dünn, aber er bekam Form, während Taron sprach. Waldkirch erwartete einen Auserwählten. Also würde es einen bekommen: müde, wund, schlecht gelaunt und voller dringender heiliger Gründe, sofort wieder aufzubrechen. Der Menschenschlüssel reichte nicht. Der Schutzschlüssel musste gefunden werden. Wenn der König gesehen werden wollte, wie er dem Auserwählten vertraute, dann sollte er öffentlich Pferde, Proviant und Erlaubnis geben.
 
-Oswin begriff zuerst, was Taron meinte. Er nannte es eine Rolle, und Taron widersprach nicht. Rollen blieben manchmal an einem hängen, sagte der Ritter. Taron bat ihn, sie dann abzuschneiden, falls er rechtzeitig genug nickte.
+Oswin begriff zuerst, was Taron meinte.
+
+„Du willst die Rolle spielen.“
+
+„Kurz.“
+
+„Rollen bleiben manchmal an einem hängen.“
+
+„Dann schneidest du sie ab.“
+
+Oswin betrachtete ihn. „Wenn ich darf.“
+
+„Ich werde versuchen, rechtzeitig zu nicken.“
 
 Der Erzähler sagte: „Der gefährlichste und zugleich brauchbarste Gedanke, den du bisher hattest.“
 
-Taron bat ihn, nicht darauf hinzuweisen, dass ähnliche Pläne bereits schlecht gealtert waren. Der Erzähler bewunderte daraufhin Tarons Bereitschaft, aus Misserfolg Tradition zu machen.
+„Bitte sag nicht, dass ich das schon einmal versucht habe.“
+
+„Ich bewundere deine Bereitschaft, aus Misserfolg Tradition zu machen.“
 
 Elva lächelte zum ersten Mal an diesem Abend. Nur kurz. Taron sah es trotzdem.
 
