@@ -1,0 +1,8 @@
+- Die Gruppe zieht durch das nasse Grenzland Richtung Eidgrund, waehrend Varga und seine Zwerge hinter ihnen bleiben.
+- Oswin und Brokk geraten aneinander, nachdem Brokk bemerkt, dass Oswin gefallene Zwerge zaehlt. Brokk haelt es zuerst fuer Stolz oder Prahlerei.
+- Oswin nennt seine Zahl nicht gern, aber er kennt sie genau. Brokk kennt seine eigene Zahl ebenfalls.
+- Eine Rueckblende zeigt Oswins ersten getoeteten Zwerg im Krieg vor zehn Jahren: kein ruhmreicher Kampf, sondern ein junger, verirrter Zwerg, den Oswin aus Angst und Befehl heraus erschlaegt.
+- Oswin begann danach zu zaehlen, weil ein Priester ihm sagte, namenlose Tote seien leichter zu tragen. Oswin entschied, sie nicht leichter zu machen.
+- Brokk erkennt widerwillig, dass sein eigenes Zaehlen denselben Ursprung hat: Die Toten sollen nicht zu einer namenlosen Masse werden.
+- Taron versteht, dass Oswin und Brokk nicht wegen ihrer Aehnlichkeit Frieden schliessen, sondern weil diese Aehnlichkeit ihnen unangenehm die Ausrede nimmt, der andere sei einfach nur ein Monster.
+- Am Ende tauschen Oswin und Brokk keine Vergebung aus, aber sie vereinbaren, kuenftig auch diejenigen zu zaehlen, die sie retten.
