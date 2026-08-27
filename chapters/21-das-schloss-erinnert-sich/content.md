@@ -153,8 +153,6 @@ Elva beugte sich über die Stelle. „Wenn jemand die Prophezeiung fälschen wol
 
 „Weil eine Lücke besser ist als ein falsches Wort“, sagte Merlan. „Ein falsches Wort kann widerlegt werden. Eine Lücke wird von Wünschen gefüllt.“
 
-Der Erzähler sagte: „Das ist eine der besseren Beschreibungen politischer Theologie. Ich werde sie trotzdem nicht in Gold sticken.“
-
 Brokk sah auf den Fleck. „Menschen lasen Freiheit für Lichtenhain.“
 
 „Zwerge Freiheit für Karndorn“, sagte Elva.

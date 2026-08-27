@@ -44,8 +44,6 @@ Taron atmete erst wieder richtig, als Broda die Hand senkte.
 
 „Er konnte fliegen. Damit war er klüger als wir.“
 
-Der Erzähler sagte: „Eine ungewöhnlich harte, aber nicht völlig falsche Einordnung.“
-
 Taron antwortete nicht. Er sparte seine Kräfte für das Weitergehen und für die wachsende Erkenntnis, dass Heldenlieder selten von nassen Socken handelten, weil Sänger feige waren.
 
 Gegen Mittag erreichten sie eine Senke, in der drei alte Grenzsteine standen. Zwei waren umgestürzt. Der dritte lehnte schief, als habe er vor langer Zeit beschlossen, sich aus der Angelegenheit herauszuhalten. In seine Oberfläche waren Linien geritzt: eine offene Hand, ein Hammer und ein Vogel mit gesenktem Kopf.
@@ -328,8 +326,6 @@ Es war nicht einmal Verständnis. Verständnis klang in Geschichten oft warm. Di
 
 Taron wusste nicht, ob er erleichtert sein durfte.
 
-Der Erzähler sagte: „Ähnlichkeit ist eine unverschämte Lehrmeisterin. Sie nimmt einem die bequemsten Feindbilder zuerst.“
-
 Taron dachte an Waldkirch. An König Albrecht, der ihn als notwendiges Opfer betrachtete. An Malchior, der alte Worte so drehte, bis sie in seine Hände passten. An Zwerge, die ihrerseits erzählten, Menschen hätten gestohlen. An Menschen, die erzählten, Zwerge seien gekommen.
 
 Beides war zu klein.
@@ -455,8 +451,6 @@ Elva zog ihr Messer. „Ich bleibe bei Taron.“
 „Du hast keinen.“
 
 „Das ist verletzend genau.“
-
-Der Erzähler sagte: „Zum ersten Mal seit Stunden nähern wir uns einer ehrlichen Aufgabenverteilung.“
 
 Brokk zeigte auf zwei flache Steine links. „Dort. Enger Durchgang. Zwei können halten.“
 

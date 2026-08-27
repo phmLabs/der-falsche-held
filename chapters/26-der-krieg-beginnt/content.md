@@ -187,10 +187,6 @@ Brokk ließ den Blick auf Rugars Reihen ruhen. „Er sagt Wahrheit, die er gefan
 
 Der Soldat verstand nicht sofort. Taron schon. Oder er hoffte es. Rugar nahm wirkliche Not und stellte sie in den Dienst einer falschen Lösung. Das war ordentlicher als Lügen und deshalb schwerer zu erschlagen.
 
-Der Erzähler sagte: „Die gefährlichsten Sätze sind selten erfunden. Erfundenes stolpert. Wahrheiten marschieren.“
-
-Taron wiederholte es nicht. Es hätte zu sehr nach einer Rede geklungen, und Reden waren auf dieser Mauer bereits übervertreten.
-
 Unten trat ein Zwerg vor, kaum älter als Taron. Sein Helm saß schief, und an seinem Gürtel hing ein Holzlöffel. Kein Zierlöffel, kein Zeichen einer tapferen Sippe, nur ein Holzlöffel, wie ihn jemand mitnahm, der nicht wusste, ob das Heer ihn ausreichend füttern würde.
 
 Jost, der inzwischen Wasserkrüge trug, blieb hinter Taron stehen und sah hinunter.
@@ -214,8 +210,6 @@ Taron musste trotz allem grinsen.
 „Marta gegen König Rugar“, murmelte er. „Ich setze auf Marta.“
 
 „Eine vernünftige Wette“, sagte Oswin.
-
-Der Erzähler sagte: „Königreiche werden zu selten von Backstuben korrigiert. Das erklärt die meisten Königreiche.“
 
 Rugar hörte Marta vermutlich nicht. Oder er hörte sie und hielt sie für unwichtig. Könige machten diesen Fehler gern bei Leuten, die Essen verteilten. Später wunderten sie sich über Rebellionen mit sehr praktischer Logistik.
 

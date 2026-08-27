@@ -20,8 +20,6 @@ Elva deutete auf einen Jungen, der mit einem Holzstab gegen einen Eimer schlagen
 
 „Sie lernen es früh“, sagte Elva.
 
-Der Erzähler sagte: „Eine Stadt ohne Glocken erzieht ihre Kinder zu vorsichtigen Händen. Das ist für Tyrannen sehr praktisch und für Musik eine Katastrophe.“
-
 Auf dem Marktplatz standen Pfosten, an denen früher Glockenseile gehangen haben mussten. Der Turm der Halle hatte leere Fenster. Keine Glocke, kein Klöppel, nicht einmal ein verrosteter Haken. Die Stille darüber war so bewusst, dass Taron sie fast für ein Verbot hielt.
 
 Die Marktstände waren nicht leer, aber sie taten auch nicht so, als gäbe es genug. Auf einem Tisch lagen Rüben, sortiert nach Größe, als könne Ordnung fehlende Menge beleidigen. Ein Mann verkaufte Stücke von altem Leder. Eine Frau bot getrocknete Brennnesseln an und sprach dabei mit der Stimme von jemandem, der nicht mehr erklären wollte, wofür sie gut waren. Wer Hunger hatte, wusste es.
@@ -41,8 +39,6 @@ Auf dem halben Weg dorthin bückte sich ein Mann, hob etwas auf und legte es ihr
 „Was?“
 
 „Sie helfen sich, ohne dass man es beweisen kann.“
-
-Der Erzähler sagte: „Das nennt man üblicherweise eine Kultur. Sie entsteht schnell und geht langsam.“
 
 
 Brokk sah weg.

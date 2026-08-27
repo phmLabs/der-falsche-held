@@ -12,8 +12,6 @@ Broda sah ihn an. „Ihr Menschen trinkt Brunnenwasser.“
 
 „Genau.“
 
-Der Erzähler sagte: „Ein theologischer Streit, der an Tiefe gewinnt, wenn man durstig genug ist.“
-
 Mehr wurde eine Weile nicht gesprochen.
 
 Das Lager war sorgfältig gelegt. Nicht bequem, aber sorgfältig. Die Pferde standen dort, wo der Wind ihren Geruch nicht den Hang hinauftrug. Die Decken lagen auf Nadeln statt auf nackter Erde. Kein Metall lag frei, wenn es nicht gebraucht wurde. Selbst Tarons Beutel war von Broda so neben seinen Fuß geschoben worden, dass er ihn mit einer Hand greifen konnte.
@@ -82,8 +80,6 @@ Taron sah von einem zum anderen und wartete auf den nächsten Schnitt. Er kam ni
 „Was dann?“
 
 „Vielleicht, dass beide gerade zu müde sind, um recht zu behalten.“
-
-Der Erzähler sagte: „Eine unterschätzte Grundlage vieler Bündnisse.“
 
 Brokk saß auf einem Stein am Rand des Lagers. Über ihm standen Fichten, dahinter begann der Hang. Seine Zwerge ruhten in kurzen Abständen, jeder mit Blick auf einen anderen Teil der Dunkelheit. Sie wirkten nicht wie Leute, die fliehen. Eher wie Leute, die gelernt hatten, dass selbst Verrat ordentlich ausgeführt werden konnte.
 

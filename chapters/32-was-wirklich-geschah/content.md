@@ -436,8 +436,6 @@ Elva zog Rugar ein Stück weiter. „Könnt ihr streiten und handeln?“
 
 „Das ist meine Hauptausbildung“, sagte Taron.
 
-Der Erzähler flüsterte: „Eine traurige, aber belastbare Qualifikation.“
-
 Die Kugel war glatt. Zu glatt. Sie wollte nicht zerbrechen. Sie wollte ein teures, empfindliches Forschungsobjekt bleiben und vielleicht später in einer Vitrine liegen, wo Besucher leise sagten: Ach, schau, damit hätte man damals viele Leute retten können, wenn der Träger nicht an technischen Einzelheiten gescheitert wäre.
 
 Taron drückte fester.

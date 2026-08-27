@@ -361,8 +361,6 @@ Taron blieb stehen. „Wer sagt das?“
 
 Leute. Das gefährlichste Volk der Welt.
 
-Der Erzähler sagte: „Gerüchte sind Prophezeiungen ohne Verantwortung.“
-
 Taron legte Jost eine Hand auf die Schulter. „Wenn jemand eine einfache Lösung verkauft, frag zuerst, wer darin nicht vorkommt.“
 
 „Was?“
@@ -400,8 +398,6 @@ Auf der Mauer sah Taron zum ersten Mal die Zwerge in voller Breite. Hinter ihm r
 Taron sah sie an. „Was?“
 
 „Dem Feld. Der Schlacht. Wenn sie einen Namen hat, klingt sie später unvermeidlich.“
-
-Der Erzähler sagte: „Eine hervorragend gefährliche Beobachtung.“
 
 Taron nickte langsam. „Dann verhindern wir sie namenlos.“
 
@@ -443,7 +439,7 @@ Elva hörte es und sah ihn an.
 
 „Besser als schreien. Spart Wasser.“
 
-Der Erzähler sagte: „Elva beweist erneut, dass praktische Menschen die eigentlichen Philosophen sind, nur mit schlechterer Garderobe.“
+Der Erzähler sagte: „Das hätte ich gesagt. Sie war schneller. Ich nehme das persönlich.“
 
 „Ich kann dich hören“, sagte Taron leise.
 

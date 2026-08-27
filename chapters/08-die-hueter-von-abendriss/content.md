@@ -504,8 +504,6 @@ Taron hörte die Schritte näher kommen. Langsam, aber näher.
 
 Taron öffnete den Mund.
 
-Der Erzähler sagte: „Ein seltener Augenblick, in dem die einfache Antwort leider die dümmste ist.“
-
 „Das ist komplizierter“, sagte Taron.
 
 „Nein“, sagte der Hüter. „Ihr macht es kompliziert, weil ihr fortgehen wollt und trotzdem haben wollt, was wir geschworen haben zu halten.“
@@ -788,8 +786,6 @@ Taron hielt den Schlüssel fest.
 
 „Ich kann das erklären.“
 
-Der Erzähler sagte: „Ein Satz, der selten vor einer Verbesserung der Lage steht.“
-
 Ein Hüter trat vor. Seine Maske war heller als die anderen, aus altem Bein oder gebleichtem Holz. Seine Stimme klang älter.
 
 „Du hast genommen.“
@@ -921,8 +917,6 @@ Oswin zeigte auf Tarons Beutel.
 „Sie ist wichtig“, sagte Oswin. Seine Stimme war rau. „Weil man sie in solchen Augenblicken benutzt.“
 
 Taron wusste nicht, was er antworten sollte.
-
-Der Erzähler sagte leise: „Eine erstaunlich solide Zusammenfassung.“
 
 „Du bist auch nicht hilfreich gewesen“, sagte Taron.
 

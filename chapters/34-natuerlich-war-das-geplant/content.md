@@ -60,7 +60,7 @@ Das war die wichtigste Sache daran.
 
 Keine Axt hob sich. Kein Vater riss sein Kind zurück. Keine Mutter schrie. Nur zwei Kinder, ein Holzring und ein Hof voller Leute, die plötzlich so taten, als hätten sie gar nicht hingesehen.
 
-Der Erzähler sagte: „Historische Augenblicke sind oft beleidigend unscheinbar.“
+Der Erzähler sagte: „Zwei Kinder und ein Holzring. Ich hätte mir für diesen Augenblick mehr Aufwand gewünscht.“
 
 „Du darfst wieder kommentieren?“
 

@@ -446,10 +446,6 @@ Marta stellte einen Eimer zwischen sie.
 
 Es war schwer zu sagen, warum dieses Argument gewann. Vielleicht, weil Marta ihn hielt. Vielleicht, weil niemand mehr die Kraft hatte, gegen Wasserlogik zu kämpfen. Der Schmied nahm den Eimer. Der Zwerg nahm, nach einem kurzen Blick auf Marta, den zweiten.
 
-Der Erzähler sagte leise in Tarons Kopf: „Diplomatie ist oft nur die Kunst, den richtigen Eimer zur richtigen Zeit hinzustellen.“
-
-Taron, der am Rand stand und eine Liste von Verletzten hielt, nickte. „Schreib das nicht in einen Vertrag.“
-
 Im Hof entstanden Zonen, ohne dass jemand sie geplant hatte. Dort, wo die Sonne noch ein wenig Wärme gab, lagen Verwundete. Unter dem Laubengang saß Merlan mit Ansel und vier Leuten, die lesen konnten und deshalb sofort in Verwaltungsgefahr gerieten. Neben dem Brunnen wurden Waffen gesammelt. Am Tor standen Oswin und Brokk, weil beide Seiten einem eigenen Verräter eher glaubten, wenn ein fremder neben ihm stand.
 
 Malchior wollte helfen.

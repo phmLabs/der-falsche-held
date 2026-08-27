@@ -570,8 +570,6 @@ Taron drehte sich auf die Seite.
 
 „Morgen“, sagte Oswin, „entscheiden wir, welcher Weg uns am wenigsten umbringt.“
 
-Der Erzähler sagte: „Eine erfreulich realistische Reiseplanung.“
-
 Taron schloss die Augen.
 
 Diesmal träumte er nicht vom Turm. Er träumte von einer Karte.

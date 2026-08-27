@@ -498,8 +498,6 @@ Brokk sah ihn an. „Gibt es andere, die halten?“
 
 „Viele. Die meisten kommen später teuer.“
 
-Der Erzähler sagte: „Der Ritter zeigt eine beinahe unanständige Genauigkeit.“
-
 Taron wollte Brokk aufhalten. Der Zwerg lag nicht falsch. Er lag zu richtig, und alte Steine prüften richtige Leute gern besonders hart.
 
 Brokk atmete ein.

@@ -126,8 +126,6 @@ Elva nickte.
 
 „Für dich.“
 
-Der Erzähler sagte leise: „Eine seltene, aber annehmbare Kategorie.“
-
 Taron atmete aus. Er war noch verletzt. Das würde nicht verschwinden, nur weil Elva die Wahrheit gesagt hatte. Vielleicht war das sogar der Punkt. Wahrheiten waren keine Salben. Sie waren Messer, wenn man Glück hatte saubere.
 
 Sie gingen nicht sofort weiter. Das war nicht geplant. Aber Pläne hatten in den letzten Tagen eine so schlechte Trefferquote gehabt, dass niemand ihnen viel schuldete.

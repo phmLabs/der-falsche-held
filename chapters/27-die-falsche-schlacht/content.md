@@ -124,8 +124,6 @@ Oswin antwortete nicht sofort. Dann sagte er: „Acht. Er zählt für zwei, weil
 
 „Ich erfinde sie gerade.“
 
-Der Erzähler sagte: „Zivilisation: ein fortlaufender Streit über Zähleinheiten.“
-
 Taron konnte nicht anders. Er lachte einmal, kurz, atemlos. Dann sah er, wie Hanno den Zwerg nicht angriff, und das Lachen blieb ihm im Hals stecken, wo es sich in etwas anderes verwandelte.
 
 „Priester weg!“, rief Elva.
