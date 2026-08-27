@@ -118,6 +118,51 @@ Keine der Lügen war ganz falsch.
 
 Darum hatten sie gehalten.
 
+Und er sah eine Kammer, die er nicht kannte.
+
+Ein Vorhof, ein Tisch, ein Priester mit einem Buch. Ein Mädchen in einem Mantel, der zu groß war, sagte etwas und wartete. Der Priester schrieb es auf, sorgfältig, mit der Genauigkeit eines Mannes, der seine Arbeit ernst nahm. Dann legte er das Blatt auf einen Stapel.
+
+Der Stapel war nicht groß. Das war das Schlimmste daran. Es hätte jemand lesen können.
+
+„Was war das?“, dachte Taron.
+
+„Eine Warnung“, sagte der Erzähler.
+
+„Von wem?“
+
+„Von Leuten, die dich nicht mehr Feind nannten.“
+
+Taron hätte es nicht gewusst, wenn in dem Bild nicht gleichzeitig ein Falke mit gesenktem Kopf gestanden hätte, in einen Türpfosten geritzt, so klein, dass ihn nur jemand fand, der schon wusste, dass wichtigere Dinge unter Dreck lagen.
+
+Die dritte Hand hatte diesen Zettel nicht gefälscht.
+
+Sie hatte nur dafür gesorgt, dass es niemandes Aufgabe war, ihn zu lesen.
+
+Und er sah zwölf Plätze in einem Stein, aus denen Namen herausgeschnitten worden waren.
+
+Nicht alle auf einmal. Das war der Teil, der Taron am längsten nachging. Die Schnitte kamen aus verschiedenen Zeiten, von verschiedenen Werkzeugen, von verschiedenen Händen. Irgendwann hatte einer angefangen, und danach war es leichter geworden, weil schon Lücken da waren und eine Lücke mehr niemandem auffiel.
+
+Der andere hatte nur die erste gemacht.
+
+Den Rest hatten Leute gemacht, die ordentlich arbeiten wollten.
+
+Als die Bilder aufhörten, war Taron nicht klüger.
+
+Er war nur schwerer. Wissen hatte in dieser Kammer ein Gewicht und keinen Griff. Er wusste jetzt, wie es gekommen war, und niemand im Raum wollte es hören, weil alle mitten im Ergebnis standen.
+
+„Kann ich es ihnen sagen?“, dachte er.
+
+„Ja“, sagte der Erzähler.
+
+„Wird es helfen?“
+
+„Nein.“
+
+„Warum dann ja?“
+
+„Weil du es später wissen wirst und es dann jemanden geben muss, der es früher gesagt hat.“
+
+
 „Varga“, keuchte Taron.
 
 Der Zwerg hörte seinen Namen nicht. Oder er hörte ihn und fand darin keinen Grund, langsamer wütend zu werden.
@@ -336,6 +381,45 @@ Brokk atmete aus. „Steinsohn?“
 
 „Es hat trotzdem funktioniert.“
 
+„Namen“, keuchte Taron. „Ruft Namen.“
+
+Oswin begriff es zuerst, weil Oswin sein Leben mit Zahlen und Namen verbracht hatte.
+
+„Broda!“, rief er in den Rauch.
+
+„Hier!“
+
+„Senn!“
+
+„Hier!“
+
+Es war kein Befehl. Es war eine Liste, laut gerufen, und sie tat, was kein Befehl in dieser Kammer getan hatte: Sie kam von einer Seite und wurde von der anderen beantwortet.
+
+Ein zwergischer Speerträger, den niemand kannte, rief plötzlich einen Namen zurück. Nicht seinen. Den des Menschen neben ihm, den er zwei Wochen zuvor an einer Furt durchlassen musste und dessen Gesicht er sich aus Ärger gemerkt hatte.
+
+Der Mensch blieb stehen. „Woher weißt du das?“
+
+„Du hast dreimal gefragt, ob wir das Salz nehmen.“
+
+„Und?“
+
+„Ihr hattet kein Salz.“
+
+Beide standen einen Atemzug lang mit erhobenen Waffen da und hatten keine Ahnung, was man in dieser Lage tut.
+
+Es reichte nicht. Zwei Schritte weiter schlug jemand weiter zu. Aber der Lärm hatte ein Loch bekommen, und Löcher waren in dieser Kammer das Höchste, was zu erreichen war.
+
+Merlan, flach am Boden, notierte es. Natürlich notierte er es.
+
+„Was schreibst du?“, keuchte Elva.
+
+„Dass es funktioniert hat.“
+
+„Es hat nicht funktioniert!“
+
+„Es hat zwei Leute aufgehalten“, sagte Merlan. „Ich habe Verfahren mit schlechterer Grundlage in Umlauf gesehen.“
+
+
 Varga knurrte, aber die Axt sank noch eine Handbreit. „Eisenhand.“
 
 „Ja“, sagte Brokk. „Ich.“
@@ -357,6 +441,9 @@ Nicht mit Hass. Hass hätte Taron fast beruhigt. Der Blick war interessiert, wie
 „Dein Hüter wird dich nicht halten“, fügte er hinzu. „Er liebt dich inzwischen.“
 
 Der Erzähler sagte nichts.
+
+Taron merkte, dass dieses Nichts eine andere Beschaffenheit hatte als sonst. Es war nicht die harte Kante eines Verbots und nicht das leere Loch von vorhin. Es war die Stille von jemandem, dem in einer Runde etwas Wahres über ihn gesagt worden ist und der nun darauf wartet, dass ein anderer das Thema wechselt.
+
 
 Taron antwortete: „Du klingst neidisch.“
 
