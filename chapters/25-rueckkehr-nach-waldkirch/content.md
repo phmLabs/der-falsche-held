@@ -262,6 +262,58 @@ Jost sah an ihm vorbei zu Brokk. "Und der Zwerg?"
 
 "Dann nimm es als hohe Schaetzung."
 
+Jost versuchte zu laecheln. Es gelang ihm nur auf einer Seite.
+
+"Ich habe den Speer von meinem Onkel", sagte er. "Er ist zu schwer."
+
+"Dann stell ihn ab."
+
+"Greve sagt, jeder Arm zaehlt."
+
+Taron sah auf den Speer, auf Josts schmale Haende, auf den Lederriemen, mit dem jemand den Griff umwickelt hatte, damit der Junge ihn ueberhaupt halten konnte. Waldkirch hatte angefangen, Kinder in Armlaengen zu messen. Das war eine sehr alte Art, ein Reich zu verlieren.
+
+Oswin trat naeher und nahm Jost den Speer ab. Nicht grob. Nur mit jener Selbstverstaendlichkeit, mit der ein Schmied einem Kind den Hammer wegnahm, bevor es sich den Daumen zerlegte.
+
+"Dieser Speer zaehlt nicht als Arm", sagte Oswin. "Er zaehlt als Unfall mit Spitze."
+
+Jost wurde rot. "Ich kann kaempfen."
+
+"Das glaube ich. Genau deshalb gehoerst du nicht in die erste Reihe."
+
+"Wohin dann?"
+
+Oswin sah kurz zu Elva. "Wasser. Verbandszeug. Steine tragen. Nachrichten laufen. Alles, was einen Kampf entscheidet, ohne dass Saenger es verstehen."
+
+Der Erzaehler sagte: "Ritter Oswin, beruechtigt fuer seine romantische Kriegsauffassung."
+
+Taron wiederholte das nicht. Jost haette es wahrscheinlich fuer ein Lob gehalten und damit waere niemandem geholfen gewesen.
+
+Jost sah zu Taron. "Ist das wahr?"
+
+"Leider", sagte Taron. "Ich lerne gerade, dass die wichtigen Aufgaben meistens die sind, bei denen man hinterher aussieht, als haette man verloren."
+
+Elva deutete mit dem Kinn zum Hof. "Marta braucht Leute, die Wasser schleppen."
+
+"Marta braucht immer Leute", murmelte Jost.
+
+"Und sie merkt, wenn man sich drueckt", sagte Elva.
+
+Das wirkte staerker als Oswins Ritterrang. Jost nahm den Speer nicht zurueck. Oswin gab ihn einem erwachsenen Soldaten, der erst beleidigt aussah und dann begriff, dass er soeben von einem Jungen abgeloest worden war. Das machte seine Miene nicht besser, aber seine Haltung gerader.
+
+Jost rannte die Treppe hinunter.
+
+Taron sah ihm nach. "Haben wir gerade jemanden gerettet?"
+
+"Vielleicht", sagte Oswin.
+
+"Zaehlt das?"
+
+Oswin sah ueber die Mauer hinaus. "Wenn wir anfangen, nur sichere Rettungen zu zaehlen, bleiben die Listen leer."
+
+Brokk, der neben ihnen stand, sagte: "Dann zaehlt es."
+
+Taron merkte sich den Satz. Er war nicht schoen. Er war schwer, und schwere Saetze wurden wahrscheinlich gebraucht.
+
 Jost senkte den Blick. "Sie sagen unten, wenn du den Zwergen gibst, was sie wollen, hoert der Hunger auf."
 
 Taron blieb stehen. "Wer sagt das?"
@@ -307,3 +359,117 @@ Oswin pruefte sein Schwert. "Das ist schwerer."
 "Gut."
 
 Diesmal klang das Wort nicht wie Abwertung.
+
+Unter ihnen bewegte sich Waldkirch wie ein zu eng gepackter Korb. Menschen drueckten in Hoefe, in Schuppen, in den Schutz der inneren Mauer. Manche hatten alles mitgebracht, was ihnen gehoerte. Manche hatten nichts mitgebracht und sahen deshalb nicht freier aus. Eine alte Frau stritt mit einem Soldaten, weil er ihren Ziegenbock nicht in die Burg lassen wollte. Der Bock kaute an einem Banner und zeigte eine politische Haltung, die Taron nachvollziehbar fand.
+
+"Der Bock bleibt draussen!", rief der Soldat.
+
+"Dann bleibt mein Mann auch draussen!", rief die Frau.
+
+Ein duerrer Mann hinter ihr hob die Hand. "Ich wuerde gern kurz anmerken-"
+
+"Still, Hanno."
+
+Hanno schwieg.
+
+Der Soldat sah zum Hof, zum Tor, zum Bock, zum nahenden Heer und traf dann eine Entscheidung von erstaunlicher Weisheit.
+
+"Der Bock kommt in den Stall."
+
+Der Bock wurde eingelassen und fraß auf dem Weg dorthin ein weiteres Stueck Banner. Waldkirch verlor an diesem Tag viele Symbole. Einige verdienter als andere.
+
+Taron lachte kurz. Es war kein glueckliches Lachen. Eher ein Riss in der Brust, durch den Luft entkam.
+
+Elva hoerte es und sah ihn an.
+
+"Entschuldigung", sagte er.
+
+"Wofuer?"
+
+"Dass ich lache."
+
+"Besser als schreien. Spart Wasser."
+
+Der Erzaehler sagte: "Elva beweist erneut, dass praktische Menschen die eigentlichen Philosophen sind, nur mit schlechterer Garderobe."
+
+"Ich kann dich hoeren", sagte Taron leise.
+
+"Ich weiss."
+
+"Ich glaube, sie auch irgendwann."
+
+"Dann werde ich sorgfaeltiger beleidigen."
+
+Taron sah hinunter zu Marta, die inzwischen Jost am Ohr erwischt hatte, obwohl der Junge vermutlich helfen wollte. Marta liess ihn erst los, nachdem er ihr zweimal gezeigt hatte, dass er wusste, wo die Wassereimer standen. Dann drueckte sie ihm zwei in die Hand und wies auf den Brunnen. Jost lief.
+
+"Sie baut eine zweite Armee", sagte Taron.
+
+"Eine, die Suppe gewinnt", sagte Elva.
+
+"Das klingt besser als unsere."
+
+"Ist es auch."
+
+Auf der Mauer rief Greve nach Sand. Niemand bewegte sich schnell genug. Taron sah vier Saecke neben der Treppe, rannte hin, packte einen und bereute es sofort. Sand war heimtueckisch schwer. Er hatte den moralischen Charakter nasser Schuld.
+
+Brokk nahm ihm den Sack ab.
+
+"Ich hatte ihn", sagte Taron.
+
+"Ja", sagte Brokk und trug zwei.
+
+Oswin nahm den dritten. Elva den vierten. Taron blieb mit leeren Haenden stehen und fuehlte sich dadurch nicht leichter.
+
+"Du kannst Befehle tragen", sagte Elva.
+
+"Ich bin ausgezeichnet darin, falsch verstanden zu werden."
+
+"Heute reicht laut."
+
+Also rannte Taron ueber die Mauer und rief nach Wasser, Sand, Decken, Keilen, mehr Lampen fuer den inneren Gang. Er wusste nicht, welche Dinge wirklich noetig waren. Aber er sah, dass Menschen auf Befehle warteten, und wenn niemand kluge gab, waren brauchbare immer noch besser als Panik.
+
+Zweimal widersprach Greve ihm. Einmal hatte Greve recht. Einmal nicht. Beim dritten Mal hoerte Greve zu, weil Taron auf die Unterstadt zeigte, wo Rauch aus einer Kueche stieg.
+
+"Da brennt nichts", sagte Greve.
+
+"Marta kocht", sagte Taron. "Wenn der Rauch dunkler wird, brennt es. Wenn er heller wird, hat sie Wasser. Wenn er weg ist, haben wir ein Problem."
+
+Greve starrte ihn an.
+
+"Woher weisst du das?"
+
+"Ich wurde von dieser Kueche ausgebildet."
+
+Der Hauptmann sah, als wolle er fragen, ob das als militaerische Qualifikation gelte. Dann entschied er, dass dieser Tag keine sauberen Kategorien mehr verdient hatte.
+
+"Beobachten", befahl er einem Soldaten. "Die Backstube."
+
+Der Soldat nickte, sichtlich erleichtert, endlich ein Ziel zu haben, das nicht zurueckschoss.
+
+Draussen bewegten sich Rugars Reihen.
+
+Sie kamen nicht naeher. Noch nicht. Aber ihre Stille veraenderte sich. Befehle wanderten durch die Linien. Schilde wurden gehoben. Wagen schlossen Luecken. Taron sah, wie die mueden Hallenarbeiter die Kisten abstellten und Waffen auswickelten, als haetten sie gehofft, es nicht tun zu muessen.
+
+Brokk sah es auch.
+
+"Er laesst die zweite Reihe vorbereiten", sagte er.
+
+"Was bedeutet das?"
+
+"Dass Rugar noch reden will."
+
+"Das klingt gut."
+
+"Nein. Er will, dass sein Reden schwerer wird."
+
+Taron verstand. Worte mit einem Heer dahinter waren nie nur Worte. Sie waren Messer, die behaupteten, Besteck zu sein.
+
+Der Menschenschluessel wurde warm.
+
+Nicht stark. Nur eine Erinnerung daran, dass unter all dem Stein eine zweite Schlacht wartete, aelter und vermutlich schlechter beschriftet.
+
+Taron legte die Hand darauf.
+
+"Nicht jetzt", murmelte er.
+
+Der Erzaehler antwortete leise: "Alte Maechte sind bemerkenswert unhoeflich gegenueber Terminplaenen."

@@ -328,6 +328,102 @@ Das Wort blieb bei ihnen, waehrend Waldkirch naeher kam.
 
 Genauer war kein leichteres Wort als mutiger. Aber es war vielleicht nuetzlicher.
 
+Sie mieden die Hauptstrasse und nahmen einen Hohlweg, der zwischen nassen Boeschungen verlief. Die Raeder alter Karren hatten tiefe Spuren hinterlassen, in denen sich Wasser sammelte. Taron trat zweimal hinein und behauptete beim zweiten Mal, es sei Absicht gewesen, um die Tiefe zu pruefen. Niemand glaubte ihm. Nicht einmal er.
+
+Oben auf dem Rand des Hohlwegs tauchte ein Rabe auf, sah sie an und flog wieder fort.
+
+"Späher?", fragte Taron.
+
+Oswin sah ihn von der Seite an.
+
+"Was? In letzter Zeit ist alles ein Zeichen."
+
+"Das war ein Vogel."
+
+Der Erzaehler sagte: "Eine tapfere Arbeitshypothese."
+
+Brokk blieb ploetzlich stehen.
+
+Oswin zog im selben Augenblick das Schwert. Das war beunruhigend, weil es bedeutete, dass beide etwas bemerkt hatten und Taron wieder einmal nur an einen Vogel gedacht hatte.
+
+"Runter", sagte Oswin.
+
+Sie duckten sich zwischen Brombeeren und nassen Lehm. Einen Atemzug spaeter kamen Stimmen ueber den Weg. Zwergisch. Zwei, vielleicht drei. Taron verstand kein Wort, aber er verstand den Ton: Leute, die suchten und bereits zu muede waren, um dabei leise genug zu sein.
+
+Brokk lauschte.
+
+"Vargas Vorhut", fluesterte er. "Sie suchen den Wachhof."
+
+"Niko?", fragte Elva.
+
+Oswins Gesicht wurde hart.
+
+Die Stimmen kamen naeher. Einer der Zwerge lachte. Nicht froehlich. Er sagte etwas, und Brokk schloss die eiserne Hand langsam zur Faust.
+
+"Was?", fragte Taron.
+
+"Sie haben den Jungen gesehen. Nicht gefangen. Er ritt nach Sueden."
+
+Taron atmete aus.
+
+"Und?"
+
+Brokks Blick blieb oben. "Sie glauben, er luegt. Menschen und Zwerge verhindern keinen Krieg, sagen sie. Menschen und Zwerge beginnen ihn nur."
+
+Der Satz war so platt, dass er fast laecherlich haette sein koennen. Leider war Plattheit oft sehr gut bewaffnet.
+
+Elva griff in ihren Beutel und zog eine der harten Rueben heraus.
+
+Taron starrte sie an. "Jetzt?"
+
+"Ablenkung."
+
+"Mit Gemuese?"
+
+"Du hast bessere Munition?"
+
+Der Erzaehler sagte: "Die Ruebe kehrt als taktisches Element zurueck. Ich gebe zu, selbst ich haette diese Erzaehlentscheidung nicht getroffen."
+
+Elva warf.
+
+Die Ruebe flog ueber den Rand des Hohlwegs und landete mit einem dumpfen Klackern auf der anderen Seite im Gebuesch. Die Stimmen verstummten.
+
+"Was war das?", fragte einer der Zwerge auf Zwergisch.
+
+Brokk fluesterte die Uebersetzung nicht. Sein Gesicht sagte genug.
+
+Die Zwerge gingen der Ruebe nach.
+
+Oswin sah Elva an.
+
+"Gut geworfen."
+
+"Kueche."
+
+"Ich nehme alles zurueck, was ich je ueber Kuechen als Schlachtfelder nicht gesagt habe."
+
+"Du hast darueber etwas gedacht."
+
+"Moeglich."
+
+Sie krochen weiter, sehr langsam. Taron bekam Dornen in den Mantel, Lehm an die Haende und die unangenehme Erkenntnis, dass Rueben in dieser Reise mehr leisteten als einige Adelige in Waldkirch.
+
+Als die Stimmen hinter ihnen leiser wurden, richteten sie sich wieder auf. Brokk blieb einen Moment zurueck und sah in Richtung der Vorhut.
+
+"Du koenntest zu ihnen gehen", sagte Taron.
+
+"Ja."
+
+"Und?"
+
+"Sie wuerden mich hoeren. Dann Varga holen. Dann muesste ich denselben Satz vor mehr Aexten sagen."
+
+"Ist das schlecht?"
+
+"Nein. Nur spaeter."
+
+Das Wort traf Taron anders, wenn Brokk es sagte. Nicht als Ausweichen. Als Einordnung eines Kampfes, der nicht in diesen Hohlweg passte.
+
 Als sie weiterzogen, erzaehlte Brokk von Karndorns unteren Hallen. Nicht lange, nicht weich. Nur genug: gebrochene Wasserrinnen, Pilzgaerten ohne Licht, Kinder, die lernten, Suppe nach Eisen schmecken zu lassen, weil Eisen wenigstens nach etwas schmeckte. Taron hoerte zu und dachte an Waldkirch. An Marta, die Wasser in Toepfe goss und so tat, als sei es Rezept.
 
 "Er hat echte Not benutzt", sagte Taron.

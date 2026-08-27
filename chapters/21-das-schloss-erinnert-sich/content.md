@@ -280,6 +280,80 @@ Der Erzaehler sagte: "Ich schaetze diese Frau zunehmend."
 
 Merlan packte die Blaetter in Wachstuch. Seine Haende zitterten nicht. Das fiel Taron auf. Merlan hatte Angst, sicher. Aber er war in seinem eigenen Gebiet angekommen: Worte gegen falsche Worte, Abschriften gegen Luecken, Tinte gegen Blut, soweit Tinte es eben schaffte.
 
+Bevor er die Tasche schloss, holte Merlan noch eine schmale Holzschachtel aus einem Regal. Sie war mit drei Draehten versiegelt und mit so vielen Warnzeichen beschriftet, dass Taron sofort einen Schritt zuruecktrat.
+
+"Was ist das?"
+
+"Rauchkugel."
+
+"Singular?"
+
+"Ja."
+
+"Warum klingt Singular bei dir wie eine Drohung?"
+
+Merlan legte die Schachtel auf den Tisch. "Weil ich nur eine habe. Sie ist selten, teuer, unberechenbar in feuchten Kellern und fuer gewoehnliche Menschen von Magie kaum zu unterscheiden."
+
+Oswin trat naeher. Zum ersten Mal an diesem Abend sah er nicht gelangweilt von Wissenschaft aus. "Wirkung?"
+
+"Sichtblockade. Reizung der Augen. Orientierungslosigkeit. Kein Feuer, sofern niemand grob dumm ist."
+
+Taron sah auf die Schachtel. "Wir sind mehrere Leute."
+
+"Dann ist Vorsicht angezeigt."
+
+Oswin nahm die Schachtel nicht. Er betrachtete sie wie ein erfahrener Mann, der auf einem Schlachtfeld gerade ein kleines Wetter gefunden hatte.
+
+"Wie lange?"
+
+"Vielleicht eine Viertelstunde in geschlossenen Raeumen. Weniger im Wind."
+
+"Kann man damit einen Rueckzug decken?"
+
+"Ja."
+
+"Kann man damit eine Schlacht gewinnen?"
+
+Merlan sah ihn ueber die Brille hinweg an. "Wer versucht, eine Schlacht mit Rauch zu gewinnen, hat meistens den Begriff Schlacht nicht ausreichend verstanden."
+
+Oswin nickte. "Gut."
+
+Taron war ueberrascht. "Gut?"
+
+"Er weiss, was sie nicht kann."
+
+Der Erzaehler sagte: "Ritterliche Anerkennung fuer begrenzte Chemie. Die Zivilisation taumelt voran."
+
+Merlan gab Taron die Schachtel.
+
+Taron nahm sie nicht sofort. "Warum ich?"
+
+"Weil Oswin sie zu frueh taktisch einsetzen wuerde, Brokk sie fuer zu zwergisch wertvoll halten koennte, Elva bereits den kluegeren Teil dieser Gruppe traegt, und du eine bemerkenswerte Begabung hast, Dinge genau so lange nicht zu benutzen, bis alle nervoes werden."
+
+"Das war sehr spezifisch beleidigend."
+
+"Danke."
+
+Elva nahm die Schachtel, steckte sie in Tarons Beutel und zog den Riemen fest. "Er verliert sie sonst beim Nachdenken."
+
+"Ich stehe direkt hier."
+
+"Eben."
+
+Oswin sah Taron ernst an. "Nicht werfen, weil du Angst hast."
+
+"Ich werfe vieles wegen Angst."
+
+"Dann lern den Unterschied."
+
+"Zwischen?"
+
+"Angst, die dich retten will, und Angst, die nur Bewegung braucht."
+
+Der Satz blieb auf dem Tisch liegen, schwerer als die Schachtel. Taron nickte, ohne eine spitze Antwort zu finden. Der Erzaehler haette eine gehabt, sagte sie aber nicht.
+
+Das machte sie leider wichtiger.
+
 Oswin sah aus dem Fenster. "Wenn wir nach Waldkirch gehen, laufen wir zwischen beide Heere."
 
 "Ja", sagte Brokk.

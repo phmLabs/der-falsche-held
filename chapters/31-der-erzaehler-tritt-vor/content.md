@@ -355,3 +355,293 @@ Oswin stellte sich vor Taron.
 "Jetzt waere eine Erklaerung gut", sagte Taron.
 
 "Dann such eine kurze."
+
+Taron versuchte es.
+
+"Rugar lebt!"
+
+Varga sah auf den Koenig am Boden. "Noch."
+
+"Der Daemon ist frei!"
+
+"Ich sehe nur Menschen."
+
+Das war das Problem in vier Worten. Der andere hatte keinen neuen Hass erschaffen muessen. Er hatte nur dafuer gesorgt, dass jeder Blick an der falschen Stelle haengen blieb.
+
+Ein menschlicher Soldat draengte hinter Varga in die Kammer und rief: "Die Zwerge sind unten!" Ein Zwerg hinter ihm rief: "Sie haben den Koenig!" Beide sagten die Wahrheit. Beide machten sie dadurch fast unbrauchbar.
+
+Oswin stellte sich breiter hin. "Wer jetzt schlaegt, trifft zuerst mich."
+
+"Das laesst sich einrichten", sagte Varga.
+
+Brokk hob den Kopf. "Varga, bei der tiefen Halle, sieh mich an."
+
+Der Name der Halle tat etwas. Nicht genug. Aber Vargas Blick zuckte zu Brokk.
+
+"Du kennst meine Hand", sagte Brokk. "Du kennst meine Zahl. Du kennst meinen Eid. Wenn ich Rugar toeten wollte, haette ich ihn nicht auf meinen Knien."
+
+Varga atmete hart. Seine Axt blieb oben.
+
+Dann bewegte sich Rugar.
+
+Nur ein Zucken.
+
+Aber alle sahen es.
+
+Fuer einen Atemzug haette die Wahrheit gewinnen koennen.
+
+Dann brach von oben ein neuer Schrei herein, und mit ihm kamen weitere Soldaten. Einer stiess, weil er gestossen wurde. Ein Zwerg blockte. Der Block traf einen Menschen am Kopf. Oswin riss den Mann zurueck, Varga schlug nach Oswin, Brokk fing Vargas Axt mit dem Stab.
+
+Der Atemzug war vorbei.
+
+Die Kammer wurde wieder Kampf.
+
+Taron lag am Boden und hasste nicht die Leute, die zuschlugen. Das waere einfacher gewesen. Er hasste die Geschwindigkeit, mit der Angst jede bessere Moeglichkeit auffrass.
+
+Der Erzaehler fluesterte: "Das ist sein eigentliches Werk."
+
+"Der Daemon?"
+
+"Nein. Der Teil, den er in euch nicht erfinden musste."
+
+Taron wollte schreien.
+
+Nicht aus Mut. Aus Frust. Mut war eine viel zu saubere Beschreibung fuer einen Menschen, der auf dem Boden lag, halb taub vom eigenen Kopf und umgeben von Leuten, die aus vollkommen nachvollziehbaren Gruenden gerade das Falsche taten. Frust passte besser. Frust hatte Dreck unter den Naegeln.
+
+"Aufhoeren!", rief er.
+
+Ein Mensch schlug nach einem Zwerg.
+
+Ein Zwerg schlug nach Oswin.
+
+Varga schlug nach Brokk.
+
+Also hatte der Befehl hervorragend funktioniert, sofern das Ziel gewesen war, die Luft zu bewegen.
+
+Elva kniete neben Taron und drueckte ihm die Schulter nach unten, weil er versuchte aufzustehen und sein Koerper diese Idee fuer eine Beleidigung hielt.
+
+"Bleib unten."
+
+"Ich kann nicht unten bleiben."
+
+"Du kannst sehr gut unten bleiben. Du liegst bereits."
+
+"Das ist keine Leistung."
+
+"Heute nehmen wir, was da ist."
+
+Der Erzaehler sagte kaum hoerbar: "Ich mag sie."
+
+"Ich sage es ihr, wenn wir ueberleben."
+
+"Dann formuliere vorsichtig. Sie klingt bewaffnet."
+
+Taron lachte einmal, und der Schmerz in seinen Rippen beendete das Experiment.
+
+Brokk hielt Vargas Axt mit dem Stab. Holz splitterte. Die eiserne Hand des Zwergenhauptmanns schloss sich um den Schaft und hielt ihn fest.
+
+"Sieh ihn an!", bruellte Brokk. "Sieh deinen Koenig an!"
+
+Varga zog. Brokk hielt.
+
+"Ich sehe ihn", sagte Varga. "Ich sehe, was du zugelassen hast."
+
+Brokks Gesicht wurde hart. "Dann siehst du endlich mich."
+
+Der Satz traf Varga. Nicht genug, um die Axt zu senken. Aber genug, um seinen Griff einen Herzschlag lang falsch werden zu lassen.
+
+Oswin nutzte den Herzschlag, trat seitlich ein und schlug Varga nicht mit der Klinge, sondern mit dem Knauf gegen den Unterarm. Die Axt fiel nicht. Aber sie sank.
+
+"Rugar lebt", sagte Oswin.
+
+"Menschenwort", fauchte Varga.
+
+"Dann nimm seins." Oswin deutete mit dem Schwert auf Brokk. "Oder glaubst du nur Zwergen, solange sie dir zustimmen?"
+
+Varga sah ihn an, und fuer einen Moment glaubte Taron, der Zwerg werde Oswin einfach deshalb erschlagen, weil der Satz zu gut sass.
+
+Dann bewegte sich Rugar wieder.
+
+Nicht nur ein Zucken diesmal. Seine Hand krampfte sich in Brokks Mantel. Brokk erstarrte. Varga sah es. Alle in der Naehe sahen es. Der freie Daemon, der eben noch wie dunkler Rauch an der Luft hing, drehte langsam den Kopf.
+
+"Brokk", fluesterte Rugar.
+
+Das Wort war fast nichts.
+
+Aber fast nichts war in diesem Raum mehr Wahrheit, als die meisten Reden boten.
+
+Varga machte einen Schritt vor.
+
+Da stuerzte ein menschlicher Soldat durch den Rauch, sah Varga ueber Brokk und Rugar stehen und stiess mit dem Speer zu. Er traf Vargas Schulterplatte. Kein tiefer Stich, aber genug, um den Augenblick zu zerbrechen.
+
+Varga bruellte.
+
+Brokks Gesicht wurde leer vor Zorn.
+
+Oswin warf den Soldaten zurueck. "Idiot!"
+
+"Er wollte den Koenig toeten!"
+
+"Er wollte hoeren!"
+
+Der Soldat verstand den Unterschied nicht schnell genug. Das war die eigentliche Grausamkeit dieses Tages: Viele Leute waren nicht boese, nur zu langsam fuer Wahrheit.
+
+Der freie Daemon hob die Hand.
+
+Niemand sah ihn richtig. Taron schon. Vielleicht, weil sein eigener Erzaehler halb aus ihm herausgebrannt war. Vielleicht, weil er inzwischen eine ungesunde Begabung fuer Dinge entwickelt hatte, die andere lieber falsch sahen.
+
+Die Hand des Daemons zeigte nicht auf Rugar.
+
+Sie zeigte auf die Tuer.
+
+Oben im Hof antworteten Stimmen. Menschen. Zwerge. Befehle, die einander suchten und dabei nur neue Schuld fanden. Der Daemon musste nichts mehr sprechen. Er dirigierte mit kleinen Bewegungen, wie ein Kapellmeister, dessen Orchester aus schlechten Schlussfolgerungen bestand.
+
+"Er geht", sagte Taron.
+
+Elva sah in die Richtung seines Blicks. Ihre Augen fanden nichts und dann doch etwas: den Rauch, der sich gegen den Luftzug bewegte, die Stelle, an der niemand hinsah, die Kaelte am Rand der Kammer.
+
+"Kannst du ihn halten?"
+
+Taron fragte in sich hinein.
+
+Der Erzaehler antwortete nach einer zu langen Pause: "Nein."
+
+Das Nein war nicht ausweichend. Es war leer. Die Leere war schlimmer als jede Luege.
+
+"Dann wer?"
+
+"Niemand hier."
+
+Taron biss die Zaehne zusammen. "Ein sehr schlechter Name in dieser Lage."
+
+Der Erzaehler machte kein Geraeusch. Taron spuerte dennoch, dass die Spitze angekommen war.
+
+Merlan kroch auf allen vieren zu den Schluesseln. Er sah aus wie ein Mann, der entschieden hatte, dass Wuerde ein Luxusgut sei. In einer Hand hielt er seine Brille, in der anderen ein Stueck Kohle. Er zog eine Linie auf den Stein, von der Rille des Schutzschluessels zur offenen Stelle am Eidstein.
+
+"Was tust du?", rief Elva.
+
+"Ich notiere den Verlauf."
+
+"Jetzt?"
+
+"Wenn ich sterbe, soll wenigstens jemand wissen, woran."
+
+Der Erzaehler sagte schwach: "Fussnoten als Testament. Es gibt schlechtere Religionen."
+
+Der Daemon sah zu Merlan.
+
+Merlan bemerkte es und wurde sehr still.
+
+"Nicht bewegen", sagte Taron.
+
+"Ich plante gerade eine wissenschaftliche Statue."
+
+Der Daemon laechelte. Dann wandte er sich ab. Merlan war ihm nicht wichtig genug. Das rettete Merlan und beleidigte ihn vermutlich bis in die Knochen.
+
+Brokk hatte Rugar an sich gezogen. Varga stand vor ihnen, verletzt, verwirrt und noch immer bewaffnet. Oswin hielt den menschlichen Soldaten am Kragen, der inzwischen begriff, dass er vielleicht gerade den falschen Frieden erstochen haette.
+
+"Name", keuchte Taron.
+
+Elva beugte sich zu ihm. "Was?"
+
+"Namen. Er nimmt Deutung. Namen holen zurueck."
+
+Sie verstand schneller, als er erklaeren konnte. "Varga!"
+
+Der Zwerg sah sie nicht an.
+
+"Varga Steinsohn!"
+
+Diesmal zuckte sein Blick.
+
+Brokk atmete aus. "Steinsohn?"
+
+"Ich habe geraten", sagte Elva.
+
+"Sein Vater hiess nicht Stein."
+
+"Es hat trotzdem funktioniert."
+
+Varga knurrte, aber die Axt sank noch eine Handbreit. "Eisenhand."
+
+"Ja", sagte Brokk. "Ich."
+
+Nicht Hauptmann. Nicht Verräter. Nicht Brokks Titel. Ich.
+
+Rugar atmete wieder.
+
+Der Daemon blieb an der Schwelle stehen. Er sah zurueck, und diesmal schien er Taron wirklich zu sehen. Nicht den Schluessel. Nicht den falschen Helden. Den Menschen mit der angeschlagenen Stimme in sich.
+
+"Du wirst lernen", sagte der Daemon.
+
+"Hoffentlich nicht von dir."
+
+"Von ihm." Der Daemon laechelte. "Er kennt meine Angst besser, als er zugibt."
+
+Der Erzaehler wurde so kalt, dass Taron ihn kaum noch spuerte.
+
+"Was meint er?"
+
+"Spaeter."
+
+"Ich beginne, dieses Wort strafrechtlich pruefen zu wollen."
+
+"Spaeter", sagte der Erzaehler noch einmal, und diesmal klang es nicht wie Ausweichen, sondern wie Blutverlust.
+
+Der Daemon trat durch die Schwelle.
+
+Keine Explosion. Kein Triumph. Nur ein Verlust an Druck, als habe jemand eine schwere Tuer geoeffnet und die falsche Luft hineingelassen.
+
+Taron versuchte aufzustehen. Elva half ihm, obwohl sie ihn dabei beschimpfte.
+
+"Du kannst nicht hinterher."
+
+"Ich weiss."
+
+"Dein Gesicht weiss es nicht."
+
+"Mein Gesicht bekommt weiterhin keine Befehlsgewalt."
+
+Sie legte seinen Arm ueber ihre Schulter. "Dann sag es deinen Beinen."
+
+Seine Beine hatten eigene juristische Einwaende. Sie wurden ueberstimmt.
+
+Oswin liess den Soldaten los und packte stattdessen dessen Speer. "Du gehst nach oben und rufst, dass Rugar lebt."
+
+Der Soldat starrte ihn an.
+
+"Jetzt."
+
+"Wer befiehlt das?"
+
+Oswin sah ihn an. "Ein Mann, der gerade entschieden hat, dich nicht fuer Dummheit sterben zu lassen. Nutze die Verwirrung."
+
+Der Soldat rannte.
+
+Brokk hob Rugar mit Vargas Hilfe an. Die beiden Zwerge beruehrten einander nicht mehr als noetig. Aber sie halfen am selben Koerper. In diesem Augenblick war das mehr Politik, als jeder Vertrag haette leisten koennen.
+
+Merlan sammelte die Schluessel ein und gab sie nicht einem Koenig, sondern Elva. Sie nahm sie wortlos und band den Beutel so fest zu, als koenne Knotenarbeit alte Maechte beeindrucken.
+
+"Was jetzt?", fragte sie.
+
+Taron sah zur Treppe, aus der Rauch und Stimmen kamen.
+
+"Jetzt muessen wir verhindern, dass die Wahrheit oben wieder stirbt."
+
+Der Erzaehler sagte: "Eine Aufgabe, die in der Geschichte selten unterbesetzt ist."
+
+"Kannst du helfen?"
+
+Eine Pause.
+
+"Wenig."
+
+"Dann wenig."
+
+Sie gingen zur Treppe.
+
+Hinter ihnen blieb der Eidstein offen, verletzt, leise klingend. Vor ihnen wartete der Hof, in dem jeder die falsche Geschichte bereits fast fertig hatte.
+
+Taron hielt sich an Elva fest und dachte, dass Wahrheit vielleicht kein Licht war.
+
+Vielleicht war sie eher Rauch: laestig, unordentlich, schlecht fuer die Augen, aber manchmal genau dicht genug, um den naechsten Schlag zu verhindern.

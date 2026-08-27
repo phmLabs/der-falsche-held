@@ -302,6 +302,92 @@ Taron sah ueber die Mauer zu den Feldern. Ein Mann zog dort einen Karren allein,
 
 "Dafuer, dass ich immer nur nicht wollte. Nicht Held sein. Nicht sterben. Nicht entscheiden. Das ist auch eine Art, andere tragen zu lassen."
 
+Der Erzaehler schwieg so lange, dass Taron schon glaubte, die Antwort sei wieder an irgendeinem alten Verbot zerschellt. Dann sagte er: "Ja."
+
+Taron sah auf. "Du koenntest wenigstens versuchen, mir zu widersprechen."
+
+"Ich koennte vieles versuchen. Einiges davon waere sogar unterhaltsam. Aber du hast recht."
+
+Das war schlimmer als Widerspruch. Widerspruch haette Taron etwas gegeben, gegen das er treten konnte. Recht zu haben stellte ihn nur neben seine eigene Aussage und liess ihn ansehen, was er dort abgestellt hatte.
+
+Elva setzte sich auf die Mauer neben ihn. "Er hat Ja gesagt?"
+
+"Ja."
+
+"Unangenehm."
+
+"Sehr."
+
+Sie biss in ihre Rübe und verzog das Gesicht. "Dann iss schneller. Schuld denkt sich mit leerem Magen nur dramatischer."
+
+Taron nahm die Rübe wieder. Sie schmeckte nicht besser, aber nun hatte sie eine Aufgabe. Manche Lebensmittel erreichten nie mehr.
+
+Unten auf dem Feld hatte der Mann mit dem Karren angehalten. Ein Rad steckte in einer Furche. Die alte Frau unter den Decken hob schwach die Hand, aber niemand auf der Strasse blieb stehen. Die Leute gingen schneller, sobald sie sahen, dass Hilfe Zeit kosten wuerde.
+
+Taron stand auf.
+
+Oswin sah ihn sofort. "Nein."
+
+"Ich habe nichts gesagt."
+
+"Dein Ruecken hat gesprochen."
+
+"Mein Gesicht, mein Ruecken. Gibt es an mir irgendeinen Teil, der keine politischen Erklaerungen abgibt?"
+
+"Deine Schuhe", sagte Elva. "Die jammern nur."
+
+Der Erzaehler sagte: "Ein erstaunlich genauer Befund."
+
+Taron ging trotzdem zum Karren. Oswin fluchte, folgte ihm aber. Elva kam mit, Brokk ebenfalls, und damit wurde aus einer einfachen Hilfeleistung ein kleiner Aufmarsch, was den Mann am Karren fast noch mehr erschreckte als das festsitzende Rad.
+
+"Wir nehmen nichts", sagte Taron.
+
+Der Mann sah auf Oswins Schwert, auf Brokks Bart, auf Tarons Mantel und traf die vernuenftige Entscheidung, dieser Aussage nur teilweise zu glauben.
+
+"Das Rad", sagte Elva und kniete sich bereits hin.
+
+Brokk legte die eiserne Hand an die Achse. Oswin drueckte von der anderen Seite. Taron schob hinten und hatte den starken Eindruck, vor allem dekorativ zum Gelingen beizutragen. Der Karren kam frei.
+
+Die alte Frau unter den Decken sah ihn an. "Falkenried."
+
+Taron erstarrte.
+
+"Kennt Ihr mich?"
+
+"Nein." Sie hustete. "Aber mein Vater sagte, wenn der Falke den Kopf senkt, dann weil er etwas Schweres traegt."
+
+Taron sagte nichts.
+
+Die Frau griff in die Decken und zog eine kleine Bronzescheibe hervor, kaum groesser als eine Muenze. Darauf war ein Vogel eingeritzt, der Kopf gesenkt.
+
+"Aus Abendriss?", fragte Elva.
+
+"Aus einem Lied", sagte die Alte. "Lieder verlieren Dinge. Manchmal behalten sie welche."
+
+Oswin sah zur Strasse. "Wir muessen weiter."
+
+Taron gab der Frau die Scheibe zurueck. "Behaltet sie."
+
+"Ich habe sie lange genug behalten." Sie drueckte sie ihm in die Hand. "Jetzt ist sie nur noch schwer."
+
+Der Erzaehler sagte sehr leise: "Nimm sie."
+
+Taron nahm sie.
+
+Als sie zurueck zur niedrigen Mauer gingen, sagte niemand etwas. Sogar Merlan, der alles haette fragen wollen, war nicht da. Das war vermutlich der einzige Grund, warum die Bronzescheibe diesen Moment unanalysiert ueberlebte.
+
+"Noch ein Zeichen", sagte Elva.
+
+"Ja."
+
+"Du musst nicht jedes tragen."
+
+Taron betrachtete die Scheibe. "Vielleicht nicht. Aber jemand hat es bis hierher getragen."
+
+Der Erzaehler sagte nichts.
+
+Diesmal war sein Schweigen kein Ausweichen. Es war Zustimmung, die zu viel erinnerte.
+
 Der Erzaehler sagte nichts Spöttisches. Das war fast unanstaendig von ihm.
 
 "Nicht-Wollen ist ein Anfang", sagte er schliesslich. "Kein guter Ort zum Wohnen."

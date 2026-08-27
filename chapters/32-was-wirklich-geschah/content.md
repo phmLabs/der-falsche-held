@@ -174,6 +174,88 @@ Ganz.
 
 Natuerlich ganz.
 
+Fuer einen Augenblick erinnerte Taron sich an Merlans Haus. An den ordentlichen Tisch, die Phiolen, die Beschriftungen, die Belehrung darueber, dass seltene Stoffkunde nicht geworfen, geschuettelt, fallen gelassen, nass gemacht, erhitzt, beleidigt oder in Anwesenheit offener Flammen diskutiert werden sollte. Merlan hatte eine erstaunliche Anzahl Warnungen fuer eine Kugel gehabt, die nun in Tarons Hand lag, waehrend um ihn herum Menschen und Zwerge mit Metall aufeinander einschlugen.
+
+Das Leben achtete wenig auf Lagerungshinweise.
+
+"Wie genau zerbricht man sie?", fragte Taron.
+
+Merlan, der gerade Rugars Schulter unter Kontrolle zu bringen versuchte, starrte ihn an. "Mit Absicht."
+
+"Das ist keine Anleitung."
+
+"Ich gab dir eine Anleitung."
+
+"Wann?"
+
+"Vor Tagen."
+
+"Vor Tagen wusste ich noch nicht, dass ich sie in einer Daemonenkammer benutzen muss!"
+
+"Ich auch nicht!"
+
+Elva zog Rugar ein Stueck weiter. "Koennt ihr streiten und handeln?"
+
+"Das ist meine Hauptausbildung", sagte Taron.
+
+Der Erzaehler fluesterte: "Eine traurige, aber belastbare Qualifikation."
+
+Die Kugel war glatt. Zu glatt. Sie wollte nicht zerbrechen. Sie wollte ein teures, empfindliches Forschungsobjekt bleiben und vielleicht spaeter in einer Vitrine liegen, wo Besucher leise sagten: Ach, schau, damit haette man damals viele Leute retten koennen, wenn der Traeger nicht an technischen Einzelheiten gescheitert waere.
+
+Taron drueckte fester.
+
+Nichts.
+
+Ein Schatten des freien Daemons glitt noch immer an der Wand entlang, obwohl der Daemon selbst im Riss stand. Nicht ein eigener Gegner. Eher ein Rest von Richtung. Er zeigte auf die Leute, die gerade einander falsch verstanden, und machte aus jeder Angst eine Bewegung.
+
+Varga schlug nach Brokk. Brokk blockte wieder zu weich.
+
+"Er toetet dich", sagte Oswin.
+
+"Noch nicht."
+
+"Das ist kein langfristiger Plan."
+
+"Heute gibt es nur kurze."
+
+Taron hob die Kugel.
+
+"Nicht auf den Boden!", rief Merlan.
+
+Taron erstarrte. "Warum?"
+
+"Wenn sie rollt, raucht sie falsch."
+
+"Rauch kann falsch rauchen?"
+
+"Alles kann falsch sein, wenn man sich nur wenig genug auskennt."
+
+Der Erzaehler sagte: "Ein Satz, der auf Tarons Wappen gehoert."
+
+"Ich hoere dich", murmelte Taron.
+
+"Das ist in deinem Fall die halbe Tragik."
+
+Elva sah zwischen ihnen hin und her. "Ist das gerade hilfreich?"
+
+"Nein", sagten Taron und Merlan gleichzeitig.
+
+Dann sprang ein menschlicher Soldat ueber einen gefallenen Schild und rammte seinen Speer nach Varga. Varga wich aus, Brokk riss den Speer zur Seite, der Soldat stolperte und haette Oswin in den Ruecken getroffen, wenn Elva ihm nicht mit Rugars Stiefel gegen das Schienbein trat. Rugar, bewusstlos, leistete damit seinen ersten Beitrag zum Frieden.
+
+"Zaehlt das?", keuchte Taron.
+
+"Rugar hat geholfen", sagte Elva.
+
+Brokk, der es gesehen hatte, rief: "Dann muss er leben, sonst kann ich ihm das nie vorwerfen."
+
+Varga stockte.
+
+Nur kurz.
+
+Aber kurz war jetzt eine Waeh­rung.
+
+Taron nutzte sie schlecht, aber immerhin.
+
 Der Erzaehler sagte schwach: "Falls es dich troestet: Dies ist vermutlich der schlechteste moegliche Moment, sie noch nicht benutzt zu haben."
 
 Taron schloss die Finger darum.
@@ -287,6 +369,88 @@ Dieses Spaeter klang nicht wie Aufschub. Es klang wie ein Versprechen, dass es e
 Taron hielt sich daran fest, waehrend der Rauch dichter wurde und die Welt fuer einen Moment nur noch aus Hand, Husten und Richtung bestand.
 
 Mehr Orientierung hatte an diesem Tag ohnehin niemand verdient.
+
+Der Rauch brachte auch Erinnerungen mit.
+
+Nicht magisch, behauptete Merlan spaeter mit beleidigter Ausdauer. Der Rauch habe keine Erinnerungen erzeugt. Er habe nur die Sinne verwirrt, die Augen gereizt, den Geruchssinn ueberlastet und dadurch innere Bilder beguenstigt. Das war eine sehr gelehrte Art zu sagen, dass alle im Hof ploetzlich Dinge sahen, die sie ohnehin mit sich herumtrugen.
+
+Taron sah den Dungeon, aber kleiner. Er sah sich selbst auf dem Boden, hoerte die Stimme, die damals zu fern gewesen war. Dann sah er den Stall, den Donner, den Mantel. Sah Arvens Schrift. Sah die Stelle, an der aus Schutz beinahe Besitz geworden waere.
+
+Oswin sah anderes. Taron wusste es, weil Oswin spaeter eine Zahl vergass. Nur eine. Aber der Ritter hielt mitten im Rauch inne, als habe jemand vor ihm einen Namen ausgesprochen, den er sonst nur innerlich benutzte. Ein junger Zwerg rannte auf ihn zu, Axt erhoben. Oswin haette ihn einfach schneiden koennen. Stattdessen trat er in den Angriff hinein, packte den Zwerg am Riemen und warf ihn gegen eine Trage, auf der er fluchend, lebend und sehr beleidigt landete.
+
+"Elf", sagte Oswin.
+
+Brokk rief: "Der war schon meiner!"
+
+"Dann beschwer dich beim Rauch!"
+
+Brokk tat es in Zwergisch. Der Rauch zeigte keine Reue.
+
+Elva sah Marta. Nicht wirklich, denn Marta war oben im Hof und fluchte vermutlich ueber Suppenverteilung in Kriegszeiten. Aber Elva hoerte ihre Stimme: erst schneiden, dann reden; erst Topf vom Feuer, dann Schuld verteilen. Elva zog Taron mit einer Hand, Rugar mit der anderen und trat einem Mann, der ihr in den Weg fiel, nicht ins Gesicht, sondern gegen den Schildrand, sodass er zur Seite rollte.
+
+"Danke", hustete der Mann.
+
+"Spaeter besser liegen", sagte Elva.
+
+Merlan sah Schrift. Das war nicht ueberraschend. Er sah sie aber nicht auf Pergament, sondern auf Menschen. Namen, Rollen, Luecken, falsche Titel. Er begann, sie laut zu sortieren, was einige Panische beruhigte und andere verwirrte. Beides war besser als Zuschlagen.
+
+"Lebend!", rief Merlan, als er ueber einen Zwerg stolperte.
+
+"Was?"
+
+"Du bist lebend. Bleib es bitte zu Dokumentationszwecken."
+
+Der Zwerg blieb so verdutzt liegen, dass zwei Menschen ueber ihn hinwegstiegen, ohne ihn zu treffen.
+
+"Zwoelf!", rief Taron.
+
+"Das ist kein System mehr!", rief Oswin.
+
+"Es war nie eins!"
+
+"Dann funktioniert es erstaunlich gut!"
+
+Der Erzaehler, sehr schwach, sagte: "Geschichte in einem Satz."
+
+Im Rauch verloren Titel zuerst ihre Wirkung.
+
+Das war eine der wenigen anstaendigen Eigenschaften von Rauch. Ein Koenig hustete wie ein Knecht. Ein Hauptmann tastete wie ein Kind. Ein Ritter, der eben noch mit sicherer Klinge eine Linie gehalten hatte, stiess mit dem Knie gegen einen Stein und fluchte so schlicht, dass jeder Barde enttaeuscht gewesen waere.
+
+"Links!", rief Oswin.
+
+"Wessen links?", rief Taron.
+
+"Das lebendige!"
+
+"Das ist keine Richtung!"
+
+Elva zog ihn nach rechts. Offenbar war das lebendige Links dort.
+
+Sie fanden Merlan, weil er weiter sprach. Zuhörer waren fuer Merlans Redefluss offenbar optional; heute war das ausnahmsweise nuetzlich. Er rezitierte Namen von den Zeugenplaetzen, um sich selbst nicht zu verlieren.
+
+"Ebrecht ohne Siegel, Durn Hammerlos, Sila von der Suedkueche..."
+
+"Merlan!", rief Elva.
+
+"Hier. Rugar atmet. Ich sehe nichts. Das ist fuer medizinische Arbeit nachteilig."
+
+Brokk kam aus dem Rauch, eine Hand an Rugars Schulter, die andere am Stab. Sein Gesicht war grau vor Anstrengung. "Hoch."
+
+"Er ist ein Koenig", keuchte Taron, als sie Rugar anhoben. "Sollte er nicht leichter sein, wenn niemand gerade durch ihn spricht?"
+
+"Schuld wiegt", sagte Brokk.
+
+Oswin tauchte neben ihnen auf. "Dann bewegt sie schneller."
+
+Hinter ihm prallten Menschen und Zwerge erneut aufeinander. Sie sahen kaum etwas, aber sie wussten, wo der Feind ungefaehr sein musste. Ungefaehr reichte fuer Krieg leider oft.
+
+Taron hoerte einen jungen Mann schreien. Dann einen Zwerg. Dann Brodas Stimme, die beide mit demselben Wort anbruellte. Es klang wie "Runter", nur mit mehr Stein darin.
+
+"Sie haelt oben", sagte Brokk.
+
+"Alle halten irgendwo", sagte Elva.
+
+Das war der Satz, der Taron durch den naechsten Atemzug brachte.
 
 Er sah die Kugel in seiner Hand. Klein. Dunkel. Fast laecherlich. Merlan hatte sie ihm gegeben, als waere sie ein besonders seltenes Argument. Taron hatte sie aufgehoben, verloren, wiedergefunden, fast benutzt, nicht benutzt, zu spaet benutzt, nie richtig benutzt. Sie war zu einem Vorwurf in Kugelform geworden.
 

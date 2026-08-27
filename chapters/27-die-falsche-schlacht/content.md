@@ -62,6 +62,72 @@ Oswin bewegte sich durch dieses Durcheinander, als lese er eine unordentliche Sc
 
 Taron und Elva nutzten diese Atemzuege, indem sie nicht starben. Es war eine bescheidene, aber wichtige Aufgabe.
 
+Links vom Brunnen war ein Pferd gestuerzt. Es trat mit den Hinterbeinen aus und hielt dadurch drei Menschen und zwei Zwerge davon ab, einander zu erreichen. Niemand hatte das Pferd gefragt, ob es Teil der Friedensbemuehungen sein wollte. Das Pferd antwortete mit einem Tritt gegen einen Schild und wirkte im Recht.
+
+"Da durch", sagte Elva.
+
+"Beim Pferd?"
+
+"Zwischen Pferd und Wagen."
+
+"Das sind zwei verschiedene Arten zu sterben."
+
+"Dann nimm die schmale dazwischen."
+
+Sie liefen. Taron hielt den Kopf niedrig, weil das in Geschichten immer geraten wurde und in Wirklichkeit vor allem dazu fuehrte, dass man weniger sah, worueber man stolperte. Ein Schild rutschte unter seinen Fuss. Er fing sich an einem Fass, das sofort kippte und saure Gurken ueber den Boden schickte.
+
+Der Erzaehler sagte: "Die Versorgungslage verliert weiter an Wuerde."
+
+Ein Zwerg trat auf eine Gurke, rutschte aus und entging dadurch einem Speer.
+
+"Gerettet!", rief Taron.
+
+Oswin sah kurz hin. "Durch Gemuese zaehlt nicht."
+
+"Warum nicht?"
+
+"Unklare Zustaendigkeit."
+
+Brokk bruellte: "Zaehlt!"
+
+Der Zwerg am Boden hob benommen den Daumen, was bei einem Helm voller Gurkenwasser eine bewundernswerte Form politischer Offenheit war.
+
+Elva packte Taron am Aermel. "Weiter."
+
+Im naechsten Atemzug wurde es ernst genug, dass niemand mehr lachte. Ein Waldkircher Knecht stand einem Zwerg gegenueber, beide jung, beide mit zu grossen Waffen. Beide hatten Angst. Man sah es an den Schultern, an den Augen, an der Art, wie sie nicht auf die Waffe des anderen sahen, sondern auf dessen Gesicht. Jeder wartete darauf, dass der andere ihn zum Moerder machte.
+
+Taron kannte den Knecht. Hanno, der Mann der Ziegenfrau, der vorhin klueger geschwiegen hatte als viele andere geredet.
+
+"Hanno!", rief Taron.
+
+Der Knecht zuckte.
+
+Der Zwerg auch.
+
+Das haette fast gereicht, um alles schlimmer zu machen.
+
+Elva war schneller. Sie warf einen leeren Wassereimer zwischen die beiden. Der Eimer schepperte, sprang hoch und traf Hanno am Knie. Hanno fluchte. Der Zwerg trat zurueck. Oswin war da, schlug Hannos Speer nach unten und stellte sich zwischen beide.
+
+"Ihr lebt beide", sagte er. "Nutzt diese seltene Lage."
+
+Hanno atmete hart. "Er wollte..."
+
+"Ja", sagte Oswin. "Du auch."
+
+Der Zwerg senkte langsam die Axt. Hanno tat es ihm nach, ohne es merken zu wollen.
+
+Brokk rief von der Seite: "Sieben."
+
+Oswin antwortete nicht sofort. Dann sagte er: "Acht. Er zaehlt fuer zwei, weil er verheiratet ist."
+
+"Das ist keine Regel", rief Brokk.
+
+"Ich erfinde sie gerade."
+
+Der Erzaehler sagte: "Zivilisation: ein fortlaufender Streit ueber Zaehleinheiten."
+
+Taron konnte nicht anders. Er lachte einmal, kurz, atemlos. Dann sah er, wie Hanno den Zwerg nicht angriff, und das Lachen blieb ihm im Hals stecken, wo es sich in etwas anderes verwandelte.
+
 "Priester weg!", rief Elva.
 
 Malchior sah sie beleidigt an. Ein Bolzen schlug in den Wagen neben ihm. Er entschied sich fuer eine beweglichere Form von Wuerde.
@@ -187,6 +253,84 @@ Der Erzaehler sagte: "Regelbildung in der Schlacht. Der Zivilisation geht es bes
 Am Ende erreichten sie das Tor zu den unteren Gaengen.
 
 Ende war ein grosszuegiges Wort. Sie erreichten das Tor in dem Sinn, in dem ein angeschlagener Becher den Tischrand erreicht: mit Laerm, Verlusten und der unmittelbaren Gefahr, gleich doch noch zu fallen.
+
+Hinter ihnen schloss sich die Hofordnung wieder zu einem Knoten. Varga war durch das Seitentor gekommen. Taron erkannte ihn an der Art, wie Zwerge vor ihm Platz machten, nicht aus Angst allein, sondern aus Gewohnheit. Varga trug den Helm unter dem Arm. Sein Gesicht war blutverschmiert, aber seine Augen waren klar genug, um Brokk sofort zu finden.
+
+"Eisenhand!", rief er.
+
+Brokk blieb stehen.
+
+Oswin packte ihn am Arm. "Nicht."
+
+"Er hoert vielleicht."
+
+"Er hoert dich. Das ist nicht dasselbe."
+
+Varga kam naeher, die Axt in beiden Haenden. Zwei Zwerge folgten ihm. Hinter ihnen drueckten Waldkircher Soldaten nach, und fuer einen Augenblick entstand eine schmale freie Linie zwischen Brokk und Varga, als habe der Hof selbst beschlossen, dass alte Freunde und neue Feinde ihre eigene Dummheit ordentlich auffuehren sollten.
+
+"Du stehst bei Menschen", sagte Varga.
+
+"Ich stehe zwischen Fehlern", sagte Brokk.
+
+"Der Koenig nannte dich tot."
+
+"Dann hat er gelogen."
+
+"Rugar luegt nicht."
+
+Brokks Gesicht wurde muede. "Dann spricht jemand durch ihn, der es tut."
+
+Varga hob die Axt. "Genug."
+
+Taron sah, wie Brokk den Stab fester fasste. Sah Oswin die Klinge drehen. Sah Elva einen halben Schritt vorgehen, als koenne ihr Koerper ein politisches Problem loesen, wenn er nur rechtzeitig im Weg stand.
+
+"Warte!", rief Taron.
+
+Varga sah ihn an. Der Blick traf wie ein Stein.
+
+"Du bist der Falkenried."
+
+"Ich bekomme heute viel Post in dieser Richtung."
+
+"Du hast unseren Schluessel."
+
+"Nein."
+
+Brokk hob den Zwergenschluessel. "Ich habe ihn."
+
+Varga erstarrte.
+
+Das war der falsche Moment, um etwas zu erklaeren, und deshalb der einzige, den sie hatten.
+
+Brokk sagte schnell etwas auf Zwergisch. Taron verstand nur Rugars Namen, Niemand und ein Wort, das wie eine Schramme klang. Varga antwortete hart. Brokk trat einen Schritt naeher. Oswin blieb an seiner Seite.
+
+"Sag ihm Riedwacht", murmelte Taron.
+
+Brokk sah kurz zu ihm.
+
+"Die Kapelle", sagte Taron. "Der Tag, an dem sie ihn geholt haben. Wenn er dabei war, kennt er etwas, das Niemand nicht erfunden hat."
+
+Brokk nickte kaum merklich und sprach wieder.
+
+Vargas Gesicht veraenderte sich. Nicht genug. Aber ein Riss ging durch seinen Zorn.
+
+Dann schlug irgendwo ein Stein ein, und ein Soldat schrie. Die Linie brach. Ein Waldkircher stiess Varga von der Seite an. Varga reagierte aus Instinkt und riss ihn zu Boden. Oswin trat dazwischen, bevor Brokk oder Varga entscheiden konnten, ob Erinnerung wichtiger war als Ueberleben.
+
+"Spaeter!", rief Oswin.
+
+"Es gibt kein Spaeter!", bruellte Varga.
+
+"Dann machen wir eins."
+
+Oswin schlug Vargas Axt nicht weg. Er blockte sie nur, liess sie seitlich abgleiten und schob Varga mit der Schulter zurueck. Varga haette ihn dafuer toeteten koennen, wenn Brokk nicht den Stab querlegte.
+
+Drei Atemzuege hielten sie einander.
+
+Drei Atemzuege waren in einer Schlacht unverschämt viel.
+
+Dann riss ein neuer Schrei vom inneren Tor sie auseinander.
+
+Der Hunger hatte unter der Burg geantwortet.
 
 Vor dem Tor lag Hauptmann Greve mit einer Wunde am Bein. Er versuchte, sich aufzurichten, und zielte mit dem Schwert auf Brokk.
 

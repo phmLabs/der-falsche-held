@@ -317,3 +317,271 @@ Der Hunger sah ihn an. Ein Zwerg gab einem verdorbenen Waechter einen Befehl, de
 Dann senkte der Hunger den Kopf.
 
 Nicht unterworfen. Einverstanden.
+
+Die Treppe hinter der Steinplatte war nicht fuer Flucht gebaut. Sie war fuer Prozessionen gebaut, aber fuer solche, die sich schaemten, Prozessionen zu sein. Breit genug fuer drei Menschen nebeneinander, niedrig genug, dass jeder den Kopf senken musste. An den Waenden standen weitere Namen, und je tiefer sie gingen, desto weniger waren es Namen von Koenigen.
+
+Mara. Durn. Elsin. Brogar. Sila.
+
+Taron las sie, so gut er konnte. Manche zerfielen unter seinem Blick. Manche waren mit Messer, Nagel oder Stein hineingekratzt. Keine Schrift war gleich. Das war vielleicht das Ehrlichste an diesem Ort: Wer hier Dienst getan hatte, war nicht aus einem Lied gekommen.
+
+"Das waren Waechter?", fragte Elva.
+
+Merlan hielt die Lampe naeher an die Wand. "Nicht nur. Koechinnen. Binder. Steinmetze. Schreiber. Jemand hat hier eine Liste derer begonnen, die den Eid tatsaechlich am Leben hielten."
+
+"Und spaeter nannte Waldkirch nur noch den Hunger Monster", sagte Taron.
+
+Brokk fuhr mit der eisernen Hand ueber einen zwergischen Namen. "Karndorn haette dasselbe getan, wenn es unter unseren Hallen gelegen haette."
+
+Oswin sah zurueck in die Dunkelheit. "Leute vergessen, was ihnen unangenehm dient."
+
+Der Erzaehler sagte: "Eine knappe, unerfreulich belastbare Geschichtstheorie."
+
+Weiter unten fanden sie einen kleinen Raum neben der Treppe. Darin standen zerbrochene Schalen, ein verrosteter Kessel und ein niedriger Stein mit Brandspuren. Keine Falle. Kein Altar. Eine Kueche.
+
+Elva blieb stehen.
+
+"Hier unten?"
+
+"Wachen essen", sagte Brokk.
+
+"Ja. Aber das hier ist nicht fuer Soldaten. Sieh." Sie hob eine Tonscherbe. Darauf war mit ungelenker Hand ein Vogel gemalt, daneben ein Hammer, dazwischen eine offene Hand. "Jemand hat versucht, es einem Kind zu erklaeren."
+
+Taron sah die Scherbe an und dachte an alle grossen Saetze, die oben gesprochen wurden. Freiheit. Opfer. Reich. Schutz. Vielleicht hatten die Leute hier unten es besser verstanden, weil sie es klein genug machen mussten, damit ein Kind es greifen konnte.
+
+"Keiner allein", sagte Elva leise.
+
+Der Schutzschluessel antwortete unter Oswins Mantel mit einem warmen, dumpfen Ton.
+
+Aus der Tiefe kam ein zweites Antworten.
+
+Nicht der Hunger.
+
+Der Eidstein.
+
+Merlan schloss die Finger fester um die Lampe. "Jetzt weiss er, dass wir kommen."
+
+"Wer?", fragte Taron, obwohl er es wusste.
+
+Der Erzaehler antwortete nicht mit Spott.
+
+"Beide."
+
+Danach gingen sie langsamer.
+
+Das war keine ausdrueckliche Entscheidung. Niemand sagte: Wir gehen jetzt langsamer, weil alte Steine ploetzlich antworten und der Krieg ueber uns eine sehr schlechte Begleitmusik liefert. Menschen und Zwerge sparten sich solche Saetze, wenn die Treppe eng genug war. Sie setzten einfach einen Fuss bedachter vor den anderen.
+
+Taron merkte, wie der Druck in der Luft zunahm. Nicht wie vor einem Sturm. Eher wie in einer Kueche kurz bevor ein Topf ueberkocht, wenn alle es riechen und niemand den Mut hat, den Deckel zu heben. Elva haette den Deckel vermutlich gehoben. Taron haette vorgeschlagen, zunaechst eine Kommission zu bilden und dann heimlich das Fenster zu suchen.
+
+Der Erzaehler sagte: "Selbsterkenntnis kurz vor alten Maechten ist selten nuetzlich, aber oft dekorativ."
+
+"Ich versuche, nicht in Panik zu geraten."
+
+"Das weiss ich. Du machst dabei ein bemerkenswert konzentriertes Gesicht."
+
+"Ist das Kritik?"
+
+"Eine Bestandsaufnahme."
+
+Oswin blieb stehen und hob die Hand. Alle erstarrten.
+
+Von unten kam ein Geraeusch.
+
+Nicht Schritte. Nicht Stimmen. Ein Schaben, als wuerde jemand einen schweren Riegel langsam durch Stein ziehen. Dann ein zweites Geraeusch: ein sehr leises Klingen, kaum mehr als Erinnerung an Metall.
+
+Brokk fluesterte ein zwergisches Wort.
+
+"Was heisst das?", fragte Taron.
+
+"Alt."
+
+"Ihr habt doch sicher mehr Woerter."
+
+"Nicht fuer das."
+
+Merlan kniete an der Wand. Dort war der Stein aufgebrochen, und unter der aeusseren Schicht lag eine andere. Heller, mit feinen Adern. Er zog ein Messer, kratzte vorsichtig daran und roch an der Klinge.
+
+Elva sah ihn an. "Ist das noetig?"
+
+"Nein", sagte Merlan. "Aber wenn ich es nicht tue, denke ich die ganze Zeit daran."
+
+"Und?"
+
+"Kein gewoehnlicher Burgstein. Mischung aus Kalk, Erzstaub und etwas, das ich ohne Labor nur als 'unverschaemt' bezeichnen kann."
+
+Der Erzaehler sagte: "Die moderne Magie schreitet voran."
+
+Taron legte eine Hand auf die Wand. Diesmal zeigte der Stein ihm keine Vision. Nur ein Gefuehl: viele Haende, ueber lange Zeit, die denselben Ort beruehrten. Nicht betend. Arbeitend. Reparierend. Wiederholend. Die eigentliche Macht dieses Gangs war nicht das Alter. Es war Wartung.
+
+Das war eine beleidigend unromantische Erkenntnis.
+
+"Der Eid wurde gepflegt", sagte Taron.
+
+Merlan sah auf. "Ja."
+
+"Wie ein Ofen", sagte Elva.
+
+Brokk nickte. "Wie ein Schacht."
+
+Oswin sagte: "Wie eine Grenze."
+
+Alle sahen ihn an.
+
+Er zuckte kaum mit der Schulter. "Wenn man sie nicht bewacht, behauptet spaeter jeder, sie sei schon immer woanders gewesen."
+
+Der Erzaehler sagte: "Ritter Oswin, erneut ungebeten praezise."
+
+Sie gingen weiter.
+
+Der naechste Abschnitt des Gangs war mit kleinen Nischen versehen. In manchen lagen Steine. In einer ein verrosteter Fingerhut. In einer anderen ein Stueck Holz, schwarz vor Alter, in das jemand drei Kerben geschnitten hatte. Merlan wollte alles untersuchen. Elva erlaubte ihm drei Atemzuege pro Nische, was eine der haerteren wissenschaftlichen Beschraenkungen der Geschichte war.
+
+"Opfergaben?", fragte Taron.
+
+"Eher Erinnerungsanker", sagte Merlan.
+
+"Das klingt nach Opfergaben mit akademischer Garderobe."
+
+"Vielleicht. Aber sie sind klein. Persoenlich. Kein Gold, keine Waffen."
+
+Brokk hob den Fingerhut auf und legte ihn sofort wieder hin, als habe er etwas Lebendes beruehrt. "Meine Mutter hatte so einen."
+
+Seine Stimme war rau.
+
+Niemand fragte nach seiner Mutter. Das war Ruecksicht. Oder Angst davor, was die Antwort in diesem Gang tun wuerde.
+
+Weiter unten standen die Namen dichter. Einige waren durchgestrichen. Nicht entfernt wie oben, sondern mit einer einzelnen Linie, die sie lesbar liess. Merlan hielt die Lampe davor und atmete scharf ein.
+
+"Gestorben", sagte er.
+
+"Woran erkennt man das?", fragte Taron.
+
+"Weil daneben ein zweiter Name steht. Der naechste, der den Dienst uebernahm."
+
+Elva las langsam: "Mara. Dann Sila."
+
+"Kueche zu Kueche", sagte Brokk.
+
+"Oder Mensch zu Mensch", sagte Oswin.
+
+Taron sah auf die Reihe. Namen, Nachfolgen, kleine Zeichen. Der Eid war nicht von Koenigen gehalten worden. Koenige hatten ihn besiegelt, vielleicht. Priester hatten ihn erklaert, sicher zu oft. Aber gehalten hatten ihn Leute, die Fingerhuete verloren, Kessel flickten, Steine setzten und einander abloesten, wenn einer starb.
+
+Dann hatte irgendwann niemand mehr abgeloest.
+
+Der Hunger war geblieben.
+
+Taron drehte sich zurueck, obwohl der Waechter nicht zu sehen war. "Deshalb ist er verdorben."
+
+Merlan nickte langsam. "Ein Dienst ohne Nachfolger. Ein Eid ohne Antwort."
+
+"Und wir nennen ihn Monster."
+
+"Menschen benennen ihre Schuld selten nach sich selbst", sagte der Erzaehler.
+
+Der Satz war nicht witzig. Er war zu trocken dafuer. Taron nahm ihn trotzdem mit.
+
+Ein Schlag erschuetterte die Decke. Staub fiel dichter. Irgendwo oben krachte Holz. Der Krieg erinnerte sie daran, dass alte Erkenntnisse keine Zeit anhielten.
+
+Elva hustete. "Weiter."
+
+"Ja", sagte Taron.
+
+Doch vor ihnen teilte sich der Gang.
+
+Links fuehrte eine breite Stufe hinab. Rechts ein schmaler Tunnel, niedriger, dunkler, mit frischen Kratzspuren am Boden. Aus dem linken Gang kam der dumpfe Ton des Eidsteins. Aus dem rechten roch es nach kaltem Rauch.
+
+"Breiter Gang", sagte Oswin.
+
+"Zu offensichtlich", sagte Taron.
+
+Der Erzaehler sagte: "Eine erfreuliche, wenn auch verspaetete Entwicklung."
+
+Merlan untersuchte die Zeichen an der Wand. "Der breite Gang ist der Zeugenweg. Der schmale..."
+
+"Falle?", fragte Elva.
+
+"Dienstweg."
+
+Brokk sah hinein. "Fuer Waechter."
+
+Taron dachte an plumpe Wegweiser, an Zeichen, die zu direkt waren, an Geschichten, die Helden genau dort hinschickten, wo sie gebraucht wurden. Dieser Ort war anders. Er bot keinen Pfeil. Er bot zwei unangenehme Moeglichkeiten, beide richtig, beide schlecht.
+
+"Wenn Rugar kommt", sagte Taron, "kommt er nicht durch den Zeugenweg."
+
+Brokk sah ihn an.
+
+"Warum?"
+
+"Weil er keinen Zeugen will."
+
+Der Schutzschluessel gab einen Ton von sich.
+
+Oswin zog langsam das Schwert. "Dann muessen wir wissen, wohin der Dienstweg fuehrt."
+
+"Das kostet Zeit", sagte Merlan.
+
+Von oben kam ein neuer Schrei.
+
+Elva schloss die Hand um die Tonscherbe mit Vogel, Hammer und Hand. "Alles kostet Zeit. Manche Dinge kosten sie nur vorher."
+
+Sie nahmen den rechten Gang.
+
+Er war eng genug, dass Oswin seitlich gehen musste und Brokk mehrmals mit der eisernen Hand an den Stein stiess. Taron ging hinter Elva. Das war nicht heldisch, aber er hatte beschlossen, dass Heldenmut in engen Tunneln sehr oft nur eine andere Bezeichnung fuer Leute war, die vorne in Spinnweben liefen.
+
+"Ich sehe dein Gesicht", sagte Elva, ohne sich umzudrehen.
+
+"Das ist anatomisch unwahrscheinlich."
+
+"Ich hoere es."
+
+"Mein Gesicht macht keine Geraeusche."
+
+"Doch."
+
+Der Erzaehler sagte: "Es tut es. Oft."
+
+Der Gang endete an einem Eisengitter.
+
+Dahinter lag kein Raum, sondern ein Blick in die grosse Kammer. Sie standen oberhalb, auf einem schmalen Wartungssteg. Unter ihnen sah Taron den Eidstein zum ersten Mal: roh, dunkel, mit schwebenden Riegeln und drei Rinnen, die zur Mitte liefen.
+
+Und auf der anderen Seite der Kammer oeffnete sich bereits ein Durchgang.
+
+Rugar kam.
+
+Nicht allein mit Schritten.
+
+Mit Stille.
+
+Brokk presste die eiserne Hand um das Gitter, bis Metall knirschte.
+
+"Zu spaet?", fragte Taron.
+
+Der Erzaehler antwortete: "Nein."
+
+Das war das Beunruhigendste, was er haette sagen koennen.
+
+"Dann warum klingst du so?"
+
+"Weil rechtzeitig nicht immer besser ist."
+
+Oswin fand einen alten Hebel am Steg. "Das Gitter."
+
+Merlan sah die Mechanik an. "Nicht ziehen."
+
+Oswin hielt inne.
+
+"Warum?"
+
+"Wenn ich die Riegel richtig lese, oeffnet es nicht nur hier."
+
+Elva sah hinunter zur Kammer. "Was noch?"
+
+Merlan wurde blass. "Die Zeugenplaetze."
+
+Unten trat Rugar in das Licht.
+
+Taron sah sein Gesicht und begriff, dass sie die Wahl nicht mehr hatten.
+
+"Zieh", sagte er.
+
+Oswin zog.
+
+In der Kammer erwachten alte Sitze.

@@ -338,6 +338,220 @@ Genug, dass die erste Axt im Hof ebenfalls sank.
 
 Danach eine zweite.
 
+Dann stockte es.
+
+Natuerlich stockte es. Wer erwartete, dass Jahrhunderte aus Angst, Stolz, schlechten Abschriften, leeren Speichern und Totenlisten in einer einzigen schoenen Bewegung die Waffen niederlegten, hatte vermutlich nie versucht, eine Familie zum gemeinsamen Abendessen zu bewegen.
+
+Ein Zwerg in der dritten Reihe hielt die Axt oben. Nicht aus Trotz allein. Seine Augen waren auf einen Menschen gerichtet, der ihm vor wenigen Atemzuegen den Bruder vom Bein gezogen hatte. Der Bruder lag nun hinter ihm und atmete vielleicht. Vielleicht nicht. Der Mensch hielt wiederum den Speer oben, weil sein Vetter an der Mauer gefallen war und weil er gelernt hatte, dass ein Zwerg mit Axt keine Pause war, sondern eine kommende Wunde.
+
+Rugar sah sie beide.
+
+Albrecht auch.
+
+Taron sah, wie die beiden Koenige begriffen, dass ein Befehl nach unten leichter war als Vertrauen zurueck nach oben. Befehle sanken wie Steine. Vertrauen musste getragen werden.
+
+"Name", sagte Rugar.
+
+Varga blinzelte. "Majestaet?"
+
+Rugar zeigte auf den Zwerg mit der erhobenen Axt. "Sein Name."
+
+Varga sah verwirrt, dann wütend, dann beschämt aus. "Kell. Sohn der Marn."
+
+Rugar nickte langsam. "Kell, Sohn der Marn. Waffe nieder."
+
+Der Zwerg zitterte. "Mein Bruder..."
+
+"Atmet", rief Merlan vom Boden her, ohne aufzusehen. "Wahrscheinlich. Sicherer, wenn niemand ihn zur Bestaetigung tritt."
+
+Elva war schon bei dem verletzten Zwerg. Sie drueckte ein Tuch auf seine Seite und sah zu Kell. "Er atmet. Wenn du weiter die Axt hebst, kann ich ihm schlechter helfen."
+
+Kell senkte die Axt nicht sofort. Aber er sah zu seinem Bruder.
+
+Das reichte, damit der Mensch mit dem Speer unsicher wurde.
+
+Albrecht trat vor. Kein Glanz, keine Krone sichtbar unter Ruß und Rauch. Nur ein Mann, der zu spaet lernte und noch immer Macht hatte.
+
+"Dein Name", sagte er zu dem Menschen.
+
+Der Soldat schluckte. "Hanno, Majestaet."
+
+Taron erkannte ihn. Der Mann der Ziegenfrau. Der mit dem Bock, der am Banner gekaut hatte. Waldkirch war klein genug, dass selbst historische Augenblicke von Leuten bevölkert wurden, die man beim Vornamen kannte und deren Ziegen schlechte Manieren hatten.
+
+"Hanno", sagte Albrecht. "Speer nieder."
+
+Hanno sah zu Taron. Aus irgendeinem Grund zu Taron.
+
+Taron hob die Haende. "Ich habe heute keinerlei gute Autoritaet vorzuweisen."
+
+"Sag trotzdem was", sagte Elva.
+
+"Warum ich?"
+
+"Weil er dich ansieht."
+
+Das war unfair, aber schwer zu widerlegen.
+
+Taron sah Hanno an. Dann Kell. "Wenn ihr beide jetzt senkt, seid ihr nicht die Ersten, die nachgeben. Ihr seid die Ersten, die jemandem Arbeit uebrig lassen."
+
+Hanno runzelte die Stirn. "Was?"
+
+"Heilen. Zaehlen. Wasser tragen. Sich spaeter noch richtig beschweren. Alles Dinge, die schwerer werden, wenn ihr euch gegenseitig umbringt."
+
+Der Erzaehler sagte schwach: "Eine Rede wie ein schlecht geschliffener Löffel. Nicht schoen, aber sie erreicht Suppe."
+
+Hanno senkte den Speer.
+
+Kell senkte die Axt.
+
+Kein Lied haette diesen Augenblick genommen. Zu viele Leute husteten. Elva hatte Blut am Aermel. Merlan lag halb unter einer Bank und notierte wahrscheinlich innerlich, dass Namen wirkungsvoller waren als abstrakte Befehle. Aber im Hof senkten zwei weitere Waffen.
+
+Und diesmal sahen es alle.
+
+Albrecht drehte sich zu seinen Leuten. "Namen weitergeben. Wer die Waffe noch haelt, wird beim Namen gerufen."
+
+Greve, der irgendwo am Tor lehnte und aussah, als habe sein Bein eine eigene politische Meinung entwickelt, rief: "Ihr habt den Koenig gehoert."
+
+"Welchen?", rief jemand.
+
+Eine sehr berechtigte Frage.
+
+Albrecht sah zu Rugar.
+
+Rugar sah zurueck.
+
+Fuer einen gefaehrlichen Atemzug haette jeder der beiden die alte Ordnung wieder aufheben koennen. Mein Befehl. Meine Leute. Meine Deutung. Stattdessen sagte Rugar: "Beide."
+
+Albrecht nickte.
+
+"Beide", wiederholte Greve, als schmecke das Wort nach etwas, das er nicht bestellt hatte.
+
+Varga hob die Stimme auf Zwergisch. Brokk setzte auf Menschensprache nach. Oswin uebersetzte nicht genau, sondern brauchbar, was wahrscheinlich die hoechste Kunst des Uebersetzens war.
+
+Namen wanderten durch den Hof.
+
+Nicht alle stimmten. Ein Waldkircher rief einen Zwerg "du da mit dem kaputten Helm", worauf der Zwerg antwortete, sein Helm sei nicht kaputt, sondern historisch belastet. Der Waldkircher sagte dann "historisch belasteter Helm", und beide wirkten damit unzufrieden, aber lebendig.
+
+Eine junge Zwergin senkte ihr Messer erst, als Marta aus dem Rauch trat und sagte: "Du mit der Schnittwunde am Ohr, entweder du laesst mich da dran oder ich naehe es dir spaeter an die falsche Stelle."
+
+Die Zwergin senkte das Messer.
+
+"Wie heisst du?", fragte Marta.
+
+"Rina."
+
+"Gut, Rina. Hinsetzen."
+
+Rina setzte sich.
+
+Taron sah dem zu und dachte, dass Koenige vielleicht nuetzlich waren, aber Marta an diesem Tag schneller regierte.
+
+Der Hunger von Waldkirch stand im Tor.
+
+Er hatte sich nicht bewegt, seit Rugar gesprochen hatte. Doch nun, als Namen durch den Hof gingen, veraenderten sich die Zeichen unter seiner Haut. Sie glommen nicht mehr wild. Sie liefen langsamer, von Narbe zu Narbe, als suchten sie alte Wege.
+
+Merlan sah es und richtete sich so hastig auf, dass er sofort wieder bereute, einen Koerper zu besitzen.
+
+"Namen", sagte er.
+
+"Das haben wir bemerkt", sagte Taron.
+
+"Nein. Der Waechter reagiert auf Namen. Nicht auf Titel. Nicht auf Befehle."
+
+Elva sah zum Hunger. "Mara."
+
+Der alte Waechter hob den Kopf.
+
+Alle in ihrer Naehe verstummten.
+
+Elva wiederholte den Namen nicht lauter. Sie stellte ihn nur in die Luft, vorsichtig, wie man eine Schale an eine Bettkante stellte.
+
+"Mara", sagte sie. "Die den Hunger band."
+
+Der Hunger gab einen Laut von sich, der beinahe Weinen war und beinahe Steinbruch. Einige Menschen wichen zurueck. Einige Zwerge auch. Niemand lachte.
+
+Rugar starrte den Waechter an. Albrecht ebenfalls.
+
+"Wir haben ihn ohne Namen gehalten", sagte Albrecht.
+
+"Und wir haben nach einem Recht ohne Namen gesucht", sagte Rugar.
+
+Ansel, die inzwischen aus dem Saal gekommen war und offenbar beschlossen hatte, dass Verletzungen anderer Leute kein Grund waren, nicht zu widersprechen, sagte: "Dann sollten Eure Majestaeten vielleicht mit Namen anfangen und Titel spaeter benutzen."
+
+Albrecht sah sie an. "Ihr seid sehr hartnaeckig."
+
+"Ich bin alt. Es waere Verschwendung, jetzt noch gefaellig zu werden."
+
+Der Erzaehler sagte in Tarons Kopf: "Ich verehre diese Frau gegen meinen Willen."
+
+"Ich weiss", dachte Taron.
+
+"Sag es ihr nicht."
+
+"Sie weiss es wahrscheinlich."
+
+Der Erzaehler schwieg in einer Art, die nicht falsch war, sondern beleidigt.
+
+Taron stand zwischen Rauch, Namen und sinkenden Waffen und merkte, dass die Stille nicht kam, weil alle auf einmal gut geworden waren. Sie kam, weil genug Leute fuer einen Atemzug die Hand des anderen als Hand sahen, nicht als Teil einer Seite.
+
+Das war kleiner als Erlösung.
+
+Es war auch seltener.
+
 Und fuer einen Atemzug wagte niemand, diesen kleinen Anfang zu erschrecken.
 
 Danach mussten sie ihn mit beiden Haenden festhalten.
+
+Albrecht trat aus dem Rauch, bevor der Anfang stark genug war.
+
+Natuerlich tat er das. Koenige hatten ein Talent dafuer, in Augenblicken aufzutauchen, in denen Menschen gerade begannen, ohne sie zu handeln. Er war nicht feige gewesen. Sein Aermel war blutig, seine Stimme heiser, und an seiner Stirn klebte Russ. Das machte ihn gefaehrlich auf eine andere Art: Er konnte jetzt glauben, dass sein Leiden ihn automatisch klueger gemacht hatte.
+
+"Was geschieht hier?", rief er.
+
+Niemand antwortete sofort.
+
+Rugar stand schwankend, gestuetzt von Brokk und Varga zugleich. Die beiden Zwerge bemerkten das erst, als Albrecht es sah. Varga wollte loslassen. Brokk hielt ihn mit einem Blick fest.
+
+"Die Waffen sinken", sagte Taron.
+
+"Auf wessen Befehl?"
+
+Taron sah zu Rugar.
+
+Rugar sah zu Albrecht.
+
+Der Rauch zwischen ihnen war duenner geworden, aber noch dicht genug, dass beide Koenige nicht wie Bilder wirkten. Sie wirkten wie Maenner, die zu wenig geschlafen, zu viel befohlen und gerade erst gemerkt hatten, dass die Welt nicht verpflichtet war, ihre Fehler feierlich zu sortieren.
+
+"Auf meinen", sagte Rugar.
+
+Albrecht griff an den Griff seines Schwertes.
+
+Der Hof hielt den Atem an.
+
+"Und auf keinen", sagte Taron schnell. "Weil vielleicht einmal reicht, wenn Leute aufhoeren, nur wegen Befehlen etwas zu tun."
+
+Malchior tauchte hinter Albrecht auf, hustend, die Abschrift an die Brust gepresst. "Majestaet, Vorsicht. Dies kann eine List sein."
+
+Ansel war nicht da, um ihm zu widersprechen. Also tat Elva es.
+
+"Alles kann eine List sein, wenn man feige genug liest."
+
+Malchior sah sie an, als habe eine Pfanne gesprochen.
+
+"Das Kuechenmaedchen", sagte er.
+
+"Elva", sagte Taron.
+
+Es war nur ihr Name. Aber er blieb im Hof stehen.
+
+Rugar senkte den Hammer weiter. Diesmal sahen es alle.
+
+"Ich hoerte eine Stimme", sagte er. "Sie klang wie Schutz. Sie machte aus jeder Angst einen Befehl. Wenn ich heute noch Koenig bin, dann beginne ich damit, diesem Befehl zu widersprechen."
+
+Varga starrte ihn an.
+
+Brokk schloss die Augen.
+
+Albrecht sagte nichts.
+
+Und weil er nichts sagte, senkte ein zweiter Bogenschuetze auf der Mauer den Bogen.

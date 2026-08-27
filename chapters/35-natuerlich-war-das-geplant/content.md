@@ -224,6 +224,128 @@ Taron dachte nach. "Ja. Nein. Spaeter."
 
 Elva nickte, als sei das eine vollstaendige Antwort. Vielleicht war sie es heute.
 
+Unter ihnen trat Merlan aus dem Saal, eine Rolle unter dem Arm und Tinte an der Wange. Er sah hinauf, entdeckte Taron und winkte mit der Rolle.
+
+Das wirkte bedrohlich.
+
+"Er hat eine Liste", sagte Taron.
+
+"Merlan hat immer eine Liste", sagte Elva.
+
+"Diese ist fuer mich."
+
+"Dann lauf."
+
+"Das waere wuerdelos."
+
+"Du sitzt auf einer Mauer und fuerchtest Papier."
+
+"Also schnell?"
+
+Sie gingen nicht schnell genug. Merlan erreichte die Treppe mit der Zielstrebigkeit eines Mannes, der seit Jahren auf den Augenblick gewartet hatte, eine unangenehme Wahrheit ordentlich vorzutragen.
+
+"Taron", sagte er. "Nur eine kurze Frage."
+
+Der Erzaehler sagte: "Flieh. Dieser Satz ist eine Falle mit Tintenrand."
+
+"Was?", fragte Taron.
+
+Merlan rollte das Papier auf. Es war keine Liste. Es war schlimmer. Eine Abschrift der drei Schluesselzeichen, verbunden durch Linien, Notizen und sehr kleine Korrekturen.
+
+"Theoretisch", sagte Merlan, "waere es moeglich, mit den Schluesseln auch deine Bindung zu loesen."
+
+Elva wurde still.
+
+Taron sah auf das Papier. Dann in sich hinein.
+
+"Ich weiss."
+
+Merlan sah ueberrascht aus. Gelehrte waren oft enttaeuscht, wenn andere ihre dramatischen Erklaerungen vorwegnahmen. Es nahm ihnen die Moeglichkeit, mit dem Finger auf eine Stelle zu tippen.
+
+"Ah", sagte er.
+
+"Ah?", fragte Elva.
+
+"Ich hatte mit mehr Unwissen gerechnet."
+
+"Das passiert vielen Leuten bei Taron", sagte der Erzaehler.
+
+Taron verzog das Gesicht. "Er hat gerade etwas gesagt."
+
+"War es hilfreich?"
+
+"Nein."
+
+"Dann zaehlt es nicht."
+
+Merlan betrachtete Taron vorsichtig. "Du musst darueber nicht heute entscheiden."
+
+"Doch", sagte Taron.
+
+Elva sah ihn an.
+
+Taron schluckte. "Nicht endgueltig. Aber genug fuer heute. Wenn es moeglich ist, ihn zu befreien, dann ist es auch moeglich, dabei denselben Fehler zu machen wie Rugar."
+
+Der Erzaehler sprach sehr leise: "Taron."
+
+"Nein", sagte Taron in Gedanken. "Du hast mir oft genug Dinge nicht gesagt, weil der Zeitpunkt angeblich falsch war. Jetzt ist meiner."
+
+Merlan hoerte nur das aeussere Schweigen und deutete es falsch, was unter Gelehrten als normale Arbeitsbedingung galt.
+
+"Eine Bindung ist nicht zwingend Unterdrueckung", sagte er. "Aber sie ist auch nicht automatisch Schutz. Alte Texte verwenden dafuer dasselbe Wort, wenn die Schreiber muede oder politisch abhaengig waren."
+
+"Was waere noetig?", fragte Elva.
+
+Merlan zog die Brauen zusammen. "Alle drei Schluessel. Zustimmung des Gebundenen. Vermutlich Zustimmung des Traegers. Und ein Ort, an dem der Eid zuerst gesprochen oder erneuert wurde."
+
+"Also hier", sagte Taron.
+
+"Oder tiefer."
+
+Alle drei sahen kurz zum Boden.
+
+Der Boden sah unschuldig aus, was Boeden in alten Burgen gern taten, wenn unter ihnen etwas lag.
+
+"Nicht heute", sagte Taron.
+
+Der Erzaehler antwortete nicht.
+
+"Ich verweigere dir nicht Freiheit", sagte Taron in Gedanken. "Ich oeffne nur nicht noch eine Tuer, waehrend wir die letzte noch nicht einmal beschriftet haben."
+
+"Das ist", sagte der Erzaehler nach einer Weile, "eine aergerlich vernuenftige Form von Misstrauen."
+
+"Danke."
+
+"Es war kein Lob."
+
+"Heute nehme ich, was ich bekomme."
+
+Merlan rollte das Papier wieder ein. "Dann verwahre ich diese Notiz getrennt."
+
+Elva nahm ihm die Rolle ab.
+
+Merlan blinzelte. "Ich meinte in meinem Arbeitskasten."
+
+"Und ich meine in Martas Speisekammer, hinter den Bohnen. Da sucht niemand aus Versehen nach Weltentscheidungen."
+
+"Bohnen sind feuchtigkeitsgefaehrdend."
+
+"Dann wickel sie besser ein."
+
+Der Erzaehler sagte: "Die Zukunft der alten Magie liegt hinter Huelsenfruechten. Endlich Fortschritt."
+
+Merlan sah Taron misstrauisch an. "Hat er wieder kommentiert?"
+
+"Ja."
+
+"War es sachlich?"
+
+"Auf seine Art."
+
+"Dann schreibe ich es nicht auf."
+
+Das war vielleicht der groesste wissenschaftliche Fortschritt des Tages.
+
 Taron zog den Pergamentstreifen aus seinem Mantel.
 
 Trau der Stimme. Er war mein Freund.
@@ -247,6 +369,86 @@ Taron sah ueber den Hof, ueber Menschen und Zwerge, ueber Suppe, Rauch, Verwunde
 Taron steckte den Pergamentstreifen zurueck in die geheime Tasche seines Mantels.
 
 "Dann bist du noch du."
+
+Elva sagte es, als waere das kein Trost, sondern eine Feststellung, die man bei Bedarf gegen andere Leute einsetzen konnte. Taron merkte, dass ihm diese Art von Trost lieber war. Er hatte genug von Saetzen, die ihn gross machen wollten. Gross war unbequem, auffaellig und wurde gern mit Pfeilen beantwortet.
+
+"Ich weiss nicht, ob das reicht", sagte er.
+
+"Tut es nie."
+
+"Das ist nicht sehr hilfreich."
+
+"Doch. Wenn es reichen wuerde, wuerdest du aufhoeren."
+
+Taron sah sie an. "Du klingst wie jemand, der heimlich sehr weise ist."
+
+"Ich bin Kueche. Wir nennen es Erfahrung, damit uns niemand Aufgaben mit Krone gibt."
+
+Der Erzaehler sagte: "Eine verpasste Staatsform."
+
+"Er kommentiert dich", sagte Taron.
+
+Elva schnaubte. "Dann soll er lernen, Kartoffeln zu schaelen."
+
+Der Erzaehler schwieg einen winzigen Moment.
+
+"Ich ziehe meine Bemerkung teilweise zurueck."
+
+Taron lachte. Diesmal tat es weh, aber nicht falsch.
+
+Unten im Hof wurde ein Tisch vor den Rittersaal getragen. Nicht fuer ein Fest. Fuer Karten. Das war eine andere Art von schlechter Nachricht. Karten bedeuteten, dass die Welt groesser war als die Stelle, an der man gerade ueberlebt hatte. Auf der groessten Karte lagen kleine Steine: Waldkirch, Ellingen, Karndorn, Riedwacht, Abendriss, die Silberwacht-Hoehen, der Grenzbach, ein leerer Pass im Osten, den Taron bisher fuer ein dekoratives Kartenproblem gehalten hatte.
+
+Rugar stand vor der Karte und stuetzte sich auf Brokk. Albrecht stand gegenueber. Zwischen ihnen lag der Osten.
+
+"Da ist er hin", sagte Taron leise.
+
+Der Erzaehler antwortete nicht sofort.
+
+"Vielleicht."
+
+"Vielleicht?"
+
+"Der andere war lange gebunden. Freiheit macht nicht sofort klug. Nur gefaehrlich."
+
+"Das beruhigt mich nicht."
+
+"Es war auch nicht als Beruhigung gedacht. Ich uebe Ehrlichkeit in kleinen, unattraktiven Portionen."
+
+Taron lehnte die Stirn gegen den Mauerstein. "Warum kann nie jemand nach so etwas einfach verschwinden und Gaerten anlegen?"
+
+"Einige tun es."
+
+"Wirklich?"
+
+"Ja. Von ihnen handeln selten Geschichten, was ihnen vermutlich recht ist."
+
+Taron sah auf die Karte. Ein Schreiber markierte Orte, an denen in den letzten Monaten Berichte von seltsamen Ratgebern, stillen Glocken, verschwundenen Grenzsteinen und Koenigen mit ploetzlich sehr klaren Plaenen gekommen waren. Jeder Bericht fuer sich klang nach Geruecht. Zusammen sahen sie aus wie eine Hand, die ueber die Landkarte griff.
+
+Ansel beugte sich ueber den Tisch und schob einen Stein zwei Fingerbreit nach Norden.
+
+Albrecht sagte etwas. Ansel antwortete. Rugar lachte einmal trocken, dann brach das Lachen in Husten ab. Brokk reichte ihm Wasser.
+
+Der Frieden hatte noch nicht einmal richtig angefangen und sah bereits nach Arbeit aus. Taron fand das unhoeflich, aber glaubwuerdig.
+
+"Sie werden dich rufen", sagte Elva.
+
+"Ich weiss."
+
+"Wirst du gehen?"
+
+Taron wollte Nein sagen. Sehr. Ein sauberes, festes Nein, das sich in eine Decke wickelte und irgendwo einschlief. Er dachte an Marta, an Brot, an den Stall, an die Moeglichkeit, eines Tages aufzuwachen, ohne dass jemand ihn mit Prophezeiungen bewarf.
+
+Dann dachte er an den Holzring im Hof, an Jost ohne Speer, an den jungen Zwerg mit dem Loeffel, an den Hunger vor Brot und Wasser. An die Stimme, die bleiben wollte und frei sein konnte.
+
+"Nicht heute", sagte er.
+
+Elva nickte. "Das war nicht meine Frage."
+
+"Ich weiss."
+
+"Ich nehme es fuer heute."
+
+Das war grosszuegig. Elva tat Grosszuegigkeit gern so, als sei sie nur eine vorlaeufige Arbeitsvereinbarung. Vielleicht war sie dadurch haltbarer.
 
 Der Erzaehler sagte nichts.
 

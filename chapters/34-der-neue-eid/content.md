@@ -220,6 +220,92 @@ Keine Lichter saeumten den Himmel. Keine Stimme erklaerte die Welt fuer geheilt.
 
 Also arbeiteten sie.
 
+Zuerst scheiterten sie daran, wer arbeiten durfte.
+
+Ein Waldkircher Schmied wollte keinen Zwerg an seine Esse lassen. Der Zwerg, der neben ihm stand, hatte eine Schulterwunde, eine verbrannte Augenbraue und die beleidigte Ruhe eines Fachmanns, dem ein Laie gerade erklaerte, Feuer sei warm.
+
+"Meine Werkzeuge", sagte der Schmied.
+
+"Schlechte Werkzeuge", sagte der Zwerg.
+
+"Was?"
+
+"Der Hammer ist falsch gewichtet."
+
+Der Schmied griff nach dem Hammer, als muesse er ihn vor Verleumdung schuetzen. "Der Hammer gehoerte meinem Vater."
+
+"Dann war dein Vater staerker als klug."
+
+Fuenf Menschen richteten sich auf. Vier Zwerge auch. Der Waffenstillstand bekam an dieser Stelle eine sehr kleine, sehr dumme Probe.
+
+Marta stellte einen Eimer zwischen sie.
+
+"Wer streitet, holt Wasser."
+
+"Frau Marta", sagte der Schmied, "das ist meine Esse."
+
+"Und das ist mein Eimer."
+
+Es war schwer zu sagen, warum dieses Argument gewann. Vielleicht, weil Marta ihn hielt. Vielleicht, weil niemand mehr die Kraft hatte, gegen Wasserlogik zu kaempfen. Der Schmied nahm den Eimer. Der Zwerg nahm, nach einem kurzen Blick auf Marta, den zweiten.
+
+Der Erzaehler sagte leise in Tarons Kopf: "Diplomatie ist oft nur die Kunst, den richtigen Eimer zur richtigen Zeit hinzustellen."
+
+Taron, der am Rand stand und eine Liste von Verletzten hielt, nickte. "Schreib das nicht in einen Vertrag."
+
+"Leider schreiben Menschen die brauchbarsten Regeln selten auf."
+
+Im Hof entstanden Zonen, ohne dass jemand sie geplant hatte. Dort, wo die Sonne noch ein wenig Waerme gab, lagen Verwundete. Unter dem Laubengang sass Merlan mit Ansel und vier Leuten, die lesen konnten und deshalb sofort in Verwaltungsgefahr gerieten. Neben dem Brunnen wurden Waffen gesammelt. Am Tor standen Oswin und Brokk, weil beide Seiten einem eigenen Verräter eher glaubten, wenn ein fremder neben ihm stand.
+
+Malchior wollte helfen.
+
+Das war fuer alle schwierig.
+
+Er kam mit seiner grauen Abschrift zu Merlan, legte sie auf den Tisch und sagte: "Ich stelle meine Kenntnis der Texte zur Verfuegung."
+
+Ansel sah ihn ueber den Rand ihrer Brille an. "Ohne Deutungshoheit?"
+
+Malchior blinzelte.
+
+"Das heisst", sagte Merlan freundlich, "Ihr duerft lesen, ohne recht zu haben."
+
+"Das ist eine sehr niedrige Aufgabe fuer meinen Stand."
+
+"Nein", sagte Ansel. "Eine sehr hohe. Ihr seid nur ungeuebt."
+
+Taron erwartete, dass Malchior ging. Stattdessen setzte er sich. Langsam, steif, als nehme er auf einer Bank Platz, die eigens zur Demuetigung geweiht worden war. Dann zog er ein Messer, schnitt den Weinfleck aus der Abschrift heraus und legte das kleine braune Stueck auf den Tisch.
+
+Alle sahen ihn an.
+
+"Damit niemand ihn uebersieht", sagte Malchior.
+
+Es war keine Entschuldigung. Noch nicht. Aber es war ein Loch im Papier, und manchmal begann Wahrheit mit dem Mut, das Loch nicht wieder zu schmuecken.
+
+Ansel nickte. "Gut. Dann schreiben wir daneben, was fehlt."
+
+"Wir wissen es nicht genau."
+
+"Eben."
+
+Merlan laechelte, sehr klein. Ein Gelehrter, der endlich jemanden dazu gebracht hatte, Unwissen ordentlich zu dokumentieren, konnte den Tag nicht voellig verloren nennen.
+
+Taron schrieb Namen, bis seine Finger krampften.
+
+Menschennamen. Zwergennamen. Namen, die er falsch buchstabierte und dann von jemandem verbessern liess, der ihm dabei ins Gesicht sah, als sei falsche Schreibweise eine zweite Verwundung. Vielleicht war sie das. Ein Name war das Mindeste, was man jemandem schulden konnte, wenn man schon keine heile Welt liefern konnte.
+
+Ein Zwerg sagte: "Mein Bruder heisst Dharim, mit hartem H."
+
+Taron starrte auf das Blatt.
+
+"Wie schreibt man ein hartes H?"
+
+Der Zwerg dachte nach.
+
+"Mit Respekt."
+
+"Das hilft der Feder wenig."
+
+Der Zwerg nahm ihm die Feder ab und schrieb selbst. Danach gab er sie zurueck, ohne Danke zu sagen. Taron nahm das als Fortschritt. Danke war ein grosses Wort, und beide Seiten hatten heute schon genug grosse Woerter missbraucht.
+
 Das war unromantisch und deshalb glaubwuerdig. Zwerge trugen menschliche Verwundete in die Halle, weil sie staerker waren und weil Verwundete schwer blieben, egal auf welcher Seite sie gefallen waren. Menschen holten Wasser fuer Zwerge, erst widerwillig, dann schneller, als klar wurde, dass Durst keine politischen Vorlieben hatte. Oswin stellte zwei junge Ritter ab, die Waffen einzusammeln, und Brokk stellte zwei Zwerge daneben, damit niemand aus Sammlung Pluenderung machte.
 
 Merlan schrieb Namen auf.
@@ -329,3 +415,101 @@ Taron stand unter dem Turm und sah hinauf.
 "Nein."
 
 Das Wort gefiel ihm in ihrem Mund besser als in fast jedem anderen.
+
+Spaet in der Nacht gingen Taron, Elva, Brokk, Oswin, Merlan, Ansel und beide Koenige noch einmal zum offenen Tor hinab. Nicht in den Eidgrund. Nur bis zur Schwelle. Das war weit genug.
+
+Der Hunger lag dort, wo er sich niedergelegt hatte. Seine Zeichen glommen schwach. Vor ihm lag Martas Brotstueck, unberuehrt. Daneben hatte jemand eine Schale Wasser gestellt. Taron wusste nicht wer. Vielleicht Marta. Vielleicht ein Zwerg. Vielleicht ein Mensch, der morgen behaupten wuerde, er sei es nicht gewesen.
+
+Rugar blieb stehen. "Ich habe ihn rufen lassen."
+
+Albrecht sah ihn an.
+
+"In meinen Traeumen", sagte Rugar. "Niemand sagte, unter Waldkirch liege ein alter Eid, der mir gehoere, wenn ich nur mutig genug sei, ihn einzufordern. Ich dachte, ich wuerde zurueckholen, was den Zwergen genommen wurde."
+
+"Und ich dachte", sagte Albrecht langsam, "ich wuerde bewahren, was Menschen schuetzt."
+
+Ansel machte ein trockenes Geraeusch. Es war kein Husten.
+
+Albrecht sah zu ihr. "Sprecht."
+
+"Ich wollte nur pruefen, ob Eure Majestaeten merken, dass beide Saetze gleich bequem sind."
+
+Merlan sah besorgt und begeistert zugleich aus. "Ansel."
+
+"Was? Wir haben wenig Zeit. Alter schuetzt vor Hofetikette, wenn man ihn richtig benutzt."
+
+Der Erzaehler sagte: "Eine Frau nach meinem Herzen, sofern man bei mir von Organbesitz sprechen moechte."
+
+Taron biss sich auf die Lippe, um nicht zu grinsen.
+
+Rugar senkte den Blick. "Ich habe Befehle gegeben."
+
+"Ja", sagte Brokk.
+
+"Viele davon waren meine."
+
+"Ja."
+
+"Nicht alle."
+
+"Nein."
+
+Rugar sah ihn an. "Das macht es nicht leichter."
+
+"Soll es auch nicht."
+
+Zwischen den beiden stand eine Freundschaft, die nicht heil war, aber auch nicht tot. Taron dachte, dass manche Dinge nach einem Krieg nicht repariert wurden. Sie wurden getragen, und vielleicht wurde man dabei so stark, dass man eines Tages nicht mehr darunter zusammenbrach.
+
+Albrecht trat naeher an die Schwelle. Der Hunger hob den Kopf. Alle Waechter spannten sich. Elva legte eine Hand an ihr Messer. Marta war nicht dabei, und Taron fand das unfair, weil dieser Augenblick eindeutig eine Person mit Suppenkelle gebraucht haette.
+
+Albrecht kniete.
+
+Nicht tief. Nicht schoen. Aber ein Koenig kniete vor einem Wesen, das sein Schloss ein Monster genannt hatte.
+
+"Waldkirch hat dich vergessen", sagte Albrecht.
+
+Der Hunger knurrte leise.
+
+"Nein", sagte Taron.
+
+Alle sahen ihn an.
+
+Er schluckte. "Vergessen klingt, als waere es passiert. Ihr habt ihn weggeschlossen. Eure Vaeter auch. Vielleicht deren Vaeter. Irgendwann wusste keiner mehr, warum. Aber die Tuer blieb zu. Das ist nicht Vergessen. Das ist eine Gewohnheit mit Schloss."
+
+Albrechts Gesicht wurde hart. Dann muede. Dann aelter.
+
+"Ja", sagte er.
+
+Rugar kniete nicht. Er konnte kaum stehen. Aber er senkte den Hammer und legte ihn auf den Stein.
+
+"Karndorn hat gesucht, was ihm nicht allein gehoerte", sagte er.
+
+Der Hunger sah auf den Hammer. Das Zeichen unter seiner Haut antwortete, matt und schmerzhaft.
+
+Elva trat vor und legte neben das Brot einen kleinen Holzloeffel, den sie irgendwo im Hof gefunden hatte. Taron erkannte ihn nicht. Vielleicht gehoerte er dem jungen Zwerg aus Rugars Reihe. Vielleicht einem Waldkircher Kind. Vielleicht war Herkunft gerade weniger wichtig als Gebrauch.
+
+"Schutz heisst nicht einsperren", sagte sie.
+
+Der Schutzschluessel gab einen leisen Ton.
+
+Merlan zog sofort ein Notizblatt hervor.
+
+"Nicht jetzt", sagte Ansel.
+
+"Aber-"
+
+"Erst sehen. Dann schreiben."
+
+Merlan gehorchte, sichtbar verletzt und geistig bereichert.
+
+Der Hunger senkte den Kopf auf die Vorderarme. Seine Zeichen glommen ruhiger.
+
+Kein Eid wurde gesprochen. Noch nicht. Aber drei Dinge lagen vor ihm: Brot, Wasser, Werkzeug. Nahrung, Leben, Arbeit. Taron fand, dass alte Maechte mit schlechter Beschriftung immerhin klare Geschenke verdienten.
+
+Der Erzaehler sagte: "Das ist keine Loesung."
+
+"Ich weiss."
+
+"Es ist besser als eine."
+
+Taron verstand den Satz nicht ganz. Er liess ihn stehen. Manche Saetze brauchten Platz, bevor sie nuetzlich wurden.

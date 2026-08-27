@@ -130,6 +130,60 @@ Es war keine plumpe Luege.
 
 Das war seine Staerke.
 
+Er nannte Orte, die Taron nur aus Karten kannte: die verbrannten Hoehen von Silberwacht, die leeren Muehlen am Grenzbach, das alte Handelslager bei Eichenfurt, wo Menschen und Zwerge frueher Salz gegen Eisen getauscht hatten, bis irgendjemand eine Zollmarke fuer wichtiger hielt als volle Maegen. Er sprach von Karawanen, die seit Jahren nicht mehr kamen, von Schaechten, die Wasser statt Erz gaben, von Kindern in Karndorn, die Menschen nur noch aus Warnliedern kannten.
+
+Die Menschen auf der Mauer hoerten zu, obwohl sie es nicht wollten.
+
+Das war gefaehrlich.
+
+Ein Feind, der nur drohte, machte Mauern staerker. Ein Feind, der die richtige Not nannte, machte sie poroes.
+
+"Er sagt die Wahrheit", murmelte ein Soldat.
+
+Greve fuhr herum. "Still."
+
+"Aber er sagt sie."
+
+Brokk sah zu dem Soldaten. "Ja."
+
+Alle in der Naehe sahen ihn an.
+
+Brokk liess den Blick auf Rugars Reihen ruhen. "Er sagt Wahrheit, die er gefangen genommen hat. Das ist nicht dasselbe."
+
+Der Soldat verstand nicht sofort. Taron schon. Oder er hoffte es. Rugar nahm wirkliche Not und stellte sie in den Dienst einer falschen Loesung. Das war ordentlicher als Luegen und deshalb schwerer zu erschlagen.
+
+Der Erzaehler sagte: "Die gefaehrlichsten Saetze sind selten erfunden. Erfundenes stolpert. Wahrheiten marschieren."
+
+Taron wiederholte es nicht. Es haette zu sehr nach einer Rede geklungen, und Reden waren auf dieser Mauer bereits uebervertreten.
+
+Unten trat ein Zwerg vor, kaum aelter als Taron. Sein Helm sass schief, und an seinem Guertel hing ein Holzloeffel. Kein Zierloeffel, kein Zeichen einer tapferen Sippe, nur ein Holzloeffel, wie ihn jemand mitnahm, der nicht wusste, ob das Heer ihn ausreichend fuettern wuerde.
+
+Jost, der inzwischen Wasserkruege trug, blieb hinter Taron stehen und sah hinunter.
+
+"Der sieht aus wie mein Bruder", sagte er.
+
+"Du hast keinen Bruder", sagte ein anderer Junge.
+
+"Dann eben wie jemand, der einen haette sein koennen."
+
+Dieser Satz blieb auf der Mauer liegen, wo niemand Zeit hatte, ihn aufzuheben.
+
+Rugar hob die Stimme. "Ich kenne euren Hunger."
+
+Marta, die unten im Hof gerade einen Wassereimer weitergab, rief so laut hinauf, dass mehrere Soldaten zusammenzuckten: "Dann soll er aufhoeren, ihn fuer sich arbeiten zu lassen!"
+
+Eine erstaunliche Anzahl Menschen nickte. Einige taten es hastig nicht mehr, als Greve hinsah.
+
+Taron musste trotz allem grinsen.
+
+"Marta gegen Koenig Rugar", murmelte er. "Ich setze auf Marta."
+
+"Eine vernuenftige Wette", sagte Oswin.
+
+Der Erzaehler sagte: "Koenigreiche werden zu selten von Backstuben korrigiert. Das erklaert die meisten Koenigreiche."
+
+Rugar hoerte Marta vermutlich nicht. Oder er hoerte sie und hielt sie fuer unwichtig. Koenige machten diesen Fehler gern bei Leuten, die Essen verteilten. Spaeter wunderten sie sich ueber Rebellionen mit sehr praktischer Logistik.
+
 Taron spuerte, wie der Menschenschluessel gegen seine Brust drueckte. Nicht warm, nicht kalt, sondern aufmerksam. Als wolle er wissen, ob Taron antwortete.
 
 "Sag nichts", fluesterte der Erzaehler.
@@ -237,6 +291,98 @@ Die Schlacht begann unter ihnen.
 Albrecht gab Befehle. Greve wiederholte sie lauter. Malchior betete, aber sein Blick ging immer wieder zu Taron, als suche er an ihm die Bestaetigung, dass Opfer einen Sinn hatten, wenn man sie nur lange genug so nannte.
 
 Taron wollte ihm die Abschrift aus der Hand schlagen.
+
+Stattdessen griff er nach Jost, der mit einem Eimer die falsche Treppe hinaufwollte.
+
+"Nicht dort."
+
+"Greve sagte zur Ostmauer."
+
+"Das ist die Nordtreppe."
+
+Jost sah sich um, als haette die Burg ihre Himmelsrichtungen heimlich vertauscht. In gewisser Weise hatte sie das. Angst machte aus jedem Ort den falschen.
+
+Taron nahm ihm einen Eimer ab. "Ich bringe dich."
+
+"Du musst doch..."
+
+"Ich muss offenbar vieles. Wasser gehoert dazu."
+
+Sie rannten ein Stueck ueber den Wehrgang. Ein Bolzen schlug in die Holzbruestung. Jost stolperte. Taron packte ihn am Kragen, nicht elegant, aber wirkungsvoll.
+
+"Nicht fallen", sagte Taron.
+
+"Das war mein Plan!"
+
+"Dein Plan hatte Luecken."
+
+Der Erzaehler sagte: "Endlich erkennt Taron fremde Planungsqualitaet. Ein bedeutender Schritt in Richtung Selbsthass mit Aussicht."
+
+"Nicht jetzt", murmelte Taron.
+
+"Gerade jetzt. Spaeter tun alle so, als haetten sie Charakter gehabt."
+
+An der Ostmauer lagen zwei Verwundete. Einer war ein Waldkircher Soldat, der andere ein Zwerg, der beim Rueckzug gegen die Mauer gedrueckt worden war und nun zwischen zwei Steinhaufen kauerte, zu verletzt, um zu fliehen, zu feindlich, um Hilfe zu erwarten.
+
+Jost erstarrte.
+
+"Der ist..."
+
+"Durstig", sagte Taron.
+
+"Aber..."
+
+Taron gab dem Waldkircher zuerst Wasser. Dann dem Zwerg.
+
+Der Zwerg sah ihn an, als sei der Becher eine Falle mit Henkel.
+
+"Trink", sagte Taron.
+
+"Warum?"
+
+"Weil ich keine Zeit habe, dir eine bessere Moral zu erklaeren."
+
+Der Zwerg trank.
+
+Jost sah zu. Sein Gesicht veraenderte sich ein wenig. Nicht zu Frieden. Zu einer neuen Unsicherheit. Taron fand das besser. Alte Sicherheiten hatten heute genug Schaden angerichtet.
+
+Als sie zurueckliefen, begann unten ein Rammbock zu rollen.
+
+Er war kleiner, als Taron erwartet hatte. Keine riesige Bestie aus Eisen, sondern ein schwerer Balken auf niedrigen Raedern, mit nassen Fellen bedeckt. Zwerge schoben ihn langsam vor. Nicht bruellend. Nicht wild. Arbeitend.
+
+Greve rief nach Pech.
+
+Brokk rief: "Kein Pech!"
+
+Greve fuhr herum. "Sie brechen das Tor!"
+
+"Das Seitentor ist alt. Pech laeuft in den Hof. Eure eigenen Leute brennen mit."
+
+"Und was schlagt Ihr vor?"
+
+Brokk zeigte auf die Sandkoerbe. "Ketten verkeilen. Tor schraeg halten. Lasst ihn schlagen, aber nicht oeffnen."
+
+Greve sah zu Oswin.
+
+Oswin sagte: "Er hat recht."
+
+"Das ist unertraeglich", murmelte Greve.
+
+"Krieg selten komfortabel", sagte Brokk.
+
+Taron merkte, dass Brokks Satz nicht ganz richtig Deutsch war und trotzdem mehr Sinn hatte als die meisten Befehle des Tages.
+
+Greve gab den Befehl.
+
+Menschen schleppten Sand. Zwerge unten schoben Holz. Oben half Brokk, ein Tor gegen sein eigenes Volk zu halten, damit sein eigenes Volk nicht in brennendes Pech lief. Oswin stand neben ihm und hielt eine Kette, die ihm die Handflaeche aufriss. Keiner von beiden sah heldisch aus. Beide sahen notwendig aus.
+
+Der Rammbock traf.
+
+Das Tor stoehnte.
+
+Waldkirch hielt.
+
+Noch.
 
 Stattdessen rannte er hinter Oswin zur Treppe, weil Wut selten nuetzlich war, wenn sie oben auf einer Mauer blieb.
 

@@ -333,3 +333,203 @@ Der Erzaehler antwortete nicht.
 Der naechste Schatten hob die Klinge gegen Elva.
 
 Taron wusste in diesem Augenblick, dass seine Bitte zu spaet gekommen war.
+
+Der andere wusste es auch.
+
+Er laechelte mit Rugars Mund, und dieses Laecheln war fast freundlich. "Da ist er. Dein Schutz. Er wartet nur darauf, dass du schwach genug wirst."
+
+Taron wollte sagen, dass das nicht stimmte. Aber ein Teil davon stimmte. Das war das Gemeine. Der Erzaehler hatte eingegriffen, wenn Taron fiel, wenn Taron starb, wenn Taron keine Wahl mehr hatte. Schutz kam oft erst, wenn Zustimmung unter Truemmern lag.
+
+"Frag ihn", sagte der andere. "Frag deinen Freund, wie oft er dich gerettet haette, wenn du vorher Nein gesagt haettest."
+
+Elva hob ihr Messer, obwohl die Schattenklinge laenger war als ihr ganzer Arm. "Taron."
+
+Nur sein Name. Kein Befehl.
+
+Der Schutzschluessel in ihrer Naehe leuchtete nicht hell. Er wurde klar. Das war ein Unterschied, den Taron nicht haette erklaeren koennen, aber sofort verstand. Helligkeit konnte blenden. Klarheit zeigte Kanten.
+
+"Ich frage ihn spaeter", sagte Taron.
+
+Der andere neigte Rugars Kopf. "Spaeter ist der Lieblingsort der Feigen."
+
+"Nein", sagte Oswin und stemmte sich gegen den Schatten vor ihm. "Spaeter ist, wofuer man kaempft."
+
+Brokk schlug den zweiten Schatten zurueck. "Und wofuer man nicht alles jetzt verbrennt."
+
+Merlan, der noch immer Namen an den Zeugenplaetzen las, hob die Stimme. "Sila von der Suedkueche. Durn Hammerlos. Ebrecht ohne Siegel. Mara..." Er stockte. "Mara, die den Hunger band."
+
+Der Schatten vor Elva zuckte.
+
+Der Hunger tief ueber ihnen bruellte, und diesmal war es kein Tierlaut. Es war Antwort.
+
+Taron sah die schwarze Gestalt, die einmal vielleicht eine Binderin gewesen war. Er sah Elva mit dem Messer. Er sah Rugars Gesicht. Er spuerte den Erzaehler an der Grenze.
+
+"Kein Schutz ohne Zustimmung", sagte er wieder.
+
+Diesmal sagte er es nicht zum Eidstein.
+
+Er sagte es zu seiner eigenen Stimme.
+
+"Hoerst du?"
+
+Der Erzaehler antwortete nicht.
+
+Aber die Kaelte in Taron veraenderte sich. Sie wurde nicht waermer. Sie bekam Richtung.
+
+Der andere spuerte es.
+
+Sein Blick, Rugars Blick, die Kammer selbst, alles wandte sich auf Taron, als habe irgendwo ein kleines Schloss falsch geklickt. Taron haette diesen Augenblick gern verpasst. Er hatte inzwischen eine lange Liste von Augenblicken, die ohne seine Teilnahme wahrscheinlich eleganter gewesen waeren.
+
+"Da", sagte der andere.
+
+Nur dieses Wort.
+
+Die Schattenkaempfer hielten inne. Oswin nutzte es sofort und trat zurueck, weil erfahrene Ritter wussten, dass ein Wunder auch einfach die Pause vor einem besseren Schlag sein konnte. Brokk blieb zwischen Rugar und dem Eidstein, obwohl der Eid ihn sichtbar nach unten drueckte. Elva hielt die Glocke fest an die Brust.
+
+"Dein Hueter erinnert sich", sagte der andere.
+
+Taron spuerte die Stimme in sich wie eine Hand an einer geschlossenen Tuer. Nicht draussen. Nicht frei. Dahinter.
+
+"Er erinnert sich an Arven", sagte der andere. "An den Stall. An ein Kind, das in Gewittern nicht weinte, weil eine Stimme ihm erklaerte, Donner sei nur ein himmlischer Lagerarbeiter mit schlechter Laune."
+
+Taron wurde kalt.
+
+Das hatte niemand gewusst.
+
+Nicht Elva. Nicht Marta. Nicht einmal Taron hatte es behalten, bis die Worte kamen. Dann war er wieder klein, im Stroh, mit den Haenden ueber den Ohren, und die Stimme sagte ihm, die Sterne seien Loecher in schlecht verarbeitetem Nachtstoff, aber der Donner sei weniger gefaehrlich als die Ziege im linken Verschlag. Die Ziege hiess Gunda und war tatsaechlich schlimmer gewesen.
+
+Der Erzaehler blieb still.
+
+"Er hat dich geliebt", sagte der andere. "Das war sein Fehler. Schutz, der liebt, wird Besitz. Besitz, der Angst hat, wird Kette. Ich habe nur frueher verstanden, was er noch leugnet."
+
+"Nein", sagte Taron.
+
+Das Wort klang klein.
+
+Der andere laechelte. "Hat er dich gefragt, bevor er dich rettete?"
+
+Taron sah den Dungeon. Den Augenblick, in dem er sterben sollte und dann bei Marta erwachte. Keine Wahl. Kein Ja. Nur Rettung, wie ein Sack ueber den Kopf.
+
+"Hat er dich gefragt, bevor er deine Gedanken lenkte? Bevor er schwieg? Bevor er dich vor Wahrheiten stellte, die zu schwer waren, und andere fortnahm, weil er dich fuer zu schwach hielt?"
+
+Elva sagte: "Hoer nicht hin."
+
+"Doch", sagte Taron.
+
+Sie sah ihn erschrocken an.
+
+"Ich muss." Seine Stimme wurde fester. "Wenn ich nur weghoere, gewinnt er spaeter."
+
+Der Erzaehler sagte noch immer nichts. Aber Taron spuerte Schmerz. Nicht seinen eigenen. Oder nicht nur.
+
+Der andere trat naeher. Die schwarzen Linien am Boden folgten ihm. "Ich biete dir Ordnung. Er bietet dir Unsicherheit mit Witzen."
+
+"Die Witze sind wirklich nicht sein staerkstes Argument", sagte Taron.
+
+Der Erzaehler machte in seinem Kopf etwas, das fast ein beleidigtes Zucken war.
+
+Gut.
+
+Noch da.
+
+"Ordnung", sagte der andere, "haette Waldkirch vor Hunger bewahrt. Karndorn vor Angst. Ellingen vor falschem Klang. Arven vor seinem Verrat. Dich vor deiner ganzen laecherlichen Qual."
+
+Taron sah zu Rugar. Unter der fremden Stimme bewegte sich etwas im Gesicht des Zwergenkoenigs. Vielleicht hoerte auch er. Vielleicht war kein Koerper je ganz still, solange ein Name darin geblieben war.
+
+"Du meinst Gehorsam", sagte Taron.
+
+"Gehorsam ist Frieden, wenn die richtige Stimme spricht."
+
+Merlan, der an der Wand sass und versuchte, nicht ohnmaechtig zu werden, hob den Finger. "Historisch unhaltbar."
+
+Alle sahen kurz zu ihm.
+
+Er senkte den Finger wieder. "Entschuldigung. Reflex."
+
+Der Erzaehler fluesterte kaum hoerbar: "Ich haette ihn frueher beleidigen sollen. Es haette Freundschaft werden koennen."
+
+Taron atmete aus. Der Satz war schwach, aber er war da. Die Tuer in ihm blieb geschlossen. Nicht verriegelt. Gehalten.
+
+Der andere verlor einen Hauch Geduld.
+
+"Du bist muede", sagte er. "Lass los."
+
+Taron war muede. Das war ein sehr gut recherchierter Angriff. Seine Arme zitterten, sein Kopf schmerzte, seine Seele, falls vorhanden, hatte vermutlich Beschwerde eingelegt. Er wollte nicht die Welt halten. Er wollte nicht einmal sich selbst halten. Er wollte in Martas Kueche sitzen, Suppe essen und niemanden retten, ausser vielleicht einen Teig vor dem Anbrennen.
+
+Dann sah er Elva.
+
+Sie war auch muede. Sie hielt trotzdem die Glocke und das Messer und seinen Blick. Kein altes Wesen hielt sie aufrecht. Kein Eid schuetzte sie vor Angst. Sie blieb, weil sie blieb.
+
+Das war unverschaemt.
+
+Und wirksam.
+
+"Nein", sagte Taron.
+
+Diesmal war das Wort nicht groesser. Nur genauer.
+
+"Ich will nicht, dass er fuer mich entscheidet", sagte er. "Ich will auch nicht, dass du es tust. Wenn Schutz bedeutet, dass niemand mehr gefragt wird, dann ist Schutz nur ein besser angezogener Ueberfall."
+
+Der Schutzschluessel wurde so hell, dass Elva die Augen zusammenkniff.
+
+Oswin sagte trocken: "Guter Satz. Schlechter Zeitpunkt."
+
+"Ich sammle schlechte Zeitpunkte", sagte Taron.
+
+"Merkt man."
+
+Brokk lachte nicht. Aber sein Mundwinkel bewegte sich, und fuer einen Herzschlag war in der Kammer nicht nur Angst.
+
+Der andere hob Rugars Hand.
+
+"Dann waehle Schmerz."
+
+"Ich waehle gar nicht fuer alle", sagte Taron.
+
+"Doch", sagte der andere. "Das tut ihr immer. Ihr nennt es nur Verantwortung, damit es besser riecht."
+
+Der Satz traf. Weil auch darin Wahrheit lag. Taron wollte keine Macht, aber sein Nein veraenderte trotzdem andere Leben. Sein Zoegern auch. Seine Angst. Sein Mut, falls dieser verwirrende Zustand so hiess.
+
+Der Erzaehler sprach leise: "Ja."
+
+Taron stockte.
+
+"Er hat damit recht?"
+
+"Teilweise. Verantwortung ist der Teil von Wahl, der nach dir weiterlebt."
+
+"Das haettest du frueher sagen koennen."
+
+"Ich war beschaeftigt, charmant zu wirken."
+
+"Maessiger Erfolg."
+
+"Grausames Kind."
+
+Taron spuerte, wie die Stimme sich aufrichtete. Nicht stark. Aber da. Nicht als Herr. Nicht als Lenker. Als jemand, der neben einer Tuer stand und auf Antwort wartete.
+
+"Wenn du eingreifst", dachte Taron, "dann nicht, weil ich schwach genug bin. Sondern weil ich ja sage."
+
+Der Erzaehler antwortete nicht sofort.
+
+"Zu welchem Preis?", fragte die Stimme.
+
+Taron sah Elva, Oswin, Brokk, Merlan, Rugar. Er sah die Schatten. Er sah die Rillen am Eidstein, die drei Schluessel und die leeren Namen.
+
+"Zu keinem Preis, den du allein festlegst."
+
+Der andere wurde sehr still.
+
+Elva hob das Messer. "Taron?"
+
+"Ich bin noch da."
+
+"Gut. Dann beweg dich gleich."
+
+"Wohin?"
+
+"Weg vom Schlag."
+
+Der Schatten schlug nach Elva.
+
+Der Schatten schlug nach Elva.

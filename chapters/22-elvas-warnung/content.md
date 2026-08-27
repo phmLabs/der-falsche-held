@@ -306,6 +306,72 @@ Taron merkte, dass sie beide wieder an Waldkirch dachten. An Marta. An leere Toe
 
 "Kleine Plaene ueberleben manchmal besser."
 
+Elva wurde danach still. Nicht traurig still, eher rechnend. Taron hatte sie inzwischen oft genug beobachtet, um den Unterschied zu erkennen. Traurigkeit senkte ihren Blick. Rechnen machte ihn scharf.
+
+"Was?", fragte er.
+
+"Marta wird schon wissen, dass etwas kommt."
+
+"Weil sie allwissend ist?"
+
+"Weil sie Vorratslisten besser liest als Malchior Prophezeiungen."
+
+Der Erzaehler sagte: "Ein unfairer Vergleich. Vorratslisten enthalten meistens weniger Wein."
+
+Elva ging weiter. "Wenn die Zwerge Waldkirch einschliessen, ist Brot das Erste. Nicht Mauern. Brot. Wer verteilt, entscheidet, wer ruhig bleibt."
+
+Taron dachte an Marta in ihrer Backstube, an ihre Haende, an den Ofen, an die duenne Suppe. Er hatte sie immer als Zuflucht gesehen. Elva sah sie als Versorgungslinie. Beides war wahr. Vielleicht war das der Unterschied zwischen jemandem, der in der Kueche Schutz suchte, und jemandem, der dort gearbeitet hatte.
+
+"Albrecht weiss das", sagte Taron.
+
+"Ja."
+
+"Dann wird er Marta benutzen."
+
+Elva sah ihn an. "Er wird es versuchen."
+
+"Und Marta?"
+
+"Wird so tun, als gehorche sie, und dabei die wichtigere Sache tun."
+
+Taron musste laecheln. "Das klingt nach ihr."
+
+"Ich habe von ihr gelernt."
+
+"Brot zu stehlen?"
+
+"Unter anderem."
+
+Sie sah nicht stolz aus, aber auch nicht beschämt. "In der Kueche gab es eine Regel: Wenn der Saal zu viel nimmt, versteckst du etwas fuer die, die nach dem Saal kommen."
+
+"Das ist Diebstahl."
+
+"Ja."
+
+"Und?"
+
+"Manche Regeln sind fuer Leute geschrieben, die schon gegessen haben."
+
+Der Erzaehler sagte: "Ich werde diese Kueche eines Tages in ein moralphilosophisches Lehrbuch schmuggeln."
+
+"Bitte nicht", sagte Taron. "Malchior koennte es lesen und eine Steuer daraus machen."
+
+Elva lachte kurz. Dann wurde ihr Gesicht wieder ernst. "Wenn wir Waldkirch retten, retten wir nicht nur Mauern. Wir muessen auch verhindern, dass sie danach wieder so tun, als gehoere Rettung denen, die oben sitzen."
+
+Taron sah zu ihr. "Du planst schon die Zeit danach?"
+
+"Jemand muss."
+
+"Ich war noch bei dem Teil, in dem wir vorher nicht sterben."
+
+"Das ist auch auf der Liste."
+
+"Sehr weit oben?"
+
+"Mit Ausrufezeichen."
+
+Der Erzaehler sagte: "Elvas Listen wirken beunruhigend ueberlebensnah."
+
 Der Erzaehler schwieg dazu. Taron nahm es als Zustimmung, weil er fuer etwas anderes zu muede war.
 
 Am Mittag holten sie Merlan ein, der inzwischen aufgegeben hatte, nicht zu lauschen. Er raeusperte sich und sagte: "Persoenliche Wahrheiten veraendern politische Entscheidungen haeufig staerker als umgekehrt."
