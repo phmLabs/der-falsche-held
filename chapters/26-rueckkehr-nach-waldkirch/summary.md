@@ -2,3 +2,5 @@
 - Waldkirch ist hungernder, angespannter und kriegsbereiter als zuvor.
 - Koenig Albrecht sammelt Truppen, weil die Zwerge wieder marschieren.
 - Taron merkt, dass er seine Heimat retten will, obwohl sie ihn geopfert haette.
+- Albrecht laesst die Speicherlisten holen, hoert die tatsaechliche Zahl fuer die Unterstadt und oeffnet den mittleren Speicher gegen Malchiors Widerspruch. Das macht ihn laut Elva nicht gut, sondern brauchbar.
+- Merlan fragt Malchior, ob seine drei geweihten Schreiber nacheinander oder nebeneinander abgeschrieben haben, und laesst die Frage nach dem Original unbeantwortet stehen.

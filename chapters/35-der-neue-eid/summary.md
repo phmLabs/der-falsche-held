@@ -2,3 +2,5 @@
 - Er erkennt seine Fehlleitung und befiehlt den Zwergen, die Waffen fallen zu lassen.
 - Menschen und Zwerge werden in einen bruechigen Waffenstillstand gezwungen.
 - Der neue Eid wird nicht glaenzend geschlossen, sondern muede, hungrig und ehrlich begonnen.
+- Krail wird aufgeloest: Er lebt, sass bei Vargas Wagen und hat nach zwei Stunden Fragen Riedwacht und Eidgrund verraten, was erklaert, warum Varga ab Kapitel 18 immer vor ihnen dort war. Varga hat ihn nicht angeruehrt; Brokk nennt das schlimmer.
+- Broda, die ihn in Kapitel 16 nicht geholt hat, sagt ihm den Vorwurf vollstaendig ins Gesicht und laesst ihn sich dann hinsetzen. Danach wird nie wieder darueber gesprochen: die zwergische Fassung von Verzeihen liegt unter der Bank, wo sie niemand bezeugen muss.

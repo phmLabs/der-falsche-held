@@ -136,6 +136,43 @@ Das war gefährlich.
 
 Ein Feind, der nur drohte, machte Mauern stärker. Ein Feind, der die richtige Not nannte, machte sie porös.
 
+Dann nannte Rugar Zahlen.
+
+Das war der Teil, an dem Taron begriff, wie gut vorbereitet die Rede war. Kein Herrscher nannte Zahlen, um zu drohen; Zahlen waren zu klein für Drohungen. Rugar nannte sie, weil Zahlen bei Leuten wirken, die selbst rechnen müssen.
+
+Vierhundert Sack Korn, sagte er, stünden auf Wagen zwei Meilen hinter ihm. Sechzig Fässer Salzfisch. Zwei Wagen Salz. Er nannte sogar, wie lange das reiche, und er rechnete dabei zu niedrig, was schlimmer war als übertreiben, weil man niedrigen Rechnungen glaubt.
+
+Auf der Mauer wurde es sehr still.
+
+„Er lügt“, sagte Greve.
+
+„Nein“, sagte Brokk.
+
+Greve fuhr herum. „Ihr wisst das?“
+
+„Ich habe die Wagen beladen sehen.“ Brokk sah nicht von den Reihen weg. „Vor elf Tagen. In Karndorn. Aus unseren eigenen Speichern.“
+
+„Dann ist es sein Korn.“
+
+„Es ist das Korn seiner unteren Hallen“, sagte Brokk. „Es sollte den Winter halten. Er hat es auf Wagen gepackt, damit ihr es sehen könnt.“
+
+Elva rechnete schneller als alle anderen auf der Mauer. Taron sah es an ihren Lippen.
+
+„Dann hat Karndorn jetzt weniger als wir“, sagte sie.
+
+„Ja.“
+
+„Und wenn wir nicht aufgeben?“
+
+„Dann muss er die Wagen leer nach Hause bringen“, sagte Brokk, „und den Leuten erklären, warum.“
+
+Taron sah hinunter auf die Wagen, die er von hier nicht sehen konnte, und auf einen König, der seinem eigenen Volk den Winter weggenommen hatte, um eine Mauer weich zu machen.
+
+„Er kann nicht mehr zurück“, sagte Taron.
+
+„Nein“, sagte Brokk. „Deshalb wird heute geschossen.“
+
+
 „Er sagt die Wahrheit“, murmelte ein Soldat.
 
 Greve fuhr herum. „Still.“
@@ -290,6 +327,8 @@ Albrecht gab Befehle. Greve wiederholte sie lauter. Malchior betete, aber sein B
 
 Taron wollte ihm die Abschrift aus der Hand schlagen.
 
+Stattdessen rannte er hinter Oswin zur Treppe, weil Wut selten nützlich war, wenn sie oben auf einer Mauer blieb.
+
 Stattdessen griff er nach Jost, der mit einem Eimer die falsche Treppe hinaufwollte.
 
 „Nicht dort.“
@@ -382,10 +421,6 @@ Waldkirch hielt.
 
 Noch.
 
-Stattdessen rannte er hinter Oswin zur Treppe, weil Wut selten nützlich war, wenn sie oben auf einer Mauer blieb.
-
-Und wie fast alle Schlachten begann sie nicht mit Mut, sondern mit einem Fehler, den niemand mehr einfangen konnte.
-
 Unten im Hof begann Waldkirch sich zu verwandeln. Türen wurden verriegelt, die eben noch offen gewesen waren. Männer, die vor einer Stunde Kornsäcke getragen hatten, trugen Speere. Frauen zogen Kinder in Keller und kamen mit Eimern wieder heraus, weil Feuer keine Rücksicht auf Geschlechterrollen nahm. Marta stand vor der Backstube und verteilte Wasser, als sei die Stadt ein großer, schlecht organisierter Ofen.
 
 Der Hunger unter der Burg brüllte erneut.
@@ -425,6 +460,29 @@ Elva blieb an einem Sack stehen. „Das reicht nicht.“
 „Für eine Woche.“
 
 Der Satz war leise. Er traf trotzdem.
+
+„Brokk hat dreizehn Tage gesagt“, sagte Taron.
+
+„Brokk hat dreizehn Tage gesagt, wenn jemand in der Küche rechnen kann.“ Elva öffnete den nächsten Sack, sah hinein und band ihn wieder zu. „Hier rechnet gerade niemand in der Küche. Hier tragen sie das Korn auf die Mauer, weil die Mauer wichtig aussieht.“
+
+„Ist das falsch?“
+
+„Es ist die Reihenfolge, in der Städte verhungern.“ Sie richtete sich auf. „Zuerst gibt man den Bewaffneten mehr, weil sie schützen. Dann gibt man ihnen noch mehr, weil sie sich beschweren. Dann hat man Leute mit Waffen und Leute ohne Essen, und das ist keine Belagerung mehr, das ist ein Streit im eigenen Haus.“
+
+Taron sah zu den Knechten, die Säcke nach oben schleppten.
+
+„Kannst du das aufhalten?“
+
+„Nicht ich.“
+
+„Wer?“
+
+„Marta“, sagte Elva. „Wenn ihr jemand die Erlaubnis gibt, es zu tun, ohne dass sie es heimlich tun muss.“
+
+„Und wer gibt die?“
+
+Elva sah ihn an und antwortete nicht, was Antwort genug war.
+
 
 Taron sah zu den Mauern, zu den Zwergen draußen, zu Rugar, der von Schutz sprach. Wenn Waldkirch fiel, würden Menschen sterben. Wenn Waldkirch stand und nichts sich änderte, würden Menschen ebenfalls sterben, nur langsamer und mit besseren Verwaltungslisten.
 

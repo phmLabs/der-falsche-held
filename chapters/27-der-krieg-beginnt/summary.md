@@ -2,3 +2,5 @@
 - Brokk versucht, seine Leute zum Eidstein zu fuehren, waehrend menschliche Ritter genau das verhindern wollen.
 - Rugar fuehrt die Zwerge, aber wirkt fremd und gelenkt.
 - Die Lage kippt, bevor Taron die Wahrheit erklaeren kann.
+- Rugar nennt in seiner Rede Zahlen: vierhundert Sack Korn, sechzig Fass Salzfisch, zwei Wagen Salz, absichtlich zu niedrig gerechnet. Brokk bestaetigt, dass es aus den Speichern der unteren Hallen kommt und Karndorn dadurch weniger hat als Waldkirch. Rugar kann nicht mehr zurueck, deshalb wird geschossen.
+- Elva rechnet die Vorraete gegen Brokks dreizehn Tage aus Kapitel 14 und benennt die Reihenfolge, in der Staedte verhungern: erst bekommen die Bewaffneten mehr, dann noch mehr, dann ist es ein Streit im eigenen Haus.

@@ -236,6 +236,63 @@ Albrecht war nicht gewohnt, dass ein Stalljunge ihm widersprach und dabei recht 
 
 Albrecht nickte, schmal und ungern.
 
+Dann tat er etwas, mit dem niemand gerechnet hatte.
+
+Er rief seinen Kanzler und ließ die Speicherlisten holen.
+
+Malchior sah auf. „Majestät, jetzt?“
+
+„Jetzt.“ Albrecht nahm das Blatt und hielt es lange, ohne zu lesen, wie Männer es tun, die eine Zahl schon kennen und hoffen, dass sie sich beim Ansehen bewegt. „Was steht in der Unterstadt?“
+
+Der Kanzler zögerte. „Es ist verteilt worden, Majestät.“
+
+„Ich habe nicht gefragt, ob verteilt wurde. Ich habe gefragt, was dort steht.“
+
+Der Kanzler nannte eine Zahl, sehr leise.
+
+Albrecht legte das Blatt hin. Für einen Atemzug sah er nicht aus wie ein König, sondern wie ein Mann, der etwas seit Wochen nicht wissen wollte und es nun im schlechtesten Moment erfährt.
+
+„Öffnet den mittleren Speicher“, sagte er.
+
+Malchior wurde blass. „Das ist die Reserve für-“
+
+„Für eine Belagerung. Ich weiß.“ Albrecht sah ihn nicht an. „Wir haben eine.“
+
+Elva bewegte sich nicht, aber Taron sah, dass ihre Hände sich lösten.
+
+Es war nicht viel. Es war nicht einmal Umkehr. Aber es war die erste Entscheidung an diesem Tag, die jemandem außerhalb dieses Saals nützte, und sie kam von dem Mann, der Tarons Leiden tragbar gefunden hatte.
+
+Auf dem Weg hinaus blieb Merlan bei Malchior stehen.
+
+„Bruder.“
+
+„Graufinger.“
+
+„Eure drei geweihten Schreiber.“ Merlan sagte es ohne Spott, was bei ihm mehr Arbeit war als Spott. „Haben sie nacheinander abgeschrieben oder nebeneinander?“
+
+Malchior öffnete den Mund und schloss ihn wieder.
+
+„Nacheinander“, sagte er.
+
+„Dann habt Ihr zwei Abschriften einer Abschrift und ein Original, das seit Generationen niemand gesehen hat.“
+
+„Es ist verwahrt.“
+
+„Wo?“
+
+Malchior antwortete nicht.
+
+Merlan nickte, als habe er eine Auskunft bekommen, und ging weiter.
+
+„Das macht Albrecht nicht gut“, sagte Taron später auf der Treppe.
+
+„Nein“, sagte Elva. „Es macht ihn brauchbar.“
+
+„Ist das genug?“
+
+„Heute.“
+
+
 Der nächste Hornstoß kam von der Mauer.
 
 Diesmal liefen sie alle.
@@ -296,22 +353,6 @@ Elva deutete mit dem Kinn zum Hof. „Marta braucht Leute, die Wasser schleppen.
 
 „Und sie merkt, wenn man sich drückt“, sagte Elva.
 
-Das wirkte stärker als Oswins Ritterrang. Jost nahm den Speer nicht zurück. Oswin gab ihn einem erwachsenen Soldaten, der erst beleidigt aussah und dann begriff, dass er soeben von einem Jungen abgelöst worden war. Das machte seine Miene nicht besser, aber seine Haltung gerader.
-
-Jost rannte die Treppe hinunter.
-
-Taron sah ihm nach. „Haben wir gerade jemanden gerettet?“
-
-„Vielleicht“, sagte Oswin.
-
-„Zählt das?“
-
-Oswin sah über die Mauer hinaus. „Wenn wir anfangen, nur sichere Rettungen zu zählen, bleiben die Listen leer.“
-
-Brokk, der neben ihnen stand, sagte: „Dann zählt es.“
-
-Taron merkte sich den Satz. Er war nicht schön. Er war schwer, und schwere Sätze wurden wahrscheinlich gebraucht.
-
 Jost senkte den Blick. „Sie sagen unten, wenn du den Zwergen gibst, was sie wollen, hört der Hunger auf.“
 
 Taron blieb stehen. „Wer sagt das?“
@@ -328,7 +369,21 @@ Taron legte Jost eine Hand auf die Schulter. „Wenn jemand eine einfache Lösun
 
 „Ja. Genau so fühlt sich guter Rat meistens an.“
 
-Dann zog Oswin ihn weiter, weil gute Ratschläge keine Bolzen aufhielten.
+Das wirkte stärker als Oswins Ritterrang. Jost nahm den Speer nicht zurück. Oswin gab ihn einem erwachsenen Soldaten, der erst beleidigt aussah und dann begriff, dass er soeben von einem Jungen abgelöst worden war. Das machte seine Miene nicht besser, aber seine Haltung gerader.
+
+Jost rannte die Treppe hinunter.
+
+Taron sah ihm nach. „Haben wir gerade jemanden gerettet?“
+
+„Vielleicht“, sagte Oswin.
+
+„Zählt das?“
+
+Oswin sah über die Mauer hinaus. „Wenn wir anfangen, nur sichere Rettungen zu zählen, bleiben die Listen leer.“
+
+Brokk, der neben ihnen stand, sagte: „Dann zählt es.“
+
+Taron merkte sich den Satz. Er war nicht schön. Er war schwer, und schwere Sätze wurden wahrscheinlich gebraucht.
 
 Oben an der Mauer roch die Luft nach Pech, nassem Holz und Angst. Greve bellte Befehle, die Leute ausführten, bevor sie verstanden, ob sie klug waren. Taron sah Körbe voller Steine, Eimer mit Sand, alte Türen, die als Schilde dienen sollten. Waldkirch hatte sich in eine Maschine verwandelt, und jede Maschine fraß zuerst diejenigen, die ihr am nächsten standen.
 

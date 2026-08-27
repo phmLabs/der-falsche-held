@@ -531,5 +531,3 @@ Elva hob das Messer. „Taron?“
 „Weg vom Schlag.“
 
 Der Schatten schlug nach Elva.
-
-Der Schatten schlug nach Elva.

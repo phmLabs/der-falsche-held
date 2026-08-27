@@ -328,6 +328,96 @@ Die Zwergin senkte das Messer.
 
 „Gut, Rina. Hinsetzen.“
 
+Brokk stand irgendwann neben Varga, ohne dass Taron gesehen hatte, wie er dorthin gekommen war.
+
+„Krail“, sagte Brokk.
+
+Varga sah nicht auf. „Er lebt.“
+
+„Wo?“
+
+„Bei den Wagen. Mit den anderen.“
+
+„Welchen anderen?“
+
+„Denen, die nicht kämpfen durften.“
+
+Brokk sagte lange nichts.
+
+„Was hast du mit ihm gemacht?“
+
+„Nichts.“ Varga drehte den Helm in den Händen. „Ich habe ihn gefragt.“
+
+„Wie lange?“
+
+„Zwei Stunden.“
+
+„Und?“
+
+„Nach zwei Stunden hat er geantwortet“, sagte Varga. „Riedwacht. Eidgrund. Die Richtung. Wo die Schlüssel sind, hat er nicht gesagt, weil er es nicht wusste. Alles andere hat er gesagt.“
+
+Brokk stand ganz still.
+
+„Du hast ihn nicht angerührt.“
+
+„Nein.“
+
+„Dann war es schlimmer.“
+
+Varga sah endlich auf. „Ja.“
+
+Broda war dazugetreten, ohne dass jemand sie gerufen hatte. Sie hatte Blut am Handrücken, das nicht ihres war, und in der anderen Hand ein Tuch, das sie irgendwem hätte bringen sollen.
+
+„Zwei Stunden“, sagte sie.
+
+„Ja.“
+
+„Ich hätte eine gebraucht.“
+
+Varga antwortete nicht, und Taron begriff, dass er das für den größeren Vorwurf hielt und dass er damit recht hatte.
+
+Sie fanden Krail bei den Wagen. Er saß auf einer Kiste, hatte die Hände frei und wirkte deshalb umso mehr wie ein Gefangener. Als er Brokk sah, stand er auf. Als er Broda sah, blieb er stehen.
+
+„Hauptmann.“
+
+„Krail.“
+
+„Ich habe geredet.“
+
+„Ich weiß.“
+
+„Nach zwei Stunden.“
+
+„Ich weiß.“
+
+Krail sah zu Broda. „Ich habe ihnen Eidgrund gesagt.“
+
+„Ich weiß“, sagte Broda.
+
+„Sag es richtig.“
+
+Broda sah ihn lange an.
+
+„Du hast ihnen Eidgrund gesagt“, sagte sie, „und deshalb war Varga zweimal vor uns dort, und deshalb hat der Hauptmann eine Schulter, die nicht mehr richtig wird.“
+
+„Ja.“
+
+„Und ich bin nicht zurückgekommen, um dich zu holen.“
+
+Krail sah auf den Boden.
+
+„Ich weiß“, sagte er. „Ich habe gehört, wie sie über dich geredet haben. Ich habe gehofft, dass du nicht kommst.“
+
+Es blieb eine Weile still.
+
+Dann sagte Broda: „Setz dich. Du blutest am Kopf.“
+
+„Das ist alt.“
+
+„Dann setz dich alt hin.“
+
+Sie sagten nichts weiter dazu, an diesem Tag nicht und, soweit Taron es später mitbekam, an keinem der folgenden. Er fand das zuerst kalt. Später verstand er, dass es die zwergische Fassung von Verzeihen war. Man legte es nicht auf den Tisch. Man ließ es unter der Bank liegen, wo es niemand bezeugen musste.
+
 Rina setzte sich.
 
 Taron sah dem zu und dachte, dass Könige vielleicht nützlich waren, aber Marta an diesem Tag schneller regierte.
