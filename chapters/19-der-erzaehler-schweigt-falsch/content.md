@@ -112,6 +112,158 @@ Sie erwiderte seinen Blick. "Gut gemeint macht niemanden weniger gefaehrlich."
 
 Vorn, hinter den Feldern, lag ein Turm ohne Spitze. Kein Rauch stieg auf. Kein Glockenton kam ueber das Land. Nur Wind.
 
+Vor Ellingen kamen sie an einem verlassenen Zollhaus vorbei. Die Schranke war abgebaut, das Dach halb eingestuerzt. An der Wand hing noch eine Tafel mit Preisen fuer Wagen, Vieh und Salz. Jemand hatte darunter mit Kohle geschrieben: Wer nichts hat, zahlt spaeter.
+
+Darunter stand in anderer Hand: Spaeter ist voll.
+
+Elva blieb kurz stehen. "Das ist nicht nur besetzt. Das ist ausgeblutet."
+
+Brokk nickte. "Rugar nahm die Glocken, nicht das Korn. Aber ohne Glocken kamen weniger Haendler. Ohne Haendler keine Preise. Ohne Preise Soldaten. Und Soldaten essen zuerst, weil sie Waffen tragen."
+
+"Das klingt, als haettest du den Satz schon oft gehoert."
+
+"Ich habe ihn oft widersprochen."
+
+"Erfolgreich?"
+
+Brokk sah auf die leere Strasse.
+
+"Nicht oft genug."
+
+Taron ging zum Zollhaus und hob eine zerbrochene Tonscheibe auf. Darauf stand ein altes Siegel Ellingens: drei Glocken ueber einem Fluss. Jemand hatte die Glocken ausgekratzt. Nicht sauber. Wuetend.
+
+"Warum Glocken?", fragte er. "Warum nicht Feuerzeichen oder Hornrufe?"
+
+Der Erzaehler antwortete nicht.
+
+Taron merkte, dass die Frage zu nah an der verbotenen Stelle lag. Das machte ihn erst wuetend, dann vorsichtiger. Elvas Rat fiel ihm wieder ein: nach dem Rand fragen.
+
+"Was tut Klang?", fragte er.
+
+Der Erzaehler blieb lange still. Dann sagte er: "Er erinnert Dinge, die keine Augen haben."
+
+Taron wiederholte es.
+
+Merlan war nicht da, um den Satz zu geniessen. Das war vielleicht gut. Jemand musste in dieser Gruppe noch ohne Schreibzeug bleiben.
+
+Brokk strich mit der eisernen Hand ueber die ausgekratzten Glocken. "In Karndorn gibt es Tiefenglocken. Sie rufen nicht Menschen. Sie rufen Hallen. Wenn eine klingt, wissen alle, welcher Eid gemeint ist."
+
+"Und Ellingen hatte auch solche?"
+
+"Nicht zwergisch. Aber alt genug."
+
+Oswin kam vom Strassenrand zurueck. "Spuren. Drei, vielleicht vier. Nicht Varga. Leichtere Schritte."
+
+"Menschen?", fragte Elva.
+
+"Wahrscheinlich."
+
+"Gekauft?"
+
+"Oder hungrig."
+
+Es war erschreckend, wie oft das inzwischen fast dasselbe bedeutete.
+
+Sie fanden die Menschen eine Viertelstunde spaeter nicht durch Kampf, sondern durch Geruch. Ein kleiner Rauchfaden stieg aus einem Graben hinter Weiden. Oswin wollte vorbeigehen. Brokk auch. Elva nicht.
+
+"Da ist ein Kind", sagte sie.
+
+"Wir haben keine Zeit", sagte Oswin.
+
+"Das Kind weiss das vielleicht nicht."
+
+Taron sah zwischen ihnen hin und her. Es waere sehr leicht gewesen, Oswin recht zu geben. Es waere sogar vernuenftig gewesen. Hinter ihnen Varga, vor ihnen Ellingen, bei ihnen drei Schluessel, um die vermutlich sehr viele Leute bereit waren, sehr dumme Dinge zu tun.
+
+Dann hoerte er Husten aus dem Graben.
+
+"Kurz", sagte er.
+
+Oswin sah ihn an. "Kurz ist selten kurz."
+
+"Dann schnell kurz."
+
+Im Graben sassen zwei Frauen, ein alter Mann und ein Junge mit einem Bein, das in Bretter geschient war. Neben ihnen lag ein Packen Brennholz, zu ordentlich fuer Diebe, zu wenig fuer Haendler. Als sie die Gruppe sahen, griff der alte Mann nach einem Messer, das niemanden ernsthaft bedrohte ausser vielleicht ihn selbst.
+
+"Wir nehmen nichts", sagte Elva sofort.
+
+"Das sagen alle mit Waffen", sagte eine der Frauen.
+
+Brokk blieb zurueck. Er wusste, was sein Anblick tat. Das war Ruecksicht, und sie sah aus wie Scham.
+
+Elva kniete neben dem Jungen. "Wie lange ist das Bein so?"
+
+"Seit der Glockensteuer", sagte die Frau.
+
+"Das war keine Antwort."
+
+"Seit sie den Glockenstuhl aus der Halle holten. Ein Balken fiel."
+
+Der Junge starrte Taron an. "Bist du der Falkenjunge?"
+
+Taron hatte diesen Namen noch nie gehoert und mochte ihn sofort nicht. "Vielleicht. Je nachdem, ob die Antwort gefaehrlich ist."
+
+"Die Zwerge suchen dich."
+
+"Das wusste ich. Ich hatte nur gehofft, es sei ein Geruecht mit schlechter Ausdauer."
+
+Der Junge deutete nach Norden. "Ein Mann kam gestern. Mensch, aber mit Zwergengeld. Er fragte nach einem mit Vogelzeichen und einem Ritter."
+
+Oswins Gesicht wurde hart.
+
+Taron gab ihnen Brot. Nicht viel. Sie hatten selbst kaum genug. Aber Elva schnitt es so, dass es nach mehr aussah, und das war eine Kunst, die keine Prophezeiung je angemessen lobte.
+
+Als sie weitergingen, sagte Oswin nichts.
+
+Nach einer Weile fragte Taron: "War es falsch?"
+
+"Nein."
+
+"Aber?"
+
+"Aber richtig kann teuer sein."
+
+Der Erzaehler sagte: "Eine knappe Definition von Gewissen. Man haette Schlimmeres auf Tempelwaende schreiben koennen."
+
+Taron dachte an den Jungen im Graben und an die ausgekratzten Glocken. Der andere ordnete Angst, hatte der Erzaehler gesagt. Aber vielleicht ordnete er auch Knappheit. Gib Menschen zu wenig, dann werden sie bereit, das Falsche fuer Rettung zu halten. Gib Koenigen genug Angst, dann nennen sie Kontrolle Schutz.
+
+"Und du?", fragte Taron in sich hinein. "Hast du auch einmal Schutz mit Kontrolle verwechselt?"
+
+Der Erzaehler schwieg so lange, dass Taron dachte, er habe die Grenze beruehrt.
+
+Dann kam die Antwort.
+
+"Ja."
+
+Taron stolperte nicht. Das war bemerkenswert.
+
+"Bei Arven?"
+
+"Ja."
+
+"Bei mir?"
+
+"Ich versuche, es nicht zu tun."
+
+Keine Verteidigung. Keine scharfe Bemerkung. Nur dieser Satz, und darunter eine Erschoepfung, die Taron nicht erwartet hatte.
+
+"Das ist keine besonders sichere Antwort."
+
+"Sichere Antworten sind oft nur gut gekleidete Luegen."
+
+"Du klingst wie Merlan."
+
+"Nimm das zurueck."
+
+Taron merkte, dass er laechelte. Kurz. Unpassend. Aber echt.
+
+Elva sah es. "Was?"
+
+"Er ist beleidigt, weil ich ihn mit Merlan verglichen habe."
+
+"Dann lebt er noch."
+
+Der Erzaehler sagte: "Eine erschreckend brauchbare Diagnose."
+
 Ellingen.
 
 Taron ging weiter, aber langsamer. Er fuehlte den Menschenschluessel unter seinem Hemd, wusste um den Zwergenschluessel bei Brokk und den Schutzschluessel bei Elva. Drei Dinge, die Freiheit bringen sollten. Niemand hatte laut genug gefragt, wem.

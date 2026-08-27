@@ -160,6 +160,144 @@ Der Nebel zwischen den Steinen wurde fuer einen Moment dichter, als lausche etwa
 
 Oswin hob sein Schwert.
 
+Bevor sie gingen, zwang Brokk sie noch einmal in die Hocke. Nicht aus Andacht. Aus Vorsicht. Er zeigte auf die aeussere Rinne des Kreises, die Taron bisher fuer einen halb zugewachsenen Wasserlauf gehalten hatte.
+
+"Wer hier quer geht, unterbricht den Platz", sagte Brokk.
+
+"Ich habe den starken Eindruck, dass der Platz auch ohne mich ziemlich unterbrochen ist."
+
+"Dann hilf ihm nicht."
+
+Das war schwer zu bestreiten. Taron trat zurueck und sah genauer hin. Die Rinne war an vier Stellen offen, aber jede Oeffnung zeigte in eine andere Richtung. Norden, Osten, Westen, Sueden. Zwischen den Oeffnungen lagen kleine Zeichen, so flach, dass man sie nur sah, wenn man schon wusste, dass wichtigere Dinge gern unter Dreck lagen.
+
+Elva kniete am suedlichen Einschnitt. "Hier ist frische Erde."
+
+Oswin war sofort neben ihr. "Von Varga?"
+
+"Nein. Aelter. Aber nicht sehr alt."
+
+Brokk strich mit dem Daumen ueber den Rand. "Rugar war hier."
+
+Die Worte lagen kalt im Nebel.
+
+Taron sah in die Senke, als koenne er Rugars Schritte noch sehen: ein Koenig, der vor Jahren hier stand, vermutlich mit Niemand in seinem Kopf, und auf dieselben Steine blickte. Vielleicht hatte er damals noch geglaubt, er rette Karndorn. Vielleicht hatte er hier schon nicht mehr allein gedacht.
+
+"Was hat er gemacht?", fragte Elva.
+
+Brokk kratzte Erde aus einer Kerbe. Darunter kam eine abgeschlagene Rune zum Vorschein. Nicht vollstaendig, aber genug, dass sein Gesicht hart wurde.
+
+"Er hat die Warnung entfernt."
+
+"Welche?"
+
+Brokk uebersetzte nicht sofort. Das war bei ihm selten ein Zeichen von Unwissen. Meistens bedeutete es, dass er den Satz erst selbst ertragen musste.
+
+"Kein Schutz ohne Stimme des Geschuetzten", sagte er.
+
+Der Erzaehler wurde so still, dass Taron ihn fast verlor.
+
+Elva sah zu Taron. "Das ist genau das, was die andere Stimme bricht."
+
+"Oder umdreht", sagte Oswin.
+
+Broda trat aus dem Nebel. "Varga rueckt naeher."
+
+"Wie nah?"
+
+"Nah genug, dass ich lieber gehe, als Zahlen zu nennen."
+
+Oswin akzeptierte das sofort. Bei Soldaten war eine nicht genannte Zahl manchmal die genaueste.
+
+Taron nahm trotzdem noch einen Augenblick. Nicht weil er mutig war, sondern weil sein Blick an einer der flachen Platten haengen blieb. Darauf stand ein Name. Nicht ganz. Der Anfang war verwittert, das Ende abgeschlagen. Aber daneben war ein Vogel eingeritzt, klein, den Kopf gesenkt.
+
+Der Menschenschluessel wurde schwer.
+
+"Falkenried?", fragte Elva.
+
+"Vielleicht", sagte Taron.
+
+Der Erzaehler antwortete nicht.
+
+"War einer von ihnen hier?", dachte Taron.
+
+Lange nichts.
+
+Dann: "Ja."
+
+"Arven?"
+
+Der Name kam Taron, ohne dass er wusste woher. Vielleicht vom Mantel. Vielleicht von Blut. Vielleicht von der Art, wie der Erzaehler in seinem Kopf ploetzlich zu alt klang.
+
+"Nicht jetzt", sagte die Stimme.
+
+"Das ist kein Nein."
+
+"Nein."
+
+"Das war jetzt ein Nein?"
+
+"Das war eine Bitte."
+
+Taron haette gern weiter gefragt. Er haette auch gern nicht in einer Senke gestanden, in der alte Familiennamen, Schutzschluessel und feindliche Zwerge gleichzeitig nach ihm griffen. Wuensche wurden an diesem Tag schlecht bedient.
+
+Elva schob den Stoff um den Schutzschluessel fester. "Wenn dein Vorfahr hier war, dann hat er vielleicht gewusst, was der Schluessel tut."
+
+"Dann haette er eine Anleitung hinterlassen koennen."
+
+"Vielleicht hat er."
+
+Taron sah sie an.
+
+"Dein Mantel", sagte sie. "Du hast vorhin wieder nach der Innenfalte gegriffen."
+
+"Da ist nichts."
+
+"Du hast noch nicht richtig gesucht."
+
+Das war eine jener Bemerkungen, die spaeter wichtig werden wollten. Taron misstraute ihr sofort.
+
+Aus dem Nebel kam ein kurzer Pfiff. Senn antwortete mit zwei leisen Klicks seiner Axt gegen Stein.
+
+Brokk richtete sich auf. "Jetzt wirklich."
+
+"Wirklich ist eine gute Ergaenzung", sagte Taron. "Sie fehlte mir beim ersten Mal."
+
+Sie verliessen den inneren Kreis nicht in einer Reihe, sondern in drei kleinen Gruppen. Broda ging voraus und suchte festen Boden. Elva folgte mit dem Schutzschluessel, Taron dicht hinter ihr. Brokk ging neben Taron, als wolle er notfalls sowohl ihn als auch den Zwergenschluessel am Weglaufen hindern. Oswin bildete den Schluss.
+
+Am Rand der Senke blieb Taron noch einmal stehen.
+
+Eidgrund sah von oben nicht wichtiger aus. Nur nasser. Die Steine standen in grauem Gras, die Rinnen verschwanden wieder im Nebel, und der Schutzschluessel war fort. Ein Reisender, der morgen hier vorbeikam, wuerde vielleicht denken, es sei ein alter Viehplatz oder ein misslungener Friedhof.
+
+"So verschwinden Dinge", sagte Taron.
+
+"Nein", sagte der Erzaehler. "So werden sie absichtlich liegen gelassen, bis jemand sie falsch findet."
+
+"Das soll beruhigend sein?"
+
+"Ich uebe noch."
+
+Ein Armbrustbolzen schlug in den Stein neben Taron.
+
+Oswin riss ihn zur Seite.
+
+"Duck dich zuerst", sagte der Ritter.
+
+"Ich wollte gerade."
+
+"Du wolltest nachdenken."
+
+"Das ist in manchen Kreisen angesehen."
+
+"Nicht in Reichweite von Armbruesten."
+
+Brokk stiess einen rauen Befehl aus. Die Gruppe verschwand zwischen niedrigen Erlen, waehrend hinter ihnen Vargas Leute in den Kreis von Eidgrund traten. Taron sah nur einen Moment zurueck. Varga stand zwischen den Steinen und hob den Kopf, als rieche er den fehlenden Schluessel.
+
+Der Nebel schluckte ihn.
+
+Diesmal fuehlte es sich nicht an, als haetten sie etwas gefunden.
+
+Eher, als haetten sie etwas mitgenommen, das andere sehr lange hatten falsch finden wollen.
+
 Brokk sagte: "Jetzt gehen wir."
 
 Und diesmal widersprach niemand.

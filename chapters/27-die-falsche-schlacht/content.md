@@ -6,6 +6,20 @@ Taron rutschte auf verschuettetem Wasser aus, prallte gegen einen Mehlsack und b
 
 Das war genauer.
 
+Der Mehlsack war bereits aufgeschlitzt, wahrscheinlich von einem Bolzen, der eine heldenhaftere Aufgabe verfehlt hatte. Mehl hing in der Luft und machte aus Soldaten Geister, aus Zwergen alte Statuen und aus Taron jemanden, der aussah, als sei er von einer sehr entschlossenen Backstube besiegt worden.
+
+"Falkenried!", rief jemand.
+
+Taron wusste nicht, ob Freund oder Feind. Inzwischen war sein Name eine oeffentliche Einrichtung geworden, die jeder bei Bedarf benutzen durfte.
+
+"Nicht stehen bleiben!", rief Elva.
+
+"Ich liege halb!"
+
+"Dann lieg schneller woanders!"
+
+Das war hart, aber praktisch. Er rappelte sich auf.
+
 "Links!", rief Oswin.
 
 Taron ging rechts.
@@ -42,6 +56,12 @@ Dann brach die Ordnung wieder.
 
 Sie wollten zum inneren Tor, das in die unteren Gaenge fuehrte. Zwischen ihnen und dem Tor lagen Menschen, Zwerge, ein umgestuerzter Wagen, zwei schreiende Pferde und Malchior, der mit der Prophezeiung in der Hand mitten im Hof stand und offenbar versuchte, durch Wichtigkeit unverwundbar zu werden.
 
+Die Schlacht bestand nicht aus einer Linie, sondern aus vielen kleinen Fehlern. Ein Mensch erkannte einen Zwerg zu spaet als den, der gerade ein Kind aus dem Weg geschoben hatte. Ein Zwerg hielt einen Stallknecht fuer einen Soldaten, weil der eine Mistgabel trug. Zwei Ritter wollten zum Tor und blockierten einander mit Schilden, die fuer Turniere vermutlich sehr beeindruckend gewesen waren und hier vor allem Platz verschwendeten.
+
+Oswin bewegte sich durch dieses Durcheinander, als lese er eine unordentliche Schrift. Er sah Luecken, bevor sie entstanden. Brokk sah andere. Der Zwerg erkannte, wo Stein, Wagen, Tuer und Koerper eine Linie bilden konnten. Zusammen machten sie aus dem Hof fuer wenige Atemzuege etwas, das beinahe sinnvoll war.
+
+Taron und Elva nutzten diese Atemzuege, indem sie nicht starben. Es war eine bescheidene, aber wichtige Aufgabe.
+
 "Priester weg!", rief Elva.
 
 Malchior sah sie beleidigt an. Ein Bolzen schlug in den Wagen neben ihm. Er entschied sich fuer eine beweglichere Form von Wuerde.
@@ -57,6 +77,24 @@ Merlan hielt seine Kiste mit Phiolen an die Brust gepresst. "Wenn die zerbricht,
 "Forschung."
 
 Der Erzaehler sagte: "Ein Wort, unter dem erstaunlich viele Katastrophen voruebergehend Asyl finden."
+
+Eine der Phiolen begann zu zischen.
+
+Merlan sah nach unten. "Oh."
+
+"Oh?", fragte Taron.
+
+"Nicht schlimm."
+
+"Du hast eine sehr schlechte Beziehung zu diesem Satz."
+
+Elva riss Merlan die Kiste aus der Hand, stellte sie unter einen umgestuerzten Trog und trat den Deckel zu. Einen Moment spaeter puffte es darin gruen. Der Trog hob sich eine Handbreit, setzte sich wieder und begann nach faulen Eiern und Minze zu riechen.
+
+Oswin hustete. "Graufinger!"
+
+"Unter Kontrolle!", rief Merlan.
+
+Der Erzaehler sagte: "Eine mutige Behauptung in einem Hof, der gerade chemisch beleidigt wurde."
 
 Am Tor bildete sich eine Linie. Zwerge wollten hinein. Menschen wollten sie draussen halten. Beide Seiten glaubten, unter der Burg liege etwas, das der andere nicht erreichen duerfe. Beide hatten recht und lagen falsch, was fuer eine Schlacht eine sehr fleissige Kombination war.
 
@@ -88,6 +126,22 @@ Taron starrte ihn an. "Du hast mich tagelang angeschrien, ich soll sie benutzen.
 
 "Das war optimistisch."
 
+Ein Bolzen schlug in den Pfosten neben Elva. Holz splitterte. Taron sah, wie ein Splitter ihre Wange ritzte, und fuer einen Augenblick wurde die Welt sehr eng.
+
+Er wollte die Kugel zerbrechen. Nicht taktisch. Nicht klug. Nur damit irgendetwas zwischen Elva und dem naechsten Bolzen stand.
+
+Der Erzaehler sagte scharf: "Nein."
+
+"Du auch noch?"
+
+"Gerade ich."
+
+Taron presste die Finger um die Kugel, bis die Kanten durch das Leder drueckten. Dann liess er los und schob sie zurueck in den Beutel.
+
+Es fuehlte sich nicht wie Lernen an.
+
+Es fuehlte sich an, als muesse er zusehen, wie die richtige Entscheidung zu spaet kam.
+
 Elva stiess Taron weiter. "Spaeter streiten, jetzt Tor."
 
 Ein Zwerg brach durch die Linie und hob die Axt gegen sie. Brokk war zu weit weg. Oswin gebunden. Taron sah die Axt, sah Elva, sah seine eigene Hand am Dolch.
@@ -111,6 +165,24 @@ Brokk hoerte es.
 Die Zahl ging durch Taron wie ein kleiner, unpassender Lichtstrahl.
 
 Sie retteten sich nicht aus der Schlacht. Sie retteten andere durch sie hindurch. Das war weniger sauber, weniger heldisch und sehr viel schwerer zu singen.
+
+Ein Kind tauchte unter dem Wagen auf. Taron erkannte es nicht, aber es trug eine Backschuerze, die viel zu gross war. Vielleicht aus Martas Kueche, vielleicht aus einer anderen. Es kroch direkt in die Beine eines Zwergs, der gerade rueckwaerts auswich.
+
+Elva fluchte, stiess Taron den Schutzschluesselbeutel gegen die Brust und rannte los.
+
+"Elva!"
+
+Sie packte das Kind am Kragen und zog es zurueck. Der Zwerg trat ins Leere, stuerzte und haette sie mitgerissen, wenn Brokk ihn nicht am Guertel gepackt und zur Seite geschleudert haette.
+
+"Fuenf!", bruellte Brokk.
+
+Oswin blockte einen Schlag. "Sechs!"
+
+"Das Kind zaehlt doppelt", rief Taron, ohne zu wissen, warum.
+
+"Nein!", riefen Oswin und Brokk gleichzeitig.
+
+Der Erzaehler sagte: "Regelbildung in der Schlacht. Der Zivilisation geht es besser, als zu erwarten war."
 
 Am Ende erreichten sie das Tor zu den unteren Gaengen.
 

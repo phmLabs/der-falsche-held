@@ -112,6 +112,78 @@ Der Erzaehler sagte leise: "Eine seltene, aber annehmbare Kategorie."
 
 Taron atmete aus. Er war noch verletzt. Das wuerde nicht verschwinden, nur weil Elva die Wahrheit gesagt hatte. Vielleicht war das sogar der Punkt. Wahrheiten waren keine Salben. Sie waren Messer, wenn man Glueck hatte saubere.
 
+Sie gingen nicht sofort weiter. Das war nicht geplant. Aber Plaene hatten in den letzten Tagen eine so schlechte Trefferquote gehabt, dass niemand ihnen viel schuldete.
+
+Am Rand des Weges stand eine verfallene Bildsaeule. Ein alter Heiliger ohne Nase hielt ein Buch, aus dem Regen eine Ecke gebrochen hatte. Darunter lagen abgelegte Dinge: ein Stueck Schnur, zwei Eicheln, ein verkohlter Loeffel. Kleine Bitten von Leuten, die nichts Groesseres entbehren konnten.
+
+Elva setzte sich auf den niedrigen Sockel. "Als ich das in der Kueche hoerte, wollte ich zuerst nur weg."
+
+"Von Waldkirch?"
+
+"Von der Tuer. Von Malchiors Stimme. Von mir."
+
+Taron sagte nichts.
+
+"Marta hatte mir einen Topf gegeben", sagte Elva. "Linsensuppe. Mehr Wasser als Linsen, aber sie tat so, als sei das Absicht. Ich sollte ihn in den kleinen Saal bringen. Dort standen Albrecht und Malchior. Ich dachte, sie reden ueber Vorraete. Alle redeten ueber Vorraete."
+
+Taron sah auf die Opfergaben am Sockel. Ein verkohlter Loeffel war eine sehr kleine Sache, bis man sich vorstellte, dass jemand ihn nicht mehr hatte.
+
+"Malchior sagte, die Leute wuerden unruhig", fuhr Elva fort. "Der Hunger mache sie anfaellig fuer Zweifel. Und der Koenig sagte, ein Wunder zur rechten Zeit koenne mehr naehren als Korn."
+
+"Ich bin ein schlechtes Korn."
+
+"Ich fand den Satz damals schon falsch. Aber ich verstand erst spaeter, wie falsch. Malchior sagte, wenn du im Dungeon stirbst, sei das traurig, aber beweiskraeftig. Wenn du ueberlebst, sei es beweiskraeftiger. So oder so wuerde Waldkirch eine Antwort bekommen."
+
+Taron spuerte, wie seine Finger kalt wurden.
+
+"Also war ich nicht einmal das Risiko", sagte er. "Ich war das Ergebnis."
+
+Elva sah ihn an. "Ja."
+
+Das Ja war nicht grausam. Es war nur mutig genug, nicht weich zu werden.
+
+"Und du bist trotzdem gekommen."
+
+"Gerade deshalb."
+
+Auf dem Weg vor ihnen stand Merlan noch immer bei der Pflanze und machte inzwischen nicht einmal mehr glaubwuerdig den Eindruck, sie interessiere ihn. Oswin hatte ihm vermutlich schon dreimal gesagt, dass Tarnung auch Bewegung enthalten duerfe. Brokk wartete mit dem Gesicht eines Zwergs, der persoenliche Gespraeche fuer notwendig hielt und genau deshalb misstrauisch betrachtete.
+
+"Ich weiss nicht, was ich mit Albrecht mache, wenn wir zurueckkommen", sagte Taron.
+
+"Du musst nicht wissen, was du mit einem Koenig machst."
+
+"Das ist beruhigend falsch."
+
+"Du musst wissen, was du nicht mehr mit dir machen laesst."
+
+Taron sah zu ihr.
+
+Elva hielt seinem Blick stand. "Das ist etwas anderes."
+
+Der Erzaehler sagte leise: "Eine Kuechenweisheit von gefaehrlicher Brauchbarkeit."
+
+"Er stimmt dir zu", sagte Taron.
+
+"Dann soll er aufpassen. Ich gewoehne mich sonst daran."
+
+Taron steckte die Haende in die Manteltaschen. In einer fand er nur Fusseln. In der anderen den Rand einer alten Naht, die er vor Tagen schon einmal gespürt hatte. Er tastete darueber, aber der Stoff gab nicht nach.
+
+"Was ist?", fragte Elva.
+
+"Nichts. Mein Mantel fuehrt offenbar ein eigenes Leben."
+
+"Dann passt er zu dir."
+
+Er wollte antworten, doch von vorn rief Oswin: "Wenn ihr fertig seid, bevor der Krieg vorbei ist, waere das fuer die Reiseplanung angenehm."
+
+Elva stand auf. "Er sorgt sich."
+
+"So klingt Sorge?"
+
+"Bei Oswin ja."
+
+Sie gingen zu den anderen zurueck. Taron fuehlte sich nicht leichter. Eher genauer verwundet. Aber die Wunde hatte jetzt Raender. Man konnte sie ansehen, statt nur um sie herum zu stolpern.
+
 Sie gingen weiter.
 
 Als sie die anderen erreichten, sagte Oswin: "Fertig?"
