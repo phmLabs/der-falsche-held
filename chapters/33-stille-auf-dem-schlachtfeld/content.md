@@ -1,12 +1,166 @@
-Taron zerbrach die Rauchkugel.
+Für einen Augenblick erinnerte Taron sich an Merlans Haus. An den ordentlichen Tisch, die Phiolen, die Beschriftungen, die Belehrung darüber, dass seltene Stoffkunde nicht geworfen, geschüttelt, fallen gelassen, nass gemacht, erhitzt, beleidigt oder in Anwesenheit offener Flammen diskutiert werden sollte. Merlan hatte eine erstaunliche Anzahl Warnungen für eine Kugel gehabt, die nun in Tarons Hand lag, während um ihn herum Menschen und Zwerge mit Metall aufeinander einschlugen.
 
-Nicht elegant. Nicht mit einem großen Wurf, der später in Liedern hervorragend aussah. Er rutschte aus, schlug mit der Hand gegen den Stein, und die Kugel platzte zwischen seinen Fingern.
+Das Leben achtete wenig auf Lagerungshinweise.
 
-Merlans Chemie war selten, teuer und beleidigend wirksam.
+„Wie genau zerbricht man sie?“, fragte Taron.
 
-Weißer Rauch schoss aus Tarons Hand, kroch über den Boden, sprang in die Luft und nahm der Kammer innerhalb weniger Atemzüge jede Form. Menschen schrien. Zwerge husteten. Jemand rief, es sei Magie. Merlan rief zurück, es sei Stoffkunde, was in der Wirkung auf panische Bewaffnete keinen erkennbaren Unterschied machte.
+Merlan, der gerade Rugars Schulter unter Kontrolle zu bringen versuchte, starrte ihn an. „Mit Absicht.“
 
-Der Rauch war nicht nur weiß. Er war dicht wie nasse Wolle und roch nach Salz, kaltem Feuer und einer Kräutermischung, die vermutlich nur Merlan für vertretbar hielt. Er nahm den Leuten nicht die Luft, aber jede Gewissheit. Schwerter fanden keine Ziele mehr. Äxte trafen Schilde, Wände, einmal sehr laut einen Eimer. Befehle wurden verschluckt und kamen als Husten zurück.
+„Das ist keine Anleitung.“
+
+„Ich gab dir eine Anleitung.“
+
+„Wann?“
+
+„Vor Tagen.“
+
+„Vor Tagen wusste ich noch nicht, dass ich sie in einer Dämonenkammer benutzen muss!“
+
+„Ich auch nicht!“
+
+Elva zog Rugar ein Stück weiter. „Könnt ihr streiten und handeln?“
+
+„Das ist meine Hauptausbildung“, sagte Taron.
+
+Der Erzähler flüsterte: „Eine traurige, aber belastbare Qualifikation.“
+
+Die Kugel war glatt. Zu glatt. Sie wollte nicht zerbrechen. Sie wollte ein teures, empfindliches Forschungsobjekt bleiben und vielleicht später in einer Vitrine liegen, wo Besucher leise sagten: Ach, schau, damit hätte man damals viele Leute retten können, wenn der Träger nicht an technischen Einzelheiten gescheitert wäre.
+
+Taron drückte fester.
+
+Nichts.
+
+Ein Schatten des freien Dämons glitt noch immer an der Wand entlang, obwohl der Dämon selbst im Riss stand. Nicht ein eigener Gegner. Eher ein Rest von Richtung. Er zeigte auf die Leute, die gerade einander falsch verstanden, und machte aus jeder Angst eine Bewegung.
+
+Varga schlug nach Brokk. Brokk blockte wieder zu weich.
+
+„Er tötet dich“, sagte Oswin.
+
+„Noch nicht.“
+
+„Das ist kein langfristiger Plan.“
+
+„Heute gibt es nur kurze.“
+
+Taron hob die Kugel.
+
+„Nicht auf den Boden!“, rief Merlan.
+
+Taron erstarrte. „Warum?“
+
+„Wenn sie rollt, raucht sie falsch.“
+
+„Rauch kann falsch rauchen?“
+
+„Alles kann falsch sein, wenn man sich nur wenig genug auskennt.“
+
+Der Erzähler sagte: „Ein Satz, der auf Tarons Wappen gehört.“
+
+„Ich höre dich“, murmelte Taron.
+
+„Das ist in deinem Fall die halbe Tragik.“
+
+Elva sah zwischen ihnen hin und her. „Ist das gerade hilfreich?“
+
+„Nein“, sagten Taron und Merlan gleichzeitig.
+
+Dann sprang ein menschlicher Soldat über einen gefallenen Schild und rammte seinen Speer nach Varga. Varga wich aus, Brokk riss den Speer zur Seite, der Soldat stolperte und hätte Oswin in den Rücken getroffen, wenn Elva ihm nicht mit Rugars Stiefel gegen das Schienbein trat. Rugar, bewusstlos, leistete damit seinen ersten Beitrag zum Frieden.
+
+„Zählt das?“, keuchte Taron.
+
+„Rugar hat geholfen“, sagte Elva.
+
+Brokk, der es gesehen hatte, rief: „Dann muss er leben, sonst kann ich ihm das nie vorwerfen.“
+
+Varga stockte.
+
+Nur kurz.
+
+Aber kurz war jetzt eine Währung.
+
+Taron nutzte sie schlecht, aber immerhin.
+
+Der Erzähler sagte schwach: „Falls es dich tröstet: Dies ist vermutlich der schlechteste mögliche Moment, sie noch nicht benutzt zu haben.“
+
+Taron schloss die Finger darum.
+
+„Dann wird es Zeit für den zweitbesten.“
+
+Er warf nicht gut.
+
+Das sollte festgehalten werden, falls später jemand behauptete, der falsche Held habe im entscheidenden Moment eine perfekte Bewegung vollbracht. Taron warf wie jemand, der auf einem unebenen Boden stand, an einer Seite blutete und einen Gegenstand loswerden wollte, den er seit Tagen falsch benutzt hatte. Die Kugel flog zu niedrig, prallte gegen den Rand des Eidsteins und sprang zurück.
+
+„Taron!“, rief Elva.
+
+Er hechtete danach, bekam sie mit den Fingerspitzen zu fassen und schlug mit ihr gegen den Stein.
+
+Nichts geschah.
+
+Ein Zwerg sprang auf ihn zu.
+
+Oswin fing den Schlag ab.
+
+„Fester!“, brüllte der Ritter.
+
+„Ich bin kein Schmied!“
+
+Brokk riss den Zwerg zurück. „Dann sei ein grober Bäcker!“
+
+Aus unerfindlichen Gründen fand Taron genau darin genug Kraft.
+
+Taron nahm die Kugel mit beiden Händen und schlug sie gegen den Stein, als wolle er Teig prügeln, der ihn persönlich beleidigt hatte.
+
+Diesmal knackte sie.
+
+Ein feiner weißer Faden quoll heraus.
+
+„Endlich“, sagte der Erzähler.
+
+„Wenn das Kritik ist, sterbe ich aus Trotz.“
+
+„Später.“
+
+Die Kugel sprang in seiner Hand auf.
+
+Noch kam kein Rauch. Nur ein Zischen, fein und wütend. Taron starrte sie an.
+
+„Ist sie kaputt?“
+
+Merlan sah aus dem Augenwinkel hin. „Ja.“
+
+„Sollte sie nicht sofort...“
+
+„Sie baut Druck auf.“
+
+„Das hättest du sagen können!“
+
+„Ich dachte, du benutzt sie früher!“
+
+Das war unfair und vermutlich richtig.
+
+Varga hob die Axt. Brokk blockte ihn, aber ohne vollen Schlag. Er wollte ihn nicht verletzen. Varga nutzte genau das aus. Alte Treue war in einem Kampf eine offene Stelle.
+
+Oswin sah es, trat zwischen beide und schlug Varga den Axtstiel gegen die Brust.
+
+„Er lebt“, sagte Oswin.
+
+„Du lügst!“
+
+„Oft. Gerade nicht.“
+
+Taron spürte, wie die Kugel in seiner Hand heiß wurde.
+
+„Jetzt?“, fragte er.
+
+Merlan rief: „Jetzt wegwerfen!“
+
+Taron tat zum ersten Mal an diesem Tag genau im richtigen Moment, was ein Gelehrter sagte.
+
+Er warf die Kugel nicht weit. Nur weit genug, dass sie zwischen Menschen und Zwerge sprang, gegen eine Rille prallte und dort endgültig zerbarst.
+
+Diesmal wartete nichts mehr.
+
+Weißer Rauch fuhr heraus wie eine Entscheidung, die zu lange in einer Tasche gesteckt hatte. Er verschluckte Varga, Oswin, Brokk, den Eidstein, die falschen Bilder und für einen barmherzigen Augenblick auch Tarons Angst.
 
 „Nicht schlagen, wenn ihr nichts seht!“, brüllte Oswin.
 
@@ -19,6 +173,14 @@ Der Erzähler hustete in Tarons Kopf. Das war unmöglich und daher passend.
 „Kannst du husten?“
 
 „Ich solidarisiere mich atmosphärisch.“
+
+„Stoffkunde!“, rief Merlan, weil er offenbar sterben würde, bevor er ein falsches Wort unberichtigt ließ.
+
+Jemand brüllte: „Magie!“
+
+„Seltene Stoffkunde!“
+
+Der Erzähler sagte schwach: „Sein Mut ist lästig spezialisiert.“
 
 Taron konnte nichts sehen.
 
@@ -43,6 +205,86 @@ Elva bewegte sich im Rauch, als sei eine Küche voller Dampf, Gedränge und scha
 „Ich ersticke nicht. Ich reagiere.“
 
 „Dann reagiere schneller.“
+
+Taron hustete und griff nach Elvas Hand.
+
+Sie war da.
+
+Taron hielt sie zu fest.
+
+„Hand“, sagte Elva.
+
+„Was?“
+
+„Meine Hand. Ich brauche sie noch.“
+
+Er ließ lockerer. Das war schwieriger, als es hätte sein sollen. Der Rauch nahm ihm die Sicht, der Lärm nahm ihm die Richtung, und Elvas Hand war die einzige Landkarte, die nicht sofort gelogen hatte.
+
+„Entschuldigung.“
+
+„Später.“
+
+Dieses Später klang nicht wie Aufschub. Es klang wie ein Versprechen, dass es eins geben sollte.
+
+Taron hielt sich daran fest, während der Rauch dichter wurde und die Welt für einen Moment nur noch aus Hand, Husten und Richtung bestand.
+
+Mehr Orientierung hatte an diesem Tag ohnehin niemand verdient.
+
+Der Rauch brachte auch Erinnerungen mit.
+
+Nicht magisch, behauptete Merlan später mit beleidigter Ausdauer. Der Rauch habe keine Erinnerungen erzeugt. Er habe nur die Sinne verwirrt, die Augen gereizt, den Geruchssinn überlastet und dadurch innere Bilder begünstigt. Das war eine sehr gelehrte Art zu sagen, dass alle im Hof plötzlich Dinge sahen, die sie ohnehin mit sich herumtrugen.
+
+Taron sah den Dungeon, aber kleiner. Er sah sich selbst auf dem Boden, hörte die Stimme, die damals zu fern gewesen war. Dann sah er den Stall, den Donner, den Mantel. Sah Arvens Schrift. Sah die Stelle, an der aus Schutz beinahe Besitz geworden wäre.
+
+Oswin sah anderes. Taron wusste es, weil Oswin später eine Zahl vergaß. Nur eine. Aber der Ritter hielt mitten im Rauch inne, als habe jemand vor ihm einen Namen ausgesprochen, den er sonst nur innerlich benutzte. Ein junger Zwerg rannte auf ihn zu, Axt erhoben. Oswin hätte ihn einfach schneiden können. Stattdessen trat er in den Angriff hinein, packte den Zwerg am Riemen und warf ihn gegen eine Trage, auf der er fluchend, lebend und sehr beleidigt landete.
+
+„Elf“, sagte Oswin.
+
+Brokk rief: „Der war schon meiner!“
+
+„Dann beschwer dich beim Rauch!“
+
+Brokk tat es in Zwergisch. Der Rauch zeigte keine Reue.
+
+Elva sah Marta. Nicht wirklich, denn Marta war oben im Hof und fluchte vermutlich über Suppenverteilung in Kriegszeiten. Aber Elva hörte ihre Stimme: erst schneiden, dann reden; erst Topf vom Feuer, dann Schuld verteilen. Elva zog Taron mit einer Hand, Rugar mit der anderen und trat einem Mann, der ihr in den Weg fiel, nicht ins Gesicht, sondern gegen den Schildrand, sodass er zur Seite rollte.
+
+„Danke“, hustete der Mann.
+
+„Später besser liegen“, sagte Elva.
+
+Merlan sah Schrift. Das war nicht überraschend. Er sah sie aber nicht auf Pergament, sondern auf Menschen. Namen, Rollen, Lücken, falsche Titel. Er begann, sie laut zu sortieren, was einige Panische beruhigte und andere verwirrte. Beides war besser als Zuschlagen.
+
+„Lebend!“, rief Merlan, als er über einen Zwerg stolperte.
+
+„Was?“
+
+„Du bist lebend. Bleib es bitte zu Dokumentationszwecken.“
+
+Der Zwerg blieb so verdutzt liegen, dass zwei Menschen über ihn hinwegstiegen, ohne ihn zu treffen.
+
+„Zwölf!“, rief Taron.
+
+„Das ist kein System mehr!“, rief Oswin.
+
+„Es war nie eins!“
+
+„Dann funktioniert es erstaunlich gut!“
+
+Der Erzähler, sehr schwach, sagte: „Geschichte in einem Satz.“
+
+Im Rauch verloren Titel zuerst ihre Wirkung.
+
+Das war eine der wenigen anständigen Eigenschaften von Rauch. Ein König hustete wie ein Knecht. Ein Hauptmann tastete wie ein Kind. Ein Ritter, der eben noch mit sicherer Klinge eine Linie gehalten hatte, stieß mit dem Knie gegen einen Stein und fluchte so schlicht, dass jeder Barde enttäuscht gewesen wäre.
+
+„Links!“, rief Oswin.
+
+„Wessen links?“, rief Taron.
+
+„Das lebendige!“
+
+„Das ist keine Richtung!“
+
+Elva zog ihn nach rechts. Offenbar war das lebendige Links dort.
 
 Oswins Stimme kam aus dem Rauch. „Brokk, links!“
 
@@ -243,315 +485,3 @@ Varga starrte von einem zum anderen, als sei er in eine Schlacht geraten, in der
 Dann hustete Rugar ein zweites Mal.
 
 Diesmal öffnete er die Augen.
-
-Rugar sagte nichts.
-
-Gerade deshalb hörten viele hin. Ein König, der nach einer Schlacht schweigt, ist entweder tot, besiegt oder kurz davor, etwas zu sagen, das jemand bereuen wird. Rugar atmete. Seine Augen wanderten über den Hof, über Varga, Brokk, Oswin, Taron, Elva, über Menschen und Zwerge, die im Rauch standen und nicht wussten, ob sie einander noch töten sollten.
-
-Dann sah er seine eigenen Hände.
-
-Sie zitterten.
-
-Varga sank auf ein Knie. „Majestät.“
-
-Rugar sah ihn an, als müsse er den Namen erst aus weiter Ferne holen.
-
-„Varga.“
-
-Das reichte fast, um den Zwerg zu brechen.
-
-Brokk ging nicht zu Rugar. Noch nicht. Er blieb stehen, weil alle hinsahen und Rugar seinen ersten Atemzug ohne Niemand allein nehmen musste.
-
-Taron verstand das. Es war hart. Darum war es richtig.
-
-Der Erzähler sagte kaum hörbar: „Jetzt entscheidet er, ob er König ist oder nur leer.“
-
-„Und wenn er leer ist?“
-
-„Dann füllt ihn die nächste Stimme.“
-
-Taron griff nach der Glocke, aber sie lag bei der Mauer. Elva sah seine Bewegung.
-
-„Nein“, sagte sie. „Diesmal er.“
-
-Rugar hob langsam den Kopf.
-
-Sein Blick ging nicht zuerst zu Taron.
-
-Taron war erleichtert. Er war es leid, zuerst gesehen zu werden, wenn andere Leute entscheiden mussten, wer sie waren. Rugar sah zu Brokk. Dann zu Varga. Dann zu den Zwergen, die ihre Waffen noch hielten, obwohl ihre Arme zitterten.
-
-„Wer befiehlt?“, fragte Rugar.
-
-Varga antwortete automatisch: „Ihr, Majestät.“
-
-Rugar schloss die Augen. Der Satz tat ihm weh. Man sah es.
-
-„Nein“, sagte er. „Vor einem Atemzug befahl jemand durch mich. Und ihr gehorchtet.“
-
-Varga wurde blass.
-
-Brokk sagte leise: „Wir alle gehorchten irgendwem.“
-
-Rugar öffnete die Augen wieder. „Dann hört jetzt zu.“
-
-Der Rauch wurde dünner.
-
-Auf der Mauer standen Menschen mit gespannten Bögen. Im Hof standen Zwerge mit Äxten. Dazwischen Taron, Elva, Oswin, Brokk und ein König, der vielleicht zum ersten Mal seit Jahren einen eigenen Satz suchte.
-
-Der Erzähler flüsterte: „Wenn er jetzt falsch spricht, bricht es.“
-
-„Dann hoffen wir, dass er eine bessere Stimme findet.“
-
-Rugar sah zum Tor unter der Burg. Dort stand der Hunger im Schatten, halb sichtbar, halb Legende. Der alte Wächter hatte sich nicht in den Hof gedrängt. Er wartete. Vielleicht auf Befehl. Vielleicht auf Ende. Vielleicht nur darauf, dass endlich jemand verstand, dass Warten nicht dasselbe war wie Frieden.
-
-Rugar sah ihn lange an.
-
-„Ich ließ dich Monster nennen“, sagte er.
-
-Niemand wusste, ob er zum Hunger sprach, zu Brokk, zu Waldkirch oder zu sich selbst. Vielleicht zu allen.
-
-Der Hunger senkte den Kopf.
-
-Auf der Mauer ließ der erste Mensch den Bogen sinken, ohne Befehl. Ein kleiner Vorgang. Sehr gefährlich. Befehle konnten ihn noch zertreten.
-
-Taron hielt den Atem an.
-
-Rugar hob die Hand.
-
-Niemand schoss.
-
-Das dauerte nur einen Atemzug, aber ein Atemzug war manchmal ein ganzes Reich. Der Bogenschütze auf der Mauer hielt die Sehne gespannt, bis seine Finger zitterten. Varga hielt die Axt. Albrecht, irgendwo im Rauch, musste sehen, dass der Augenblick ihm entglitt.
-
-Rugar atmete ein.
-
-Taron dachte: Bitte.
-
-Er wusste nicht, an wen.
-
-Vielleicht an Rugar. Vielleicht an den Erzähler. Vielleicht an die Leute auf beiden Seiten, die noch eine Bewegung davon entfernt waren, wieder nur Befehle zu sein.
-
-Rugar senkte den Hammer.
-
-Nicht viel.
-
-Genug, dass die erste Axt im Hof ebenfalls sank.
-
-Danach eine zweite.
-
-Dann stockte es.
-
-Natürlich stockte es. Wer erwartete, dass Jahrhunderte aus Angst, Stolz, schlechten Abschriften, leeren Speichern und Totenlisten in einer einzigen schönen Bewegung die Waffen niederlegten, hatte vermutlich nie versucht, eine Familie zum gemeinsamen Abendessen zu bewegen.
-
-Ein Zwerg in der dritten Reihe hielt die Axt oben. Nicht aus Trotz allein. Seine Augen waren auf einen Menschen gerichtet, der ihm vor wenigen Atemzügen den Bruder vom Bein gezogen hatte. Der Bruder lag nun hinter ihm und atmete vielleicht. Vielleicht nicht. Der Mensch hielt wiederum den Speer oben, weil sein Vetter an der Mauer gefallen war und weil er gelernt hatte, dass ein Zwerg mit Axt keine Pause war, sondern eine kommende Wunde.
-
-Rugar sah sie beide.
-
-Albrecht auch.
-
-Taron sah, wie die beiden Könige begriffen, dass ein Befehl nach unten leichter war als Vertrauen zurück nach oben. Befehle sanken wie Steine. Vertrauen musste getragen werden.
-
-„Name“, sagte Rugar.
-
-Varga blinzelte. „Majestät?“
-
-Rugar zeigte auf den Zwerg mit der erhobenen Axt. „Sein Name.“
-
-Varga sah verwirrt, dann wütend, dann beschämt aus. „Kell. Sohn der Marn.“
-
-Rugar nickte langsam. „Kell, Sohn der Marn. Waffe nieder.“
-
-Der Zwerg zitterte. „Mein Bruder...“
-
-„Atmet“, rief Merlan vom Boden her, ohne aufzusehen. „Wahrscheinlich. Sicherer, wenn niemand ihn zur Bestätigung tritt.“
-
-Elva war schon bei dem verletzten Zwerg. Sie drückte ein Tuch auf seine Seite und sah zu Kell. „Er atmet. Wenn du weiter die Axt hebst, kann ich ihm schlechter helfen.“
-
-Kell senkte die Axt nicht sofort. Aber er sah zu seinem Bruder.
-
-Das reichte, damit der Mensch mit dem Speer unsicher wurde.
-
-Albrecht trat vor. Kein Glanz, keine Krone sichtbar unter Ruß und Rauch. Nur ein Mann, der zu spät lernte und noch immer Macht hatte.
-
-„Dein Name“, sagte er zu dem Menschen.
-
-Der Soldat schluckte. „Hanno, Majestät.“
-
-Taron erkannte ihn. Der Mann der Ziegenfrau. Der mit dem Bock, der am Banner gekaut hatte. Waldkirch war klein genug, dass selbst historische Augenblicke von Leuten bevölkert wurden, die man beim Vornamen kannte und deren Ziegen schlechte Manieren hatten.
-
-„Hanno“, sagte Albrecht. „Speer nieder.“
-
-Hanno sah zu Taron. Aus irgendeinem Grund zu Taron.
-
-Taron hob die Hände. „Ich habe heute keinerlei gute Autorität vorzuweisen.“
-
-„Sag trotzdem was“, sagte Elva.
-
-„Warum ich?“
-
-„Weil er dich ansieht.“
-
-Das war unfair, aber schwer zu widerlegen.
-
-Taron sah Hanno an. Dann Kell. „Wenn ihr beide jetzt senkt, seid ihr nicht die Ersten, die nachgeben. Ihr seid die Ersten, die jemandem Arbeit übrig lassen.“
-
-Hanno runzelte die Stirn. „Was?“
-
-„Heilen. Zählen. Wasser tragen. Sich später noch richtig beschweren. Alles Dinge, die schwerer werden, wenn ihr euch gegenseitig umbringt.“
-
-Der Erzähler sagte schwach: „Eine Rede wie ein schlecht geschliffener Löffel. Nicht schön, aber sie erreicht Suppe.“
-
-Hanno senkte den Speer.
-
-Kell senkte die Axt.
-
-Kein Lied hätte diesen Augenblick genommen. Zu viele Leute husteten. Elva hatte Blut am Ärmel. Merlan lag halb unter einer Bank und notierte wahrscheinlich innerlich, dass Namen wirkungsvoller waren als abstrakte Befehle. Aber im Hof senkten zwei weitere Waffen.
-
-Und diesmal sahen es alle.
-
-Albrecht drehte sich zu seinen Leuten. „Namen weitergeben. Wer die Waffe noch hält, wird beim Namen gerufen.“
-
-Greve, der irgendwo am Tor lehnte und aussah, als habe sein Bein eine eigene politische Meinung entwickelt, rief: „Ihr habt den König gehört.“
-
-„Welchen?“, rief jemand.
-
-Eine sehr berechtigte Frage.
-
-Albrecht sah zu Rugar.
-
-Rugar sah zurück.
-
-Für einen gefährlichen Atemzug hätte jeder der beiden die alte Ordnung wieder aufheben können. Mein Befehl. Meine Leute. Meine Deutung. Stattdessen sagte Rugar: „Beide.“
-
-Albrecht nickte.
-
-„Beide“, wiederholte Greve, als schmecke das Wort nach etwas, das er nicht bestellt hatte.
-
-Varga hob die Stimme auf Zwergisch. Brokk setzte auf Menschensprache nach. Oswin übersetzte nicht genau, sondern brauchbar, was wahrscheinlich die höchste Kunst des Übersetzens war.
-
-Namen wanderten durch den Hof.
-
-Nicht alle stimmten. Ein Waldkircher rief einen Zwerg „du da mit dem kaputten Helm“, worauf der Zwerg antwortete, sein Helm sei nicht kaputt, sondern historisch belastet. Der Waldkircher sagte dann „historisch belasteter Helm“, und beide wirkten damit unzufrieden, aber lebendig.
-
-Eine junge Zwergin senkte ihr Messer erst, als Marta aus dem Rauch trat und sagte: „Du mit der Schnittwunde am Ohr, entweder du lässt mich da dran oder ich nähe es dir später an die falsche Stelle.“
-
-Die Zwergin senkte das Messer.
-
-„Wie heißt du?“, fragte Marta.
-
-„Rina.“
-
-„Gut, Rina. Hinsetzen.“
-
-Rina setzte sich.
-
-Taron sah dem zu und dachte, dass Könige vielleicht nützlich waren, aber Marta an diesem Tag schneller regierte.
-
-Der Hunger von Waldkirch stand im Tor.
-
-Er hatte sich nicht bewegt, seit Rugar gesprochen hatte. Doch nun, als Namen durch den Hof gingen, veränderten sich die Zeichen unter seiner Haut. Sie glommen nicht mehr wild. Sie liefen langsamer, von Narbe zu Narbe, als suchten sie alte Wege.
-
-Merlan sah es und richtete sich so hastig auf, dass er sofort wieder bereute, einen Körper zu besitzen.
-
-„Namen“, sagte er.
-
-„Das haben wir bemerkt“, sagte Taron.
-
-„Nein. Der Wächter reagiert auf Namen. Nicht auf Titel. Nicht auf Befehle.“
-
-Elva sah zum Hunger. „Mara.“
-
-Der alte Wächter hob den Kopf.
-
-Alle in ihrer Nähe verstummten.
-
-Elva wiederholte den Namen nicht lauter. Sie stellte ihn nur in die Luft, vorsichtig, wie man eine Schale an eine Bettkante stellte.
-
-„Mara“, sagte sie. „Die den Hunger band.“
-
-Der Hunger gab einen Laut von sich, der beinahe Weinen war und beinahe Steinbruch. Einige Menschen wichen zurück. Einige Zwerge auch. Niemand lachte.
-
-Rugar starrte den Wächter an. Albrecht ebenfalls.
-
-„Wir haben ihn ohne Namen gehalten“, sagte Albrecht.
-
-„Und wir haben nach einem Recht ohne Namen gesucht“, sagte Rugar.
-
-Ansel, die inzwischen aus dem Saal gekommen war und offenbar beschlossen hatte, dass Verletzungen anderer Leute kein Grund waren, nicht zu widersprechen, sagte: „Dann sollten Eure Majestäten vielleicht mit Namen anfangen und Titel später benutzen.“
-
-Albrecht sah sie an. „Ihr seid sehr hartnäckig.“
-
-„Ich bin alt. Es wäre Verschwendung, jetzt noch gefällig zu werden.“
-
-Der Erzähler sagte in Tarons Kopf: „Ich verehre diese Frau gegen meinen Willen.“
-
-„Ich weiß“, dachte Taron.
-
-„Sag es ihr nicht.“
-
-„Sie weiß es wahrscheinlich.“
-
-Der Erzähler schwieg in einer Art, die nicht falsch war, sondern beleidigt.
-
-Taron stand zwischen Rauch, Namen und sinkenden Waffen und merkte, dass die Stille nicht kam, weil alle auf einmal gut geworden waren. Sie kam, weil genug Leute für einen Atemzug die Hand des anderen als Hand sahen, nicht als Teil einer Seite.
-
-Das war kleiner als Erlösung.
-
-Es war auch seltener.
-
-Und für einen Atemzug wagte niemand, diesen kleinen Anfang zu erschrecken.
-
-Danach mussten sie ihn mit beiden Händen festhalten.
-
-Albrecht trat aus dem Rauch, bevor der Anfang stark genug war.
-
-Natürlich tat er das. Könige hatten ein Talent dafür, in Augenblicken aufzutauchen, in denen Menschen gerade begannen, ohne sie zu handeln. Er war nicht feige gewesen. Sein Ärmel war blutig, seine Stimme heiser, und an seiner Stirn klebte Ruß. Das machte ihn gefährlich auf eine andere Art: Er konnte jetzt glauben, dass sein Leiden ihn automatisch klüger gemacht hatte.
-
-„Was geschieht hier?“, rief er.
-
-Niemand antwortete sofort.
-
-Rugar stand schwankend, gestützt von Brokk und Varga zugleich. Die beiden Zwerge bemerkten das erst, als Albrecht es sah. Varga wollte loslassen. Brokk hielt ihn mit einem Blick fest.
-
-„Die Waffen sinken“, sagte Taron.
-
-„Auf wessen Befehl?“
-
-Taron sah zu Rugar.
-
-Rugar sah zu Albrecht.
-
-Der Rauch zwischen ihnen war dünner geworden, aber noch dicht genug, dass beide Könige nicht wie Bilder wirkten. Sie wirkten wie Männer, die zu wenig geschlafen, zu viel befohlen und gerade erst gemerkt hatten, dass die Welt nicht verpflichtet war, ihre Fehler feierlich zu sortieren.
-
-„Auf meinen“, sagte Rugar.
-
-Albrecht griff an den Griff seines Schwertes.
-
-Der Hof hielt den Atem an.
-
-„Und auf keinen“, sagte Taron schnell. „Weil vielleicht einmal reicht, wenn Leute aufhören, nur wegen Befehlen etwas zu tun.“
-
-Malchior tauchte hinter Albrecht auf, hustend, die Abschrift an die Brust gepresst. „Majestät, Vorsicht. Dies kann eine List sein.“
-
-Ansel war nicht da, um ihm zu widersprechen. Also tat Elva es.
-
-„Alles kann eine List sein, wenn man feige genug liest.“
-
-Malchior sah sie an, als habe eine Pfanne gesprochen.
-
-„Das Küchenmädchen“, sagte er.
-
-„Elva“, sagte Taron.
-
-Es war nur ihr Name. Aber er blieb im Hof stehen.
-
-Rugar senkte den Hammer weiter. Diesmal sahen es alle.
-
-„Ich hörte eine Stimme“, sagte er. „Sie klang wie Schutz. Sie machte aus jeder Angst einen Befehl. Wenn ich heute noch König bin, dann beginne ich damit, diesem Befehl zu widersprechen.“
-
-Varga starrte ihn an.
-
-Brokk schloss die Augen.
-
-Albrecht sagte nichts.
-
-Und weil er nichts sagte, senkte ein zweiter Bogenschütze auf der Mauer den Bogen.
