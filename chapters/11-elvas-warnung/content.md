@@ -126,7 +126,7 @@ Oswin blickte von der Abschrift auf. „Woher hast du das?“
 
 Taron sah sie an.
 
-„Bruder Helmbrecht ist fast siebzig“, sagte sie. „Aber sein Knie ist voller Zorn.“
+„Bruder Helmbrecht ist fast siebzig“, sagte sie.
 
 Unter anderen Umständen hätte Taron gelacht. Jetzt spürte er nur den Schlüssel auf seiner Haut.
 
@@ -246,7 +246,7 @@ Der Gedanke war noch dünn, aber er bekam Form, während Taron sprach. Waldkirch
 
 Oswin begriff zuerst, was Taron meinte.
 
-„Du willst die Rolle spielen.“
+„Du willst eine Rolle spielen.“
 
 „Kurz.“
 
@@ -255,14 +255,6 @@ Oswin begriff zuerst, was Taron meinte.
 „Dann schneidest du sie ab.“
 
 Oswin betrachtete ihn. „Wenn ich darf.“
-
-„Ich werde versuchen, rechtzeitig zu nicken.“
-
-Der Erzähler sagte: „Der gefährlichste und zugleich brauchbarste Gedanke, den du bisher hattest.“
-
-„Bitte sag nicht, dass ich das schon einmal versucht habe.“
-
-„Ich bewundere deine Bereitschaft, aus Misserfolg Tradition zu machen.“
 
 Elva lächelte zum ersten Mal an diesem Abend. Nur kurz. Taron sah es trotzdem.
 
