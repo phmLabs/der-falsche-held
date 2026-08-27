@@ -120,8 +120,6 @@ Oswin wartete.
 
 „Das war etwas.“
 
-„Wenig.“
-
 Sie ritten weiter.
 
 Bis zum Burgtor hatten sich zwanzig Menschen versammelt. Dann fünfzig. Dann mehr. Jemand läutete eine Glocke, zuerst eine kleine am äußeren Wachhaus, dann antwortete eine größere aus der Burg. Das Läuten lief über Waldkirch wie ein Befehl, der vorgab, Freude zu sein.
@@ -152,21 +150,11 @@ Greves Blick fiel auf Oswin, auf Tarons schmutzigen Mantel, auf den Verband an s
 
 Taron holte den Menschenschlüssel nicht heraus.
 
-Noch nicht.
-
 „Ich muss zum König.“
 
 Der Vogt trat vor. „Natürlich. Unverzüglich. Unter Schutz.“
 
 Taron sah ihn an.
-
-„Sagt dieses Wort nicht.“
-
-Der Vogt blinzelte.
-
-Oswin trat hinter Taron.
-
-Das half dem Vogt beim Blinzeln.
 
 Sie führten ihn durch den Hof.
 
