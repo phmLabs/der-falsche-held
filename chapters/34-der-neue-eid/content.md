@@ -544,6 +544,46 @@ Marta übernahm die Küche, weil niemand sonst verstand, dass Waffenstillstand o
 
 Elva gehorchte widerwillig. Das war die einzige Art, wie sie gehorchte, und Marta nahm sie als Erfolg.
 
+Am späten Nachmittag kam ein Mann zu Fuß über die Südstraße.
+
+Er trug keine sichtbare Waffe, keinen Wappenrock und einen Mantel, der zu oft geflickt worden war, um noch eine Farbe zu haben. Die Torwachen hielten ihn an. Er sagte einen einzigen Satz. Danach holten sie Taron.
+
+Taron erkannte das Gesicht erst an der schlecht verheilten Narbe an der Lippe.
+
+Neral trug keine Maske mehr. Ohne sie war er kleiner, älter und sehr viel müder, als Taron ihn in Erinnerung hatte. Vielleicht war das der eigentliche Zweck von Masken: Sie machten aus Erschöpfung Bedrohung.
+
+„Du lebst“, sagte Neral.
+
+„Das sagen heute viele. Es klingt jedes Mal wie ein Vorwurf.“
+
+„Es ist einer.“
+
+Neral sah über den Hof. Die Verwundeten. Die Listen. Die Zwerge an den Wassereimern. Das offene Tor unter der Burg, vor dem ein alter Wächter lag.
+
+„Wir haben den Rauch gesehen“, sagte er. „Drei Tage Weg. Wir sind zu spät.“
+
+„Ihr wart nicht eingeladen.“
+
+„Wir waren geschworen.“
+
+Darauf hatte Taron keine gute Antwort, also gab er die einzige, die er hatte.
+
+„Er ist frei.“
+
+Neral schloss die Augen.
+
+Er sagte nichts über Schuld. Nichts über Warnungen, die niemand ernst genommen hatte. Nichts über drei Schlüssel, die ein Stallbursche fortgetragen hatte, obwohl man es ihm ausdrücklich untersagt hatte. Später dachte Taron, dass genau darin der Unterschied zwischen Neral und Malchior lag. Der eine hätte aus diesem Augenblick eine Lehre gemacht.
+
+„Dann fangt ihr jetzt an, was wir aufgegeben haben“, sagte Neral.
+
+„Was denn?“
+
+„Wachen. Ohne Masken diesmal. Sonst vergesst ihr in zwei Generationen wieder, warum.“
+
+Er setzte sich zu Ansel und Merlan an den Tisch, nahm eine Schale Suppe, die er nicht bestellt hatte, und begann Namen zu nennen, die in keiner Waldkircher Abschrift standen.
+
+Merlan war für den Rest des Abends nicht ansprechbar.
+
 Rugar und Albrecht standen später vor dem offenen Tor zum Dungeon. Keiner von beiden trat hinab. Noch nicht. Beide sahen den alten Wächter liegen und mussten begreifen, dass ihre Reiche auf einem Gefangenen gebaut hatten, den sie Monster nannten, weil der andere Name zu teuer gewesen wäre.
 
 „Wir werden hinuntergehen müssen“, sagte Rugar.

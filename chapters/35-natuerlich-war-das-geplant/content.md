@@ -224,6 +224,42 @@ Taron dachte nach. „Ja. Nein. Später.“
 
 Elva nickte, als sei das eine vollständige Antwort. Vielleicht war sie es heute.
 
+Sie saßen eine Weile, ohne dass einer von ihnen etwas Nützliches sagte.
+
+Taron dachte an den Straßenrand hinter dem Hügel. An trockenes Brot, ein Pferd namens Kummer und den Augenblick, in dem er sich zum ersten Mal eingestanden hatte, dass er sie liebte. Damals war das ein völlig unpraktischer Gedanke gewesen. Seitdem hatte er einen Turm, zwei Heere, drei Schlüssel und einen Dämon dazwischengeschoben, und der Gedanke war nicht kleiner geworden.
+
+Nur genauer.
+
+Er hätte es sagen können. Der Abend war ruhig, die Welt machte gerade Pause, und Elva saß nah genug, dass er die Wärme durch den Mantel spürte.
+
+„Elva.“
+
+„Ja?“
+
+Der Erzähler sagte nichts.
+
+Das war, wie Taron später fand, das Anständigste, was er in dieser ganzen Geschichte getan hatte.
+
+„Iss dein Brot“, sagte Taron.
+
+Elva sah ihn an. Nicht überrascht. Eher wie jemand, der ein Fass kippen hört und ausrechnet, wann es unten ankommt.
+
+„Das war nicht, was du sagen wolltest.“
+
+„Nein.“
+
+„Sagst du es irgendwann?“
+
+„Vermutlich zu spät und an einem sehr schlechten Ort.“
+
+„Das würde zu dir passen.“ Sie nahm ihm das Brot noch einmal ab, brach es und gab ihm diesmal die kleinere Hälfte zurück, was eindeutig eine Strafe war. „Ich warte trotzdem.“
+
+Taron sah in den Hof.
+
+Es war kein Geständnis.
+
+Aber es war ein Termin.
+
 Unter ihnen trat Merlan aus dem Saal, eine Rolle unter dem Arm und Tinte an der Wange. Er sah hinauf, entdeckte Taron und winkte mit der Rolle.
 
 Das wirkte bedrohlich.
