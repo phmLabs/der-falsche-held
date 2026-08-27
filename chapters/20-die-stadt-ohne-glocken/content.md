@@ -351,6 +351,34 @@ Falkenried.
 
 „Zu spät.“
 
+Elva stand sehr still.
+
+„Der Graben“, sagte sie.
+
+Taron sah sie an.
+
+„Die Frauen im Graben. Ich habe sie nach dem Weg gefragt. Nach Ellingen. Vor drei Leuten, die nichts mehr hatten außer dem, was sie jemandem erzählen konnten.“
+
+Oswin sagte nichts, was Antwort genug war.
+
+„Du hast es gewusst.“
+
+„Ich habe es vermutet.“
+
+„Und nichts gesagt.“
+
+„Du hattest es schon gesagt.“
+
+Elva sah auf ihre Hände. Taron kannte den Blick nicht an ihr. Er kannte ihn von sich.
+
+„Ich wollte ihnen etwas geben“, sagte sie. „Es gab nichts zu geben. Also habe ich sie gefragt. Es war das Klügste, was ich den ganzen Tag gemacht habe, und es hat Varga hergebracht.“
+
+„Er wäre gekommen“, sagte Brokk.
+
+„Morgen. Übermorgen. Nicht heute.“
+
+Niemand widersprach ihr, weil sie recht hatte.
+
 Taron sah durch den Fensterriss auf das Tuch mit dem Vogel.
 
 Es war kein gutes Bild. Wer es gezeichnet hatte, hatte einen Falken nie aus der Nähe gesehen: Der Kopf war zu rund, die Krallen zu kurz. Aber die Haltung stimmte, und die Haltung war das, was sie brauchten.
@@ -406,6 +434,16 @@ Ansel stand auf, und dabei sah man ihr Alter zum ersten Mal.
 „Und wenn sie diesmal genauer fragen?“
 
 „Dann antworte ich diesmal genauer.“ Sie sagte es ohne Heldenhaftigkeit, so wie man sagt, dass man abends noch Wasser holen muss. „Ihr habt die Glocke. Das ist der Teil, der weiter muss.“
+
+„Er ist meinetwegen heute hier“, sagte Elva.
+
+Ansel sah sie an, und sie machte es nicht weicher.
+
+„Er ist wegen des Schlüssels hier. Du hast ihm einen Tag gespart.“
+
+„Das ist kein Trost.“
+
+„Es sollte keiner sein.“ Ansel nahm den Faden wieder auf. „Wer hilft, macht Fehler, die man sehen kann. Wer nicht hilft, macht welche, die man nicht sieht. Ich habe neunundzwanzig Jahre die zweite Sorte gemacht. Geh.“
 
 Brokk sagte etwas auf Zwergisch. Es war kurz, und Ansel antwortete in derselben Sprache, langsamer und mit einem Fehler, den Brokk hörte und stehen ließ.
 

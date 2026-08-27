@@ -252,7 +252,7 @@ Taron gab ihnen Brot. Nicht viel. Sie hatten selbst kaum genug. Aber Elva schnit
 
 Bevor sie gingen, tat Elva noch etwas, das Taron nicht verstand, bis es zu spät war, es zu verhindern.
 
-Sie fragte die Frauen nach dem Weg.
+Sie fragte die Frauen nach dem Weg nach Ellingen.
 
 Nicht weil sie ihn brauchte. Brokk kannte den Weg besser als jede Karte. Aber die Frauen erklärten ihn ausführlich, mit Streit über eine Abzweigung und einem längeren Einschub über einen Bach, der seit zwei Jahren woanders lief, und dabei richteten sie sich auf und wurden lauter, und der alte Mann legte irgendwann das Messer weg, weil er beide Hände zum Zeigen brauchte.
 

@@ -14,6 +14,20 @@ Merlan bemerkte seinen Blick und stellte wortlos Schalen auf den Tisch. Das war 
 
 „Dann ist der Satz vollständig angekommen.“
 
+Merlan legte einen kleinen, mehrfach gefalteten Zettel neben Tarons Schale.
+
+„Vorgestern. Auf meinem Schornstein, was ich dem Vogel nicht empfohlen hätte. Der Priester schreibt an alle, die lesen können: Der Auserwählte ist bei Antreffen in Obhut zu nehmen und nach Waldkirch zu geleiten.“
+
+Taron sah auf den Zettel und aß weiter, weil ihm nichts Besseres einfiel. „An alle, die lesen können.“
+
+„Ja. Er hat auch einen an den Wirt geschickt. Der Wirt kann nicht lesen und hat den Raben gebraten.“
+
+„Und Ihr?“
+
+„Ich habe ihn gefüttert. Man bestraft keine Boten. Man liest nur nicht alles, was sie bringen, mit der Haltung, die der Absender sich wünscht.“
+
+Elva sah den Zettel an, als wolle sie prüfen, ob dieselbe Hand ihn geschrieben hatte wie den Erlass, den sie abgeschrieben hatte. Dann drehte sie ihn um, ohne ihn zu lesen.
+
 Brokk aß im Stehen. Oswin aß am Fenster. Elva aß erst, nachdem sie gesehen hatte, dass alle anderen eine Schale hatten. Taron bemerkte es und sagte nichts, weil manche Wahrheiten durch Aussprechen kleiner wurden. Merlan gab ihr trotzdem die größte Portion, ohne hinzusehen. Vielleicht war er nicht warm. Aber er war aufmerksam, und das war in seinem Haus fast dasselbe.
 
 Draußen ging Regen gegen die Scheiben. Hohensteg wirkte durch das Glas wie ein Ort, der beschlossen hatte, heute nicht in alte Angelegenheiten verwickelt zu werden. Das war klug von Hohensteg und völlig wirkungslos.

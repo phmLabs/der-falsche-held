@@ -2,3 +2,4 @@
 - Koenig Albrecht und Malchior sehen Taron als notwendiges Opfer, nicht als Menschen.
 - Taron wird dadurch nicht mutiger, sondern klarer verletzt.
 - Elva macht deutlich, dass sie ihn nicht wegen einer Prophezeiung gesucht hat, sondern weil er Taron ist.
+- Elvas Riss wird benannt: Milch und Wegfrage sind dasselbe Muster. Sie tut etwas Kleines, weil es richtig aussieht, und die Welt wird groesser und schlechter. "Zweimal, von dem ich weiss." Sie geht trotzdem mit, weil sie den Fehler sonst nicht einmal sieht.

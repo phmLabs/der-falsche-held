@@ -663,29 +663,7 @@ Elva drehte sich vor ihm halb um. Ihre Lampe war fast aus. „Taron, wenn ich au
 
 „Dann verspreche ich, dich daran zu erinnern.“
 
-Der Gang wurde so niedrig, dass sie die letzten Meter kriechen mussten. Taron spürte den Dolch an seiner Seite, den Menschenschlüssel unter dem Hemd und die Rauchkugel im Beutel. Für einen winzigen Moment griff seine Hand zur Kugel.
-
-Wenn Merlans kostbares Wunderding irgendetwas konnte, dann vielleicht einen Fluchtweg voller Zwerge, Angst und sehr feuchter Knie in eine andere Lage verwandeln.
-
-„Nicht hier“, sagte Oswin hinter ihm sofort.
-
-Taron erstarrte. „Was?“
-
-„Die Kugel. Wenn du sie hier zerbrichst, sehen wir auch nichts mehr. Atmen vielleicht auch nicht. In engen Gängen ist Rauch kein Freund.“
-
-„Ich wollte sie gar nicht nehmen.“
-
-„Deine Hand hat eine andere Meinung.“
-
-Taron zog die Hand zurück. „Meine Hand arbeitet gegen mich.“
-
-„Dann führ sie besser.“
-
-„Das verzögert sie?“, fragte Taron.
-
-„Kurz.“
-
-„Kurz ist heute ein sehr beliebtes Maß.“
+Der Gang wurde so niedrig, dass sie die letzten Meter kriechen mussten. Taron spürte den Dolch an seiner Seite, den Menschenschlüssel unter dem Hemd und die Rauchkugel im Beutel, und ließ alle drei, wo sie waren. In einem Gang, in dem man kaum atmen konnte, war Rauch kein Freund. Das hatte ihm niemand sagen müssen, und er war darauf beinahe stolz.
 
 Der Gang endete in einer niedrigen Höhle. Von oben fiel graues Licht durch einen Riss. Draußen musste der Abend beginnen. Wasser tropfte in eine flache Rinne und floss nach Süden.
 

@@ -2,3 +2,4 @@
 - Die Stadt wirkt friedlich, aber alle Glocken wurden entfernt, weil ihr Klang alte Eidzeichen weckt.
 - Zwischen Hunger, Besatzung und stillen Bewohnern finden sie Hinweise auf das Eidenschloss.
 - Eine alte Schreiberin bestaetigt, dass die drei Schluessel einst nur gemeinsam benutzt werden durften.
+- Elva begreift, dass ihre Frage nach dem Weg im Graben (Kapitel 19) Varga einen Tag frueher nach Ellingen gebracht hat. Ansel macht es nicht weicher: "Wer hilft, macht Fehler, die man sehen kann."

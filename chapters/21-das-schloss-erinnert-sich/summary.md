@@ -2,3 +2,4 @@
 - Merlan, Brokk und der Erzaehler deuten das Eidenschloss aus unterschiedlichen Blickwinkeln.
 - Der Weinfleck in der Prophezeiung wird wichtiger: verdeckt ist nicht, dass Freiheit kommt, sondern wem sie gilt.
 - Das Eidenschloss erscheint nicht als Werkzeug, sondern als Gefaengnis, das sich an seine Schluessel erinnert.
+- Malchiors Botenraben aus Kapitel 12 kommen an: Merlan zeigt den Zettel (Obhut bei Antreffen). Der Wirt konnte nicht lesen und hat seinen Raben gebraten; Merlan hat seinen gefuettert.

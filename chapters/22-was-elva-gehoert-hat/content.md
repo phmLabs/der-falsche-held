@@ -72,6 +72,24 @@ Elva trat näher. „Ich habe dich mit der Milch in diese Sache gestoßen.“
 
 „Ich habe gelacht. Ich habe es weitererzählt. Ich dachte, es sei ein Küchenwitz, und dann standen plötzlich Priester da.“
 
+Sie sah auf den Graben.
+
+„Und im Graben vor Ellingen habe ich nach dem Weg gefragt, weil ich drei Frauen etwas geben wollte, und dann stand Varga in der Stadt, und Ansel sitzt jetzt in einem Haus mit Drähten an der Tür.“
+
+„Das war –“
+
+„Sag nicht, das war nichts.“ Ihre Stimme wurde nicht laut. Sie wurde genau. „Ich mache das. Ich tue etwas Kleines, weil es richtig aussieht, und danach ist die Welt größer und schlechter, und ich stehe daneben mit einem Eimer.“
+
+Taron wusste, dass es Sätze gab, die man nicht wegreden durfte, weil derjenige, der sie sagte, sie schon zu lange getragen hatte, um sie sich abnehmen zu lassen.
+
+„Zweimal“, sagte er.
+
+„Zweimal, von dem ich weiß.“
+
+„Und trotzdem gehst du weiter mit.“
+
+„Ja.“ Sie sah ihn an. „Weil ich das eine gelernt habe: Wenn ich stehen bleibe, macht jemand anders den Fehler, und ich sehe ihn nicht einmal.“
+
 „Elva.“
 
 „Ich bin nicht gekommen, weil du ein Held bist.“
