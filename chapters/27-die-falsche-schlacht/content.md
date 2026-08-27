@@ -186,6 +186,66 @@ Der Erzaehler sagte: "Regelbildung in der Schlacht. Der Zivilisation geht es bes
 
 Am Ende erreichten sie das Tor zu den unteren Gaengen.
 
+Ende war ein grosszuegiges Wort. Sie erreichten das Tor in dem Sinn, in dem ein angeschlagener Becher den Tischrand erreicht: mit Laerm, Verlusten und der unmittelbaren Gefahr, gleich doch noch zu fallen.
+
+Vor dem Tor lag Hauptmann Greve mit einer Wunde am Bein. Er versuchte, sich aufzurichten, und zielte mit dem Schwert auf Brokk.
+
+"Weg von der Tuer."
+
+Brokk blieb stehen. "Unter der Burg liegt, was beide Heere hierher gezogen hat."
+
+"Dann bleibt es unter der Burg."
+
+"Das hat die letzten zehn Jahre hervorragend funktioniert", sagte Taron.
+
+Greve sah ihn an. "Du."
+
+"Ja. Leider bin ich heute oft die Antwort."
+
+Elva kniete sich zu Greves Bein, obwohl er noch immer das Schwert hielt. "Wenn Ihr damit nach Brokk stecht, faellt Ihr um und verblutet schlechter."
+
+"Schlechter?"
+
+"Unordentlicher."
+
+Greve starrte sie an. Dann senkte er das Schwert um zwei Fingerbreit.
+
+Merlan beugte sich ueber das Schloss am Tor. "Das ist nicht der Vorratskellereingang."
+
+"Du sagtest, du haettest einen Schluessel."
+
+"Ja. Ich sagte nicht, dass die Tuer ehrlich bleibt."
+
+Der Schutzschluessel gab einen Ton von sich. Leise, aber alle in der Naehe spürten ihn. Greve zog scharf Luft ein. An der Torangel flammte ein altes Zeichen auf, das unter Rost verborgen gewesen war.
+
+Brokk legte den Zwergenschluessel dagegen.
+
+Taron den Menschenschluessel.
+
+Elva hielt den Schutzschluessel nicht an das Schloss, sondern zwischen beide.
+
+"Keiner allein", sagte sie.
+
+Die drei Zeichen trafen sich.
+
+Greve sah zu. "Was seid ihr?"
+
+Taron dachte an alle Antworten, die ihm andere gegeben hatten: Auserwaehlter, Opfer, falscher Held, Traeger.
+
+"Gerade beschaeftigt", sagte er.
+
+Das Tor knirschte.
+
+Von draussen kam ein neuer Schrei, dann Vargas Stimme irgendwo im Hof.
+
+"Brokk!"
+
+Brokks Gesicht wurde hart.
+
+"Er ist durch."
+
+Oswin stellte sich zwischen Hof und Tor. "Dann schneller."
+
 Merlan zog einen alten Schluessel hervor. Taron starrte ihn an.
 
 "Du hattest einen Schluessel zur Burgunterwelt?"
@@ -213,3 +273,83 @@ Taron wollte eine spitze Antwort geben.
 Er fand keine.
 
 Also ging er.
+
+Der erste Schritt in die Tiefe war der schwerste, weil er aussah wie Wiederholung. Taron hatte gehofft, sein Leben wuerde wenigstens neue Fehler anbieten. Stattdessen bekam er denselben Abstieg, denselben Geruch, denselben Stein unter den Fingern.
+
+Nur die Stimmen waren anders.
+
+Oben rief Oswin Befehle. Brokk antwortete auf Zwergisch. Elva ging direkt hinter Taron und fluchte leise, als ihr Kleid an einem Splitter haengen blieb. Merlan murmelte etwas ueber tragende Mauern und untragbare historische Nachlaessigkeit.
+
+"Diesmal bist du nicht allein", hatte der Erzaehler gesagt.
+
+Taron hielt sich daran fest, obwohl er der Stimme gerade nicht vollstaendig traute. Vielleicht musste Vertrauen nicht vollstaendig sein, um ein Seil abzugeben. Vielleicht reichte ein Knoten.
+
+Hinter ihnen krachte das Tor. Jemand schob einen Balken vor, nicht um sie einzusperren, sondern um ihnen Zeit zu kaufen.
+
+Zeit war in Waldkirch an diesem Tag die knappste Ware nach Brot und Vernunft.
+
+Taron ging weiter hinab.
+
+Nach wenigen Stufen wurde der Laerm oben dumpfer. Nicht leiser, nur weniger menschlich. Schreie wurden zu Stössen in der Decke, Metall zu fernem Hagel. Taron merkte, dass sein Koerper den Dungeon wiedererkannte. Seine Schultern zogen sich hoch, sein Atem wurde flach, seine Hand suchte eine Wand, die damals nicht geholfen hatte.
+
+"Ich bin hier", sagte Elva hinter ihm.
+
+"Ich weiss."
+
+"Nein. Du vergisst es gerade."
+
+Sie hatte recht. Das aergerte ihn und hielt ihn zugleich aufrecht.
+
+Merlan kam hinter ihr, keuchend. "Falls jemand Interesse an einer sachlichen Einordnung hat: alte Untergeschosse wurden haeufig mehrfach ueberbaut, sodass der Weg zum eigentlichen Kern selten dem spaeteren Grundriss folgt."
+
+"Merlan", sagte Oswin von oben.
+
+"Ja?"
+
+"Kuerzer."
+
+"Die Burg luegt ueber ihre eigene Tiefe."
+
+Der Erzaehler sagte: "Endlich ein Satz fuer die Wand."
+
+Taron ging weiter. Diesmal nicht, weil er musste. Weil hinter ihm Leute waren, die ihm folgten.
+
+Und weil ueber ihm Leute blieben.
+
+Das war der Gedanke, der ihn auf der naechsten Treppe fast stolpern liess. Broda, Senn und Lorn hielten oben mit Oswin und Brokk eine Tuer, die fuer sie alle zu schmal war. Marta gab irgendwo Wasser aus. Jost stand mit einem Speer auf einer Mauer, auf der niemand mit seinem Alter haette stehen sollen. Greve lag am Tor und liess sie passieren, obwohl er nicht verstand, warum.
+
+Taron war nicht mutiger geworden.
+
+Er war nur schlechter darin, so zu tun, als haenge sein Weg nur an ihm.
+
+"Das ist Gewissen", sagte der Erzaehler.
+
+"Ich dachte, Gewissen fuehlt sich edler an."
+
+"Nein. Meistens fuehlt es sich an wie zusaetzliches Gewicht an einem ohnehin schlechten Hang."
+
+"Dann habe ich viel davon."
+
+"Endlich eine realistische Selbsteinschaetzung."
+
+Elva stiess ihm in den Ruecken. "Wenn ihr beide fertig seid, die Treppe philosophisch zu verschlechtern: weiter."
+
+Taron ging weiter.
+
+Diesmal zaehlte jeder Schritt.
+
+Oben schlug etwas Schweres gegen das Tor. Der Balken hielt. Noch. Taron hoerte Brokk auf Zwergisch brüllen und Oswin auf Menschlich, und beides klang nach derselben Bitte in unterschiedlicher Ruestung: nicht durchlassen, nicht sterben, nicht vergessen, warum.
+
+Elva atmete hinter ihm schneller. "Weiter."
+
+"Ich gehe."
+
+"Du denkst."
+
+"Das passiert manchmal beim Gehen."
+
+"Dann geh lauter mit den Fuessen und leiser mit dem Kopf."
+
+Der Erzaehler sagte: "Ich fuehle mich in meiner Aufgabe bedroht."
+
+Taron nahm die naechste Stufe.

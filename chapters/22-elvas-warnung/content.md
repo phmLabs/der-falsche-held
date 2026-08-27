@@ -186,6 +186,66 @@ Sie gingen zu den anderen zurueck. Taron fuehlte sich nicht leichter. Eher genau
 
 Sie gingen weiter.
 
+Am Abend fanden sie Schutz in einer Scheune, die nur noch halb Dach hatte und trotzdem mehr Gastfreundschaft bot als manche Burg. Ein Bauer erlaubte ihnen zu bleiben, nachdem Oswin bezahlte, Brokk draussen wartete und Elva dem Mann zeigte, wie man aus seinen letzten Rüben eine Suppe machte, die nicht wie Kapitulation schmeckte.
+
+Der Bauer erkannte Taron beim Essen.
+
+"Du bist der aus Waldkirch."
+
+Taron senkte den Loeffel. "Das kommt darauf an, welche Geschichte Ihr gehoert habt."
+
+"Die, in der du ein Held bist."
+
+"Dann nein."
+
+Der Bauer kaute lange auf dieser Antwort. "Gut. Helden essen viel."
+
+Taron wusste nicht, ob er beleidigt worden war. Der Erzaehler begann zu sprechen, ueberlegte es sich aber offenbar anders. Das war eine bemerkenswerte Entwicklung, die Taron misstrauisch machte.
+
+Spaeter, als die anderen ruhten, sass Elva am Scheunentor und sah nach Osten. Taron setzte sich neben sie.
+
+"Du haettest in Waldkirch bleiben koennen", sagte er.
+
+"Ja."
+
+"Marta haette dich versteckt."
+
+"Vielleicht."
+
+"Du waerst sicherer gewesen."
+
+Elva sah ihn an. "Sicherer ist nicht dasselbe wie richtig."
+
+"Oswin sagt, richtig kann teuer sein."
+
+"Oswin hat recht."
+
+"Das wird ihm nicht guttun, wenn er es erfaehrt."
+
+Sie laechelte kurz, dann wurde sie wieder ernst. "Ich hatte Angst, dass du mir nicht glaubst."
+
+"Ich wollte dir nicht glauben."
+
+"Das ist ehrlich."
+
+"Ich werde davon krankhaft befallen."
+
+Elva zog die Knie an. "Wenn wir in Waldkirch sind, werden sie versuchen, dich wieder zu benutzen. Vielleicht netter. Vielleicht mit besseren Worten. Aber sie werden es versuchen."
+
+Taron sah hinaus. In der Dunkelheit bewegte sich nichts, aber seit Eidgrund wusste er, dass Unsichtbares keine Entwarnung war.
+
+"Dann erinnerst du mich daran."
+
+"Woran?"
+
+"Dass ich Taron bin. Offenbar vergesse ich es leicht, wenn genug Leute andere Namen fuer mich haben."
+
+Elva nickte.
+
+Der Erzaehler sagte leise: "Eine Aufgabe von erheblichem Umfang."
+
+"Ich habe in Waldkirch groessere Toepfe getragen", sagte Elva.
+
 Als sie die anderen erreichten, sagte Oswin: "Fertig?"
 
 "Nein", sagte Taron. "Aber weiter."
@@ -193,3 +253,75 @@ Als sie die anderen erreichten, sagte Oswin: "Fertig?"
 Brokk nickte, als sei das eine Marschordnung, mit der ein Zwerg arbeiten konnte.
 
 Und Waldkirch wartete.
+
+Am naechsten Morgen war der Weg hart gefroren. Das machte ihn leichter zu gehen und schwerer zu moegen. Taron hatte schlecht geschlafen. Immer wenn er die Augen geschlossen hatte, sah er Albrecht im kleinen Saal, Malchior mit der Abschrift, Elva an der Tuer mit einem Topf Suppe in den Haenden. In der Erinnerung stand sie still. In Wirklichkeit musste sie gezittert haben.
+
+"Warum bist du nicht zu Marta gegangen?", fragte er, als sie wieder nebeneinander gingen.
+
+Elva brauchte keine Erklaerung. "Weil Marta mich gehalten haette."
+
+"Das klingt nach Marta."
+
+"Und weil ich dann haette erklaeren muessen, warum ich fortwill. Wenn ich es laut gesagt haette, waere es vielleicht zu gross geworden."
+
+Taron nickte. Er kannte das. Manche Entscheidungen musste man treffen, bevor man sie vollstaendig verstand. Sonst gaben sie einem zu viel Zeit, feige zu werden.
+
+"Ich habe Brot gestohlen", sagte Elva.
+
+"Was?"
+
+"Aus der Kueche. Zwei Laibe. Einen fuer mich, einen fuer unterwegs. Ich dachte, das sei mein schlimmster Teil der Flucht." Sie lachte kurz. "Dann traf ich Zwerge, alte Schluessel und dich in Lebensgefahr. Meine Massstaebe haben gelitten."
+
+"Marta wusste es vermutlich."
+
+"Sicher."
+
+"Dann war es kein Diebstahl."
+
+"Ja. Marta haette nur besser gestohlen."
+
+Der Erzaehler sagte: "Eine moralische Unterscheidung, die in Kuechen erstaunlich tragfaehig ist."
+
+Elva sah zu Taron. "Sag ihm, er soll nicht so tun, als verstehe er Kuechen."
+
+"Sie sagt, du sollst nicht so tun, als verstehst du Kuechen."
+
+"Ich verstehe Kuechen als Orte, an denen wichtige Leute selten lange genug bleiben, um die Folgen ihrer Befehle zu riechen."
+
+Elva schwieg.
+
+"Das war nicht falsch", sagte sie dann.
+
+Taron merkte, dass sie beide wieder an Waldkirch dachten. An Marta. An leere Toepfe. An einen Koenig, der ein Reich trug und vielleicht nie selbst einen Kessel vom Feuer genommen hatte, wenn unten nichts als Wasser darin war.
+
+"Wenn wir zurueckkommen", sagte Taron, "will ich zuerst zu Marta."
+
+"Wenn wir zurueckkommen, wirst du zuerst zum Koenig muessen."
+
+"Dann will ich danach zu Marta."
+
+"Das ist ein Plan."
+
+"Ein kleiner."
+
+"Kleine Plaene ueberleben manchmal besser."
+
+Der Erzaehler schwieg dazu. Taron nahm es als Zustimmung, weil er fuer etwas anderes zu muede war.
+
+Am Mittag holten sie Merlan ein, der inzwischen aufgegeben hatte, nicht zu lauschen. Er raeusperte sich und sagte: "Persoenliche Wahrheiten veraendern politische Entscheidungen haeufig staerker als umgekehrt."
+
+Oswin sah ihn an. "Du hast wirklich an einer Pflanze gelauscht."
+
+"Ich habe neben einer Pflanze gewartet. Das ist botanisch ein Unterschied."
+
+Elva schuettelte den Kopf, aber ihre Schultern waren weniger hart als zuvor. Taron merkte, dass die Wahrheit zwischen ihnen nicht kleiner geworden war, aber tragbarer. Nicht im Sinn von Albrecht und Malchior. Tragbar, weil man sie zu zweit anders hielt.
+
+Der Weg stieg danach an. Von oben sahen sie im Westen den ersten Rauch ueber Waldkirchs Land. Keine Schlacht noch. Nur Bauern, die feuchte Aeste verbrannten, vielleicht um Felder zu raeumen, vielleicht um sich selbst zu zeigen, dass sie noch Feuer machen konnten.
+
+"Wenn wir zu spaet kommen?", fragte Taron.
+
+Elva sah den Rauch an. "Dann kommen wir trotzdem."
+
+Das war keine Beruhigung.
+
+Es war besser.

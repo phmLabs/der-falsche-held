@@ -180,6 +180,52 @@ Brokk rannte zur Treppe. "Ich muss zu meinen Leuten."
 
 "Vielleicht. Aber wenn ich oben bleibe, toeten sie andere."
 
+Taron sah, wie Brokk die Treppe hinunterlief, und begriff ploetzlich, dass Verrat manchmal genauso aussah wie Treue. Brokk verliess die menschliche Mauer nicht, weil er zu den Zwergen zurueckwollte. Er lief zu ihnen, weil nur dort sein Widerspruch Gewicht hatte.
+
+Oswin sah ihm nach. Dann rannte er hinterher.
+
+"Du auch?", rief Taron.
+
+"Wenn er stirbt, bevor er redet, war das alles sehr schlechte Reiseplanung."
+
+"Das ist Sorge!"
+
+"Lauf!"
+
+Unten im Hof oeffneten Soldaten das innere Gatter, um Verwundete hereinzulassen. Gleichzeitig drueckten die ersten Zwerge gegen das Seitentor. Niemand hatte diesen Moment geplant. Deshalb wurde er wichtig.
+
+Brokk sprang zwischen die Reihen und bruellte auf Zwergisch. Einige Zwerge hielten inne. Nicht viele. Aber genug, dass ihre Linie stolperte.
+
+Ein menschlicher Hauptmann nutzte die Luecke und befahl den Speeren vor.
+
+"Nein!", rief Taron.
+
+Niemand hoerte ihn.
+
+Oswin hoerte ihn. Das war nicht niemand.
+
+Der Ritter warf sich gegen den Hauptmann, schlug den Speerarm zur Seite und kassierte dafuer einen Hieb gegen die Schulterplatte.
+
+"Haltet!", bruellte Oswin. "Sie halten!"
+
+"Sie greifen an!", rief der Hauptmann.
+
+"Weil Ihr stecht!"
+
+Das war eine militaerische Lage von bemerkenswerter Dummheit und leider grosser Verbreitung.
+
+Elva zog Taron weiter. "Wenn du hier stehen bleibst, wirst du nur eine sehr ueberzeugte Leiche."
+
+"Ich will helfen!"
+
+"Dann hilf am richtigen Ort."
+
+Der Menschenschluessel brannte. Nicht zur Mauer. Nach unten.
+
+Taron verstand.
+
+Er hasste nicht die Erkenntnis. Er hatte nur entschieden zu wenig Freude daran.
+
 Taron griff nach dem Menschenschluessel. "Wir muessen unter die Burg."
 
 Merlan, der erstaunlicherweise nicht ohnmaechtig geworden war, nickte. "Der Eidstein."
@@ -195,3 +241,69 @@ Taron wollte ihm die Abschrift aus der Hand schlagen.
 Stattdessen rannte er hinter Oswin zur Treppe, weil Wut selten nuetzlich war, wenn sie oben auf einer Mauer blieb.
 
 Und wie fast alle Schlachten begann sie nicht mit Mut, sondern mit einem Fehler, den niemand mehr einfangen konnte.
+
+Unten im Hof begann Waldkirch sich zu verwandeln. Tueren wurden verriegelt, die eben noch offen gewesen waren. Maenner, die vor einer Stunde Kornsaecke getragen hatten, trugen Speere. Frauen zogen Kinder in Keller und kamen mit Eimern wieder heraus, weil Feuer keine Ruecksicht auf Geschlechterrollen nahm. Marta stand vor der Backstube und verteilte Wasser, als sei die Stadt ein grosser, schlecht organisierter Ofen.
+
+Der Hunger unter der Burg bruellte erneut.
+
+Diesmal antwortete Rugar draussen mit einem Horn.
+
+Der Klang fuhr Taron durch die Knochen. Nicht das letzte Horn aus der Kindheit, aber nahe genug, dass sein Koerper den Unterschied nicht sofort glaubte. Er sah wieder Rauch, Zwerge, die verschwanden, die Stimme, die fort war.
+
+"Bleib hier", sagte der Erzaehler.
+
+"Wo?"
+
+"In dir."
+
+Das war ein merkwuerdiger Befehl. Aber Taron hielt sich daran. Er griff nach dem Menschenschluessel, spuerte Elva neben sich und Oswins Hand kurz an seinem Ruecken, die ihn die Treppe hinunterdrueckte, bevor Erinnerung zu viel Platz bekam.
+
+Brokk wartete unten im Hof, zwischen Menschen, die ihn fuer einen Feind hielten, und Zwergen, die ihn gleich fuer einen Verräter halten wuerden.
+
+"Das ist ein sehr schlechter Ort fuer dich", sagte Taron.
+
+"Ja."
+
+"Du bleibst trotzdem?"
+
+"Ja."
+
+Taron nickte. "Ich beginne, Muster zu erkennen."
+
+Brokk sah ihn an. "Dann lern schneller."
+
+Brokk lief weiter, und Taron folgte, bis sie den unteren Hof erreichten. Dort stand die alte Falltuer zum Versorgungsgang offen. Zwei Knechte zogen Saecke heraus, nicht hinein. Korn, getrocknete Bohnen, Salz. Alles, was Waldkirch noch hatte, wurde von unten nach oben getragen, als koenne man Hunger auf die Mauer stellen und ihn dort kaempfen lassen.
+
+Elva blieb an einem Sack stehen. "Das reicht nicht."
+
+"Fuer eine Belagerung?", fragte Taron.
+
+"Fuer eine Woche."
+
+Der Satz war leise. Er traf trotzdem.
+
+Taron sah zu den Mauern, zu den Zwergen draussen, zu Rugar, der von Schutz sprach. Wenn Waldkirch fiel, wuerden Menschen sterben. Wenn Waldkirch stand und nichts sich aenderte, wuerden Menschen ebenfalls sterben, nur langsamer und mit besseren Verwaltungslisten.
+
+"Dann muessen wir mehr retten als die Burg", sagte er.
+
+Elva sah ihn an, als habe er gerade aus Versehen etwas sehr Richtiges gesagt.
+
+"Ja", sagte sie.
+
+Rugar draussen hob erneut den Hammer. Die Reihen hinter ihm bewegten sich. Keine Angriffswelle, noch nicht. Eine Vorbereitung. Schilde wurden angehoben, Wagen nach vorn gebracht, Heiler zurueckgeschickt. Ein Heer war eine Stadt, die beschlossen hatte, sich als Waffe zu benehmen.
+
+Taron sah einen Zwerg in der dritten Reihe, der kaum aelter wirkte als Jost. Er hielt den Schild falsch. Ein alter Zwerg neben ihm korrigierte den Griff mit einer knappen Bewegung. Auf der Mauer tat Greve dasselbe bei einem Waldkircher Jungen.
+
+Beide Seiten brachten Kindern bei, wie man den ersten Schlag ueberlebte.
+
+"Das darf nicht der neue Eid sein", sagte Taron.
+
+Elva folgte seinem Blick. "Dann sag es laut genug."
+
+"Zu wem?"
+
+"Fang mit dir an."
+
+Der Erzaehler sagte nichts. Taron spuerte, dass er zuhoerte.
+
+Dann flog der erste Pfeil.

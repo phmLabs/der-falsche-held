@@ -14,7 +14,7 @@ Der Baeckerjunge Jost, der ihm frueher einmal absichtlich verbrannte Brotrinden 
 
 "Das ist keine Festung", sagte Elva.
 
-Oswin sah auf die Mauern. "Doch."
+Oswin sah auf die Mauern. "In diesem Augenblick schon."
 
 "Nein. Das sind Leute, die hoffen, dass Stein fuer sie entscheidet."
 
@@ -184,4 +184,126 @@ Fuer einen Moment war Taron nicht sicher, ob Albrecht ihn als Menschen sah oder 
 
 Dann ging draussen der erste Schrei auf.
 
+Der Schrei kam nicht von der Mauer, sondern aus der Unterstadt. Das machte ihn schlimmer. Soldaten waren dafuer vorgesehen, in Berichten zu schreien. Niemand sagte das laut, aber alle Reiche handelten so. Schreie aus Gassen, von Brunnen, aus Backstuben waren schlechter zu ordnen.
+
+Albrecht wandte sich zur Tuer.
+
+Taron trat ihm in den Weg.
+
+Es war keine kluge Bewegung. Ein Koenig hatte Waechter, Taron hatte Knie, die sich gerade daran erinnerten, wie gut sie im Zittern waren. Aber der Koenig blieb stehen.
+
+"Lasst Brokk mit Euch sprechen", sagte Taron.
+
+"Mit mir?"
+
+"Mit Euren Hauptleuten. Mit den Leuten auf der Mauer. Mit irgendwem, der noch nicht geschossen hat."
+
+Malchior sagte: "Ein Zwerg auf unseren Mauern wird Panik ausloesen."
+
+Elva drehte sich zu ihm. "Die Panik ist schon da. Vielleicht sollte einmal jemand die Wahrheit dazustellen."
+
+Brokk trat vor. "Ich kann nicht fuer Rugar sprechen. Aber ich kann sagen, dass er nicht allein spricht."
+
+Albrecht sah ihn lange an. Dann sagte er: "Wenn Ihr luegt, sterben Menschen."
+
+"Wenn ich schweige, auch."
+
+Das war der Satz, der Albrecht einen Atemzug kostete.
+
+Oswin nutzte ihn. "Majestaet, ich kenne Brokk Eisenhand aus Berichten. Die meisten sind blutig. Keiner nennt ihn feige."
+
+"Das soll mich beruhigen?"
+
+"Nein. Es soll Euch daran hindern, einen nuetzlichen Feind zu verschwenden."
+
+Brokk sah Oswin an. "Nuetzlich?"
+
+"Heute."
+
+Taron dachte, dass dies vielleicht die hoeflichste Form war, in der die beiden einander gerade Vertrauen schenken konnten.
+
+Albrecht gab schliesslich ein kurzes Nicken. "Zur Mauer. Aber die Schluessel bleiben bei mir."
+
+"Nein", sagten Taron, Elva, Brokk und der Erzaehler gleichzeitig.
+
+Der Koenig hoerte nur drei davon, aber es reichte.
+
+Taron legte die Hand auf den Menschenschluessel. "Sie bleiben nicht bei irgendeinem Koenig. Das ist offenbar der Punkt, den alle alten Steine uns mit grosser Beharrlichkeit beibringen wollen."
+
+Albrecht war nicht gewohnt, dass ein Stalljunge ihm widersprach und dabei recht haben koennte. Man sah, wie unbequem diese Moeglichkeit auf seinem Gesicht sass.
+
+"Dann tragt Ihr sie", sagte er.
+
+"Gemeinsam", sagte Elva.
+
+Albrecht nickte, schmal und ungern.
+
+Der naechste Hornstoss kam von der Mauer.
+
+Diesmal liefen sie alle.
+
 Waldkirch hatte keine Zeit mehr, sich anstaendig zu schaemen.
+
+Auf der Treppe zur Mauer begegnete Taron Jost, dem Baeckerjungen mit dem zu langen Speer. Jost erkannte ihn, grinste unsicher und tat dann so, als sei Grinsen im Krieg verboten.
+
+"Du bist wirklich zurueck", sagte er.
+
+"Ich arbeite selbst noch an meiner Enttaeuschung darueber."
+
+"Stimmt es, dass du drei Schluessel hast?"
+
+"Nein. Wir haben drei Schluessel. Das ist sehr wichtig und macht die Sache leider nicht leichter."
+
+Jost sah an ihm vorbei zu Brokk. "Und der Zwerg?"
+
+"Hat vermutlich mehr Menschen gerettet als du Brote gegessen hast."
+
+"Ich habe viele Brote gegessen."
+
+"Dann nimm es als hohe Schaetzung."
+
+Jost senkte den Blick. "Sie sagen unten, wenn du den Zwergen gibst, was sie wollen, hoert der Hunger auf."
+
+Taron blieb stehen. "Wer sagt das?"
+
+"Leute."
+
+Leute. Das gefaehrlichste Volk der Welt.
+
+Der Erzaehler sagte: "Geruechte sind Prophezeiungen ohne Verantwortung."
+
+Taron legte Jost eine Hand auf die Schulter. "Wenn jemand eine einfache Loesung verkauft, frag zuerst, wer darin nicht vorkommt."
+
+"Was?"
+
+"Ja. Genau so fuehlt sich guter Rat meistens an."
+
+Dann zog Oswin ihn weiter, weil gute Ratschlaege keine Bolzen aufhielten.
+
+Oben an der Mauer roch die Luft nach Pech, nassem Holz und Angst. Greve bellte Befehle, die Leute ausfuehrten, bevor sie verstanden, ob sie klug waren. Taron sah Koerbe voller Steine, Eimer mit Sand, alte Tueren, die als Schilde dienen sollten. Waldkirch hatte sich in eine Maschine verwandelt, und jede Maschine fraß zuerst diejenigen, die ihr am naechsten standen.
+
+Marta stand unten im Hof und sah zu ihm hinauf. Diesmal hob sie nicht die Hand. Sie zeigte auf ihn, dann auf die Mauer, dann machte sie eine scharfe Geste, die ungefaehr bedeutete: Tu, was du musst, aber bilde dir nichts darauf ein.
+
+Taron verstand sie vollkommen.
+
+Das war Heimat: jemand, der einen sogar im Weltuntergang zurechtwies.
+
+Auf der Mauer sah Taron zum ersten Mal die Zwerge in voller Breite. Hinter ihm roch Waldkirch nach Angst und leerer Kueche, vor ihm stand Karndorn mit Wagen, Bannern und demselben Hunger in anderer Kleidung. Zwischen beiden lag ein Feld, das vor wenigen Wochen noch einfach ein Feld gewesen war. Jetzt wartete es darauf, in Chroniken einen Namen zu bekommen.
+
+"Lass sie ihm keinen Namen geben", sagte Elva.
+
+Taron sah sie an. "Was?"
+
+"Dem Feld. Der Schlacht. Wenn sie einen Namen hat, klingt sie spaeter unvermeidlich."
+
+Der Erzaehler sagte: "Eine hervorragend gefaehrliche Beobachtung."
+
+Taron nickte langsam. "Dann verhindern wir sie namenlos."
+
+Oswin pruefte sein Schwert. "Das ist schwerer."
+
+"Ich weiss."
+
+"Gut."
+
+Diesmal klang das Wort nicht wie Abwertung.

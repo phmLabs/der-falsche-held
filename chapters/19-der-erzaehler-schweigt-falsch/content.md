@@ -282,8 +282,56 @@ Der Erzaehler schwieg einen Moment.
 
 Dann sagte er: "Bedauerlicherweise ja."
 
+Kurz vor den ersten Haeusern von Ellingen holte Brokk sie noch einmal in den Schutz einer niedrigen Steinmauer. Nicht weil er etwas gesehen hatte, sondern weil er zu lange Soldat war, um einem offenen Weg zu trauen.
+
+Taron setzte sich auf einen kalten Stein und merkte, wie muede er war. Nicht nur in den Beinen. In den Fragen. Jede Antwort machte zwei neue Tueren auf, und hinter jeder stand jemand, der behauptete, aus Schutz handle er nun leider grausam.
+
+"Wenn dein Eid dich zwingt", dachte Taron, "bist du dann schuldig?"
+
+Der Erzaehler antwortete erst nach einer langen Pause. "Ja."
+
+"Das war zu schnell."
+
+"Nein. Nur zu alt."
+
+Taron sah ueber die Mauer zu den Feldern. Ein Mann zog dort einen Karren allein, der fuer ein Pferd gebaut war. Auf dem Karren lag kein Gut, sondern eine alte Frau in Decken. Niemand half ihm. Vielleicht, weil niemand Kraft uebrig hatte. Vielleicht, weil alle gelernt hatten, dass Hilfe Aufmerksamkeit erzeugte.
+
+"Dann bin ich auch schuldig", sagte Taron.
+
+"Wofuer?"
+
+"Dafuer, dass ich immer nur nicht wollte. Nicht Held sein. Nicht sterben. Nicht entscheiden. Das ist auch eine Art, andere tragen zu lassen."
+
+Der Erzaehler sagte nichts Spöttisches. Das war fast unanstaendig von ihm.
+
+"Nicht-Wollen ist ein Anfang", sagte er schliesslich. "Kein guter Ort zum Wohnen."
+
+Taron musste diesen Satz nicht moegen, um ihn zu behalten.
+
+Elva kam zu ihm und reichte ihm ein Stueck Rübe. "Du siehst aus, als wuerdest du mit ihm verlieren."
+
+"Unentschieden."
+
+"Das ist besser als sonst."
+
+"Ein niedriges Lob."
+
+"Iss."
+
+Er ass. Die Rübe schmeckte nach Erde und Pflicht.
+
+Dann standen sie auf und gingen weiter in eine Stadt, die gelernt hatte, nicht zu klingen.
+
 Es war keine Antwort auf die grossen Fragen.
 
 Aber es war auch kein Weglaufen.
 
 Fuer diesen Nachmittag, unter dem grauen Himmel vor Ellingen, musste Taron lernen, den Unterschied zu erkennen.
+
+Er lernte ihn schlecht, aber immerhin unterwegs.
+
+Das war an diesem Tag schon fast eine Methode.
+
+Eine schlechte, aber eigene.
+
+Und eigene Methoden waren selten bequem, aber sie hatten einen Vorteil: Man konnte sie nicht vollstaendig jemand anderem in die Schuhe schieben.

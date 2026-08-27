@@ -281,3 +281,103 @@ Und zum ersten Mal meinte er es nicht nur trotzig.
 Er wusste nicht, ob er das konnte.
 
 Aber zum ersten Mal wusste er, dass diese Frage aelter war als seine Angst.
+
+Merlan schrieb spaeter an den Rand seiner Notizen: Bindung veraendert beide Seiten. Taron sah es zufaellig und fragte, ob das gut oder schlecht sei.
+
+"Ja", sagte Merlan.
+
+"Ich vermisse Antworten, die nicht versuchen, zwei Tueren gleichzeitig zu benutzen."
+
+"Dann solltest du keine alten Wesen untersuchen."
+
+Der Erzaehler sagte: "Ein Rat, der bedauerlich spaet kommt."
+
+Brokk sass am Feuer und schaerfte eine Kerbe aus seinem Stab. "In Karndorn sagt man, ein Eid macht aus zwei Dingen ein drittes. Nicht besser. Nicht reiner. Nur drittes."
+
+"Und wenn eines der Dinge ein Daemon ist?", fragte Taron.
+
+"Dann sollte das andere Ding stur sein."
+
+Elva sah zu Taron. "Das koennte gehen."
+
+"Ich fuehle mich auf sehr schmale Weise gelobt."
+
+Der Erzaehler sagte nichts. Aber Taron spuerte, dass er zuhoerte, und diesmal fuehlte sich das nicht wie Ueberwachung an.
+
+Es fuehlte sich wie Warten an. Nicht angenehm, aber gemeinsam.
+
+In der Nacht darauf traeumte Taron von Arven.
+
+Es war kein klarer Traum. Arven hatte kein Gesicht, nur Haende: schmal, vernarbt, mit Tinte am Daumen. Er stand in einem Turmzimmer, vielleicht Abendriss, vielleicht ein Ort, der spaeter Abendriss werden wollte. Auf dem Tisch lag der Menschenschluessel. Daneben ein Messer, ein Hammer, eine Schale Wasser und ein Stueck Brot.
+
+"Man zerstoert nicht, was andere zum Schutz brauchen", sagte eine Stimme.
+
+Es war der Erzaehler, aber juenger. Oder Taron traeumte ihn juenger, weil Erinnerungen gern Kostueme trugen.
+
+Arven antwortete: "Man bewahrt nicht, was Koenige zum Kaefig machen."
+
+Dann griff er nach dem Messer.
+
+Taron wachte auf, bevor er sah, was geschah. Das war typisch fuer Traeume und schlechte Chronisten.
+
+Der Erzaehler war wach. Natuerlich war er das.
+
+"War das wahr?"
+
+"Ein Teil."
+
+"Welcher?"
+
+"Der Teil mit dem Brot nicht. Arven ass selten, wenn er dachte. Es war sehr laestig."
+
+Taron starrte in die Dunkelheit. "Du machst Witze."
+
+"Ich halte Abstand."
+
+"Zu was?"
+
+"Zu dem Messer."
+
+Taron zog den Mantel enger. "Hast du ihn verletzt?"
+
+"Nein."
+
+"Aber du hast ihn aufgehalten."
+
+"Ja."
+
+"Und wenn ich eines Tages den Schluessel zerstoeren will?"
+
+Der Erzaehler schwieg lange.
+
+"Dann hoffe ich, dass ich besser zuhoere als damals."
+
+Das war keine Sicherheit. Aber es war vielleicht mehr als Arven bekommen hatte.
+
+Merlan fragte am Morgen, ob Taron Kopfschmerzen habe.
+
+"Ich reise mit einer Stimme, drei Schluesseln und einem Ritter, der Sorge als Befehl tarnt. Sei genauer."
+
+"Nach dem Traum."
+
+Taron sah ihn an. "Woher weisst du davon?"
+
+"Du hast im Schlaf gesprochen."
+
+Elva hob den Blick. "Du hast 'Messer weg' gesagt."
+
+Der Erzaehler schwieg, und das machte die Worte schwerer.
+
+Brokk legte ein Stueck Holz ins Feuer. "Wenn dein Vorfahr den Schluessel zerstoeren wollte, war er verzweifelt."
+
+"Oder klug", sagte Taron.
+
+"Beides kann denselben Gesichtsausdruck haben."
+
+Merlan nickte. "Wichtig ist, dass der Erzaehler ihn aufhielt und es bereut. Reue ist kein Freispruch, aber sie verhindert manchmal Wiederholung."
+
+"Manchmal", sagte Taron.
+
+"Ja."
+
+Er mochte Merlan in diesem Moment ein wenig weniger, weil der Mann nicht versuchte, es einfacher zu machen.

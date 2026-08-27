@@ -262,6 +262,38 @@ Niemand musste.
 
 Gegen Morgen sagte Merlan: "Ihr muesst nach Waldkirch."
 
+Vorher schrieb er drei Abschriften derselben Warnung. Eine fuer Waldkirch, eine fuer Ellingen, eine fuer Karndorn, falls Karndorn jemals wieder bereit war, Papier aus Menschenhand nicht sofort als Beleidigung zu betrachten. Jede begann anders und endete gleich: Kein Schutz ohne Zustimmung.
+
+"Das ist der Kern?", fragte Elva.
+
+"Im Moment", sagte Merlan. "Kerne haben die unangenehme Eigenschaft, spaeter Baeume zu werden."
+
+"Und wenn Albrecht die Warnung verbrennen laesst?", fragte Taron.
+
+"Dann habe ich noch zwei."
+
+"Und wenn Rugar sie verbrennen laesst?"
+
+"Dann hat Ansel vermutlich eine vierte, die sie mir aus Misstrauen nicht gezeigt hat."
+
+Der Erzaehler sagte: "Ich schaetze diese Frau zunehmend."
+
+Merlan packte die Blaetter in Wachstuch. Seine Haende zitterten nicht. Das fiel Taron auf. Merlan hatte Angst, sicher. Aber er war in seinem eigenen Gebiet angekommen: Worte gegen falsche Worte, Abschriften gegen Luecken, Tinte gegen Blut, soweit Tinte es eben schaffte.
+
+Oswin sah aus dem Fenster. "Wenn wir nach Waldkirch gehen, laufen wir zwischen beide Heere."
+
+"Ja", sagte Brokk.
+
+"Gut."
+
+Taron sah ihn an. "Gut?"
+
+"Dann sehen beide Seiten, wen sie fast erschlagen."
+
+Der Satz war trocken, aber nicht leicht. Niemand lachte.
+
+Merlan verschloss seine Tasche. "Dann sollten wir aufbrechen, bevor die Geschichte ohne uns weiterarbeitet. Sie zeigt in letzter Zeit wenig Talent."
+
 "Natuerlich", sagte Taron. "Warum sollte der Ort, an dem alles begann, sich auch nur einmal aus etwas heraushalten?"
 
 "Unter Waldkirch liegt der Eidstein."
@@ -271,3 +303,11 @@ Der Erzaehler flüsterte: "Und er ist wach geworden."
 Diesmal fragte Taron nicht, woher er das wusste.
 
 Er fuerchtete, die Antwort zu kennen.
+
+Merlan loeschte die Lampe nicht. Er stellte sie ans Fenster, als koenne ein kleines Licht Hohensteg davon ueberzeugen, noch einen Morgen laenger gewoehnlich zu bleiben.
+
+Niemand im Raum glaubte daran. Trotzdem liess es keiner ausblasen.
+
+Manche Zeichen waren nur deshalb nuetzlich, weil jemand sie stehen liess.
+
+Taron nahm sich vor, das Licht nicht als Hoffnung zu bezeichnen. Hoffnung war ihm zu gross. Aber er sah trotzdem hin, bevor sie gingen.

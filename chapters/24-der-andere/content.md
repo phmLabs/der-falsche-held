@@ -266,4 +266,78 @@ Der Erzaehler sagte: "Du entwickelst ein Talent fuer Vorhersagen."
 
 "Nach Waldkirch", sagte er.
 
+Der Junge aus Waldkirch bekam Wasser, eine halbe Ruebe und die Anweisung, nicht heldenhaft vom Pferd zu fallen. Er nahm alle drei mit einem Ernst entgegen, der Taron unangenehm bekannt vorkam.
+
+"Wie heisst du?", fragte Taron.
+
+"Niko."
+
+"Niko, wenn jemand fragt, was du gesehen hast, sagst du: Menschen und Zwerge versuchen, einen Krieg zu verhindern."
+
+Der Junge sah zu Brokk.
+
+"Das glaubt mir niemand."
+
+"Dann sag es trotzdem. Unglaubliche Wahrheiten brauchen Uebung."
+
+Oswin hob eine Braue. "Du gibst Botenanweisungen?"
+
+"Ich entwickle mich."
+
+"In welche Richtung?"
+
+"Unklar. Aber weg von schweigendem Opfer."
+
+Der Erzaehler sagte: "Eine Richtung, die ich unter Vorbehalt unterstuetze."
+
+Sie verliessen den Wachhof kurz darauf. Hinter ihnen blieb die leere Strasse, vor ihnen Waldkirch, und irgendwo seitlich davon marschierte Rugar mit einem Heer, das glaubte, es bringe Schutz. Taron hatte inzwischen gelernt, dass die gefaehrlichsten Leute selten sagten, sie braechten Verderben. Verderben war ein schlechtes Banner. Schutz liess sich besser tragen.
+
+Auf dem ersten Huegel drehte er sich noch einmal um. Im Wachhof hing die Tuer schief. Der Brunnen blieb leer. Arvens kleiner Vogel in der Tischplatte blieb zurueck, eine Spur fuer jemanden, der spaeter vielleicht auch zu spaet verstand.
+
+"Kommst du?", fragte Elva.
+
+Taron nickte.
+
+"Ja."
+
+Der Erzaehler sagte: "Beachtlich. Eine Antwort ohne Ausrede."
+
+"Gewoehn dich nicht daran."
+
+"Ich werde versuchen, tapfer zu sein."
+
 Niemand widersprach.
+
+Auf dem Weg vom Wachhof sahen sie Rauch im Westen. Kein Schlachtfeuer, sagte Oswin. Zu duenn. Wahrscheinlich Bauern, die Felder abbrannten, damit ein Heer weniger fand.
+
+"Das ist verzweifelt", sagte Elva.
+
+"Ja", sagte Brokk. "Und wirksam."
+
+Taron sah den Rauch lange an. Menschen verbrannten Essen, damit andere es nicht nahmen. Zwerge marschierten, weil ihre Hallen Hunger hatten. Koenige nannten beides Schutz, wenn es ihnen gehoerte, und Grausamkeit, wenn es die anderen taten.
+
+"Der andere muss nicht viel erfinden", sagte er.
+
+Der Erzaehler antwortete leise: "Nein. Er muss nur den richtigen Schmerz lauter machen."
+
+Taron zog den Mantel enger. "Dann muessen wir leiser werden?"
+
+"Nein", sagte Elva. "Genauer."
+
+Das Wort blieb bei ihnen, waehrend Waldkirch naeher kam.
+
+Genauer war kein leichteres Wort als mutiger. Aber es war vielleicht nuetzlicher.
+
+Als sie weiterzogen, erzaehlte Brokk von Karndorns unteren Hallen. Nicht lange, nicht weich. Nur genug: gebrochene Wasserrinnen, Pilzgaerten ohne Licht, Kinder, die lernten, Suppe nach Eisen schmecken zu lassen, weil Eisen wenigstens nach etwas schmeckte. Taron hoerte zu und dachte an Waldkirch. An Marta, die Wasser in Toepfe goss und so tat, als sei es Rezept.
+
+"Er hat echte Not benutzt", sagte Taron.
+
+"Ja", sagte Brokk.
+
+"Dann wird Rugar sich daran festhalten."
+
+Brokk nickte langsam. "Weil es leichter ist, sich fuer echte Not zu entschuldigen als fuer falsche Schluesse."
+
+Der Erzaehler sagte: "Eine unangenehm erwachsene Einsicht. Ich empfehle, sie nicht zu oft zu haben."
+
+Niemand lachte. Aber der Satz blieb bei ihnen.

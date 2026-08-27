@@ -300,4 +300,28 @@ Eher, als haetten sie etwas mitgenommen, das andere sehr lange hatten falsch fin
 
 Brokk sagte: "Jetzt gehen wir."
 
+Sie kamen nicht schnell voran. Eidgrund liess sie erst gehen, als haette der Ort selbst beschlossen, jeden Schritt noch einmal zu pruefen. Zweimal rutschte Taron auf nassem Gras aus, einmal fing Brokk ihn am Kragen, und einmal packte Elva ihn so fest am Arm, dass er verstand, warum Kuechenmesser nicht ihre einzige Waffe waren.
+
+Hinter ihnen blieb Varga im Nebel. Man sah ihn nicht, aber seine Anwesenheit ordnete die Geraeusche. Ein Ruf links. Ein Zweig rechts. Dann lange nichts. Oswin sagte, gute Verfolger machten aus Stille ein Werkzeug. Taron fand, das sei eine unangenehm schoene Beschreibung fuer Leute, die ihm nach dem Leben trachteten.
+
+Am Rand der Senke blieb Brokk noch einmal stehen. Er legte die Hand nicht auf den Zwergenschluessel, sondern daneben, als muesse selbst er lernen, dass Besitz hier die falsche Geste war.
+
+"Wenn wir falsch liegen", sagte er, "bringen wir Rugar, was Niemand will."
+
+"Und wenn wir richtig liegen?", fragte Elva.
+
+Brokk sah nach Sueden. "Dann auch. Nur mit der Moeglichkeit, es ihm wieder wegzunehmen."
+
+Taron wartete auf einen Kommentar des Erzaehlers. Er kam nicht sofort.
+
+Erst als sie zwischen die ersten Baeume traten, sagte die Stimme: "Eine Hoffnung, die zugibt, gefaehrlich zu sein. Selten. Nicht schoen, aber selten."
+
+"Ist das Zustimmung?"
+
+"Nennen wir es fehlenden Widerspruch."
+
+Taron sah zu Elva, zum Stoffbuendel unter ihrem Mantel, zu Oswins blutiger Wange und Brokks gesenkter Schulter. Fehlender Widerspruch war nicht viel.
+
+Aber an diesem Tag trug jeder nur, was er tragen konnte.
+
 Und diesmal widersprach niemand.

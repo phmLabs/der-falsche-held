@@ -272,6 +272,22 @@ Der Erzaehler sagte: "Eine wissenschaftlich belastbare Aussage."
 
 Als sie Ellingen verliessen, schlug hinter ihnen keine Glocke Alarm.
 
+Aber am letzten Haus stand das Maedchen von vorhin. Sie hielt den Holzstab in beiden Haenden, den ihre Mutter ihr weggenommen hatte. Diesmal schlug sie nicht gegen einen Eimer. Sie hielt ihn Taron nur entgegen.
+
+"Falls du doch ein Bote bist", sagte sie, "sag ihnen, dass Stille auch laut wird."
+
+Taron nahm den Stab nicht. Er nickte nur.
+
+"Wem soll ich das sagen?"
+
+Das Maedchen sah ihn an, als sei er langsamer, als sein Alter erlaubte. "Allen, die Glocken klauen."
+
+Der Erzaehler sagte: "Eine politische Theorie, knapp genug fuer eine Mauer."
+
+Elva laechelte dem Maedchen zu. Nicht freundlich im weichen Sinn. Eher wie jemand, der versprach, den Satz nicht fallen zu lassen.
+
+Dann schloss sich das kleine Tor hinter ihnen, lautlos, weil sogar seine Angeln gelernt hatten.
+
 Nur die kleine in Tarons Beutel bewegte sich bei jedem Schritt.
 
 Sie klang nicht.
