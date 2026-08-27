@@ -266,15 +266,6 @@ Als sie fertig waren, bedankte sich Elva, als habe sie etwas Wertvolles bekommen
 
 „Weil man Leuten, denen alles genommen wurde, nichts geben kann, ohne es ihnen zu nehmen“, sagte Elva. „Außer man fragt sie etwas.“
 
-Der Erzähler schwieg dazu so lange, dass Taron misstrauisch wurde.
-
-„Was?“
-
-„Ich überlege, ob ich das gewusst habe.“
-
-„Und?“
-
-„Ich habe es gewusst und nie benutzt“, sagte der Erzähler. „Das ist die unangenehmere von zwei Möglichkeiten.“
 
 
 Als sie weitergingen, sagte Oswin nichts.
@@ -286,8 +277,6 @@ Nach einer Weile fragte Taron: „War es falsch?“
 „Aber?“
 
 „Aber richtig kann teuer sein.“
-
-Der Erzähler sagte: „Eine knappe Definition von Gewissen. Man hätte Schlimmeres auf Tempelwände schreiben können.“
 
 Taron dachte an den Jungen im Graben und an die ausgekratzten Glocken. Der andere ordnete Angst, hatte der Erzähler gesagt. Aber vielleicht ordnete er auch Knappheit. Gib Menschen zu wenig, dann werden sie bereit, das Falsche für Rettung zu halten. Gib Königen genug Angst, dann nennen sie Kontrolle Schutz.
 
@@ -444,8 +433,6 @@ Oswin sah ihn sofort. „Nein.“
 
 „Deine Schuhe“, sagte Elva. „Die jammern nur.“
 
-Der Erzähler sagte: „Ein erstaunlich genauer Befund.“
-
 Taron ging trotzdem zum Karren. Oswin fluchte, folgte ihm aber. Elva kam mit, Brokk ebenfalls, und damit wurde aus einer einfachen Hilfeleistung ein kleiner Aufmarsch, was den Mann am Karren fast noch mehr erschreckte als das festsitzende Rad.
 
 „Wir nehmen nichts“, sagte Taron.
@@ -513,10 +500,6 @@ Als sie zurück zur niedrigen Mauer gingen, sagte niemand etwas. Sogar Merlan, d
 
 Taron betrachtete die Scheibe. „Vielleicht nicht. Aber jemand hat es bis hierher getragen.“
 
-Der Erzähler sagte nichts.
-
-Diesmal war sein Schweigen kein Ausweichen. Es war Zustimmung, die zu viel erinnerte.
-
 Elva kam zu ihm und reichte ihm ein Stück Rübe. „Du siehst aus, als würdest du mit ihm verlieren.“
 
 „Unentschieden.“
@@ -530,17 +513,3 @@ Elva kam zu ihm und reichte ihm ein Stück Rübe. „Du siehst aus, als würdest
 Er aß. Die Rübe schmeckte nach Erde und Pflicht.
 
 Dann standen sie auf und gingen weiter in eine Stadt, die gelernt hatte, nicht zu klingen.
-
-Es war keine Antwort auf die großen Fragen.
-
-Aber es war auch kein Weglaufen.
-
-Für diesen Nachmittag, unter dem grauen Himmel vor Ellingen, musste Taron lernen, den Unterschied zu erkennen.
-
-Er lernte ihn schlecht, aber immerhin unterwegs.
-
-Das war an diesem Tag schon fast eine Methode.
-
-Eine schlechte, aber eigene.
-
-Und eigene Methoden waren selten bequem, aber sie hatten einen Vorteil: Man konnte sie nicht vollständig jemand anderem in die Schuhe schieben.

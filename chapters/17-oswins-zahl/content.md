@@ -212,7 +212,7 @@ Elva verstand zuerst nicht. Dann wurde ihr Gesicht weicher.
 
 Vor zehn Jahren war Oswin noch nicht der Mann gewesen, der eine Schlacht lesen konnte wie andere Leute einen Einkaufszettel.
 
-Er war siebzehn gewesen, vielleicht achtzehn. Alt genug für ein Schwert, jung genug für die gefährliche Gewissheit, dass ein Befehl die Verantwortung gleich mitlieferte. Sein Helm hatte nicht richtig gepasst. Er war von einem Vetter gekommen, der an Fieber gestorben war und ihn deshalb nicht mehr brauchte. Die Polsterung roch nach altem Leder, Rauch und jemandem, der nicht Oswin gewesen war.
+Er war vierundzwanzig gewesen. Alt genug für ein Schwert, jung genug für die gefährliche Gewissheit, dass ein Befehl die Verantwortung gleich mitlieferte. Sein Helm hatte nicht richtig gepasst. Er war von einem Vetter gekommen, der an Fieber gestorben war und ihn deshalb nicht mehr brauchte. Die Polsterung roch nach altem Leder, Rauch und jemandem, der nicht Oswin gewesen war.
 
 Der Krieg hatte damals noch keinen festen Namen. Später bekam er mehrere, je nachdem, wer ihn erzählte. Der Zwergensturm. Der Waldkircher Grenzbrand. Der Rückholkrieg. Menschen liebten Namen, sobald genug Leute tot waren, um sie in eine Ordnung zu zwingen.
 
@@ -383,12 +383,6 @@ Brokk blieb nicht stehen, aber sein Schritt wurde langsamer.
 „Das könnte ich nicht.“
 
 „Gut.“
-
-Taron stolperte fast über einen Stein. „Gut?“
-
-Oswin sah ihn an. „Vergebung ist kein Werkzeug, das man einem anderen an den Gürtel hängt, weil man selbst leichter laufen will.“
-
-Der Satz war zu schwer für den Weg, aber er passte zu Oswin. Er sagte selten viel. Wenn er es tat, klang es, als habe er den Satz lange getragen und nur deshalb ausgepackt, weil er sonst rostete.
 
 Brokk brummte. „Dann sag es, weil es wahr ist.“
 

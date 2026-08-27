@@ -80,10 +80,6 @@ Taron rieb sich die Stirn.
 
 Elva sah zur Straße. „Also überall.“
 
-„Ich mag sie wirklich“, sagte der Erzähler.
-
-„Hör auf damit.“
-
 Gegen Mittag erreichten sie die alte Südbrücke.
 
 Sie führte über einen schmalen Fluss, der früher eine Grenze gewesen war und heute so tat, als habe er mit Politik nie etwas zu tun gehabt. Die Brücke bestand aus drei niedrigen Steinbögen. Auf ihrer Mitte stand ein verwitterter Grenzstein. Eine Seite trug das Wappen Waldkirchs, die andere war abgeschlagen. Darunter, kaum sichtbar, lag ein älteres Zeichen: eine Hand über einem Kreis.
@@ -149,8 +145,6 @@ Oswin stand auf. „Sechs. Vielleicht sieben. Schwere Stiefel. Keine Wagen. Grau
 „Wie erkennt man Mäntel an Spuren?“
 
 „Man erkennt Leute, die keine Spuren fürchten.“
-
-Der Erzähler sagte: „Das war leider gut.“
 
 Taron sah die Straße entlang. Sie führte zwischen Erlen und niedrigen Hügeln weiter nach Südosten. Wenn die Zwerge vor ihnen waren, dann waren sie auf derselben Route. Wenn sie hinter ihnen waren, auch.
 
@@ -342,10 +336,6 @@ Oswin sah es.
 
 Taron auch.
 
-Der Erzähler sagte nichts.
-
-Das war schlimmer als jede Antwort.
-
 „Niemand“, wiederholte Brokk.
 
 „Ja.“
@@ -428,16 +418,6 @@ Aber es war auch kein Angriff.
 
 Es war etwas Drittes, Kleineres, Raues, das noch keinen Namen hatte.
 
-Der Erzähler flüsterte: „Interessant.“
-
-„Sag das nicht“, dachte Taron.
-
-„Ich sagte es sehr leise.“
-
-„Ich habe es gehört.“
-
-„Du bist bedauerlicherweise mein Publikum.“
-
 Brokk hob den Stab. Sofort traten die Zwerge am Hang einen Schritt auseinander. Nicht drohend. Praktisch. Sie nahmen Winkel.
 
 Oswin erkannte es. Seine Hand wurde fester am Griff.
@@ -499,8 +479,6 @@ Brokks Blick wurde schärfer. „Zwergenrauch?“
 „Selten heißt oft nur teuer.“
 
 „Das hat mir noch niemand gesagt. Ich fühle mich betrogen.“
-
-Der Erzähler sagte: „In deinem Leben ist das ein Grundzustand.“
 
 Ein Zwerg am Hang spannte die Armbrust.
 
@@ -573,8 +551,6 @@ Taron hörte das Wort.
 Oswin auch.
 
 Brokk offenbar erst, nachdem es draußen war.
-
-Der Erzähler wurde sehr still.
 
 „War?“, fragte Taron leise.
 
@@ -662,19 +638,9 @@ Taron hatte die Rauchkugel noch immer in der anderen Hand.
 
 „Niemand bewegt sich!“, rief er.
 
-Das war keine magische Stimme.
+Das war keine magische Stimme. Aber alle hatten gerade gesehen, wie ein Mensch in einem Hinterhalt den Gegenstand wegwarf, den alle haben wollten.
 
-Nicht besonders tief.
-
-Nicht beeindruckend vorbereitet.
-
-Aber alle hatten gerade gesehen, wie ein Mensch in einem Hinterhalt den Gegenstand wegwarf, den alle haben wollten.
-
-Das verschaffte ihm etwas.
-
-Nicht Respekt.
-
-Zeit.
+Das verschaffte ihm Zeit.
 
 „Wenn einer nach dem Schlüssel greift, werfe ich die Kugel“, sagte Taron.
 
@@ -726,8 +692,6 @@ Aber es war dasselbe Wort, das in Abendriss die Wand geöffnet hatte.
 
 „Der am wenigsten.“
 
-Der Erzähler sagte: „Verletzend, aber aktuell taktisch vertretbar.“
-
 Brokk senkte den Stab.
 
 „Wir nehmen euch mit.“
@@ -765,8 +729,6 @@ Taron sah zu Oswin.
 Der Ritter war angespannt. Aber er schüttelte nicht den Kopf. Er sagte auch nicht ja. Er ließ Taron die Entscheidung.
 
 Das war neu.
-
-Schwer.
 
 Taron hob den Menschenschlüssel auf und steckte ihn unter das Hemd zurück.
 

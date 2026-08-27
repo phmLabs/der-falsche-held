@@ -18,7 +18,7 @@ Oswin und Brokk standen bei den Toren. Sie zählten nicht laut. Einmal hob Oswin
 
 König Albrecht und König Rugar saßen im Rittersaal mit Merlan, Malchior, Ansel aus Ellingen und drei Schreibern, die alle aussahen, als hätten sie begriffen, dass Abschriften ab jetzt gefährlicher wurden. Der Hunger von Waldkirch lag wieder unter der Burg, aber die Tür war offen und bewacht, nicht verriegelt und vergessen.
 
-Ansel war erst am Nachmittag gekommen, auf einem Maultier, das sie offenbar nur aus Höflichkeit nicht verurteilte. Sie brachte zwei versiegelte Rollen und eine sehr schlechte Laune mit. Als sie die leeren Glockenhalter Waldkirchs sah, sagte sie nur: „Ihr habt wenigstens noch welche.“ Dann ging sie in den Saal und begann, Königen zu widersprechen, als sei das eine normale Altersbeschäftigung.
+Ansel war erst am Nachmittag gekommen, auf einem Maultier, das sie offenbar nur aus Höflichkeit nicht verurteilte. Sie hatte den Rauch über den Hügeln gesehen, sagte sie, und beschlossen, dass die Liste, die sie Varga gegeben hatte, jetzt vollständig werden dürfe. Sie brachte zwei versiegelte Rollen und eine sehr schlechte Laune mit. Als sie die Glocke im Turm von Waldkirch sah, sagte sie nur: „Ihr habt wenigstens noch eine.“ Dann ging sie in den Saal und begann, Königen zu widersprechen, als sei das eine normale Altersbeschäftigung.
 
 Malchior schrieb mit. Nicht gern. Aber er schrieb.
 
@@ -30,7 +30,7 @@ Das war kein Sieg. Es war eine Richtung, in die später jemand sehr ungern würd
 
 Niemand wusste, wohin er gegangen war. Der Erzähler sagte es nicht, und diesmal fragte Taron nicht sofort. Nicht aus Vertrauen. Aus Erschöpfung. Außerdem hatte er gelernt, dass manche Antworten erst dann nützlich wurden, wenn man genug Brot gegessen hatte, um sie nicht nur als neuen Grund zur Panik zu benutzen.
 
-Trotzdem spürte er etwas am Rand der Welt. Eine dünne Kante. Als habe jemand eine Tür offen gelassen, weit draußen, hinter Bergen, Hallen, alten Grenzen. Band zwei hätte an dieser Stelle sehr gern bedeutungsvoll gehustet, wenn Bände husten könnten. Da sie es nicht konnten, übernahm der Wind.
+Trotzdem spürte er etwas am Rand der Welt. Eine dünne Kante. Als habe jemand eine Tür offen gelassen, weit draußen, hinter Bergen, Hallen, alten Grenzen.
 
 Taron biss ein Stück Brot ab und bereute es sofort, weil sein Kiefer noch von der Kammer schmerzte.
 

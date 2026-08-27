@@ -414,7 +414,7 @@ Der Erzähler antwortete nicht.
 
 Gegen Morgen sagte Merlan: „Ihr müsst nach Waldkirch.“
 
-Vorher schrieb er drei Abschriften derselben Warnung. Eine für Waldkirch, eine für Ellingen, eine für Karndorn, falls Karndorn jemals wieder bereit war, Papier aus Menschenhand nicht sofort als Beleidigung zu betrachten. Jede begann anders und endete gleich: Kein Schutz ohne Zustimmung.
+Vorher schrieb er drei Abschriften derselben Warnung. Eine für Waldkirch, eine für Ellingen, eine für Karndorn, falls Karndorn jemals wieder bereit war, Papier aus Menschenhand nicht sofort als Beleidigung zu betrachten. Jede begann anders und endete gleich: Kein Schutz ohne Stimme des Geschützten.
 
 „Das ist der Kern?“, fragte Elva.
 

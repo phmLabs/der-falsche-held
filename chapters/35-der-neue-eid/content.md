@@ -76,8 +76,6 @@ Rugar sah ihn an. „Falkenried.“
 
 „Leider.“
 
-Der Erzähler sagte schwach: „Eine traditionsbewusste Antwort.“
-
 Rugar schloss die Augen. „Die Stimme ist fort.“
 
 Brokk atmete aus, als hätte er diesen Atem zehn Jahre aufgehoben.
@@ -206,7 +204,7 @@ Malchior sah zum König.
 
 Albrecht sagte nichts.
 
-Das war nicht Vergebung. Aber es war ein Anfang von Aufsicht.
+Es war ein Anfang von Aufsicht.
 
 Albrecht hob die Hand.
 
@@ -412,13 +410,7 @@ Er war es leid, wenn das passierte.
 
 Taron stand zwischen Rauch, Namen und sinkenden Waffen und merkte, dass die Stille nicht kam, weil alle auf einmal gut geworden waren. Sie kam, weil genug Leute für einen Atemzug die Hand des anderen als Hand sahen, nicht als Teil einer Seite.
 
-Das war kleiner als Erlösung.
-
-Es war auch seltener.
-
-Und für einen Atemzug wagte niemand, diesen kleinen Anfang zu erschrecken.
-
-Danach mussten sie ihn mit beiden Händen festhalten.
+Das war kleiner als Erlösung. Es war auch seltener.
 
 Der neue Eid wurde an diesem Tag nicht vollendet.
 
@@ -457,8 +449,6 @@ Es war schwer zu sagen, warum dieses Argument gewann. Vielleicht, weil Marta ihn
 Der Erzähler sagte leise in Tarons Kopf: „Diplomatie ist oft nur die Kunst, den richtigen Eimer zur richtigen Zeit hinzustellen.“
 
 Taron, der am Rand stand und eine Liste von Verletzten hielt, nickte. „Schreib das nicht in einen Vertrag.“
-
-„Leider schreiben Menschen die brauchbarsten Regeln selten auf.“
 
 Im Hof entstanden Zonen, ohne dass jemand sie geplant hatte. Dort, wo die Sonne noch ein wenig Wärme gab, lagen Verwundete. Unter dem Laubengang saß Merlan mit Ansel und vier Leuten, die lesen konnten und deshalb sofort in Verwaltungsgefahr gerieten. Neben dem Brunnen wurden Waffen gesammelt. Am Tor standen Oswin und Brokk, weil beide Seiten einem eigenen Verräter eher glaubten, wenn ein fremder neben ihm stand.
 
@@ -522,15 +512,7 @@ Merlan schrieb Namen auf.
 
 Taron sah zu Oswin und Brokk. Beide hörten es. Beide taten so, als nicht.
 
-Aber vor Waldkirch, zwischen Rauch und Hunger, senkten zwei Völker die Waffen.
-
-Das war kein Ende.
-
-Es war besser.
-
-Es war Arbeit.
-
-Und Arbeit, wie sich herausstellte, begann mit Listen.
+Vor Waldkirch, zwischen Rauch und Hunger, senkten zwei Völker die Waffen. Danach begann die Arbeit, und Arbeit begann mit Listen.
 
 Merlan bestand darauf, dass Menschen und Zwerge ihre Verwundeten nicht getrennt zählten. Das führte zu drei Streitigkeiten, zwei Beinahe-Duellen und einer sehr langen Erklärung des Unterschieds zwischen „gefallen“, „vermisst“, „wiedergefunden“ und „sitzt hinter der Schmiede und weigert sich, einem Menschenheiler seinen Arm zu zeigen“. Ansel schrieb alles auf und strich jeden Titel durch, der ihr zu stolz klang.
 
@@ -847,5 +829,3 @@ Der Erzähler sagte: „Das ist keine Lösung.“
 „Ich weiß.“
 
 „Es ist besser als eine.“
-
-Taron verstand den Satz nicht ganz. Er ließ ihn stehen. Manche Sätze brauchten Platz, bevor sie nützlich wurden.

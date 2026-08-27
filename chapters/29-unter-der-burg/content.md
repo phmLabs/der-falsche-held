@@ -184,10 +184,6 @@ Er nahm es nicht.
 
 Aber er hörte auf zu knurren.
 
-Der Erzähler sagte: „Das ist möglicherweise die genaueste Anrede, die du heute bekommst.“
-
-Taron lachte nicht.
-
 Merlan kniete an der Steinplatte. „Die Vertiefungen sind nicht für die Schlüssel selbst. Für ihre Zeichen.“
 
 „Das heißt?“
@@ -364,19 +360,7 @@ Der Erzähler antwortete nicht mit Spott.
 
 Danach gingen sie langsamer.
 
-Das war keine ausdrückliche Entscheidung. Niemand sagte: Wir gehen jetzt langsamer, weil alte Steine plötzlich antworten und der Krieg über uns eine sehr schlechte Begleitmusik liefert. Menschen und Zwerge sparten sich solche Sätze, wenn die Treppe eng genug war. Sie setzten einfach einen Fuß bedachter vor den anderen.
-
-Taron merkte, wie der Druck in der Luft zunahm. Nicht wie vor einem Sturm. Eher wie in einer Küche kurz bevor ein Topf überkocht, wenn alle es riechen und niemand den Mut hat, den Deckel zu heben. Elva hätte den Deckel vermutlich gehoben. Taron hätte vorgeschlagen, zunächst eine Kommission zu bilden und dann heimlich das Fenster zu suchen.
-
-Der Erzähler sagte: „Selbsterkenntnis kurz vor alten Mächten ist selten nützlich, aber oft dekorativ.“
-
-„Ich versuche, nicht in Panik zu geraten.“
-
-„Das weiß ich. Du machst dabei ein bemerkenswert konzentriertes Gesicht.“
-
-„Ist das Kritik?“
-
-„Eine Bestandsaufnahme.“
+Taron merkte, wie der Druck in der Luft zunahm. Nicht wie vor einem Sturm. Eher wie in einer Küche kurz bevor ein Topf überkocht, wenn alle es riechen und niemand den Mut hat, den Deckel zu heben.
 
 Oswin blieb stehen und hob die Hand. Alle erstarrten.
 
@@ -470,8 +454,6 @@ Merlan nickte langsam. „Ein Dienst ohne Nachfolger. Ein Eid ohne Antwort.“
 
 „Menschen benennen ihre Schuld selten nach sich selbst“, sagte der Erzähler.
 
-Der Satz war nicht witzig. Er war zu trocken dafür. Taron nahm ihn trotzdem mit.
-
 Ein Schlag erschütterte die Decke. Staub fiel dichter. Irgendwo oben krachte Holz. Der Krieg erinnerte sie daran, dass alte Erkenntnisse keine Zeit anhielten.
 
 Elva hustete. „Weiter.“
@@ -493,8 +475,6 @@ Merlan untersuchte die Zeichen an der Wand. „Der breite Gang ist der Zeugenweg
 „Dienstweg.“
 
 Brokk sah hinein. „Für Wächter.“
-
-Taron dachte an plumpe Wegweiser, an Zeichen, die zu direkt waren, an Geschichten, die Helden genau dort hinschickten, wo sie gebraucht wurden. Dieser Ort war anders. Er bot keinen Pfeil. Er bot zwei unangenehme Möglichkeiten, beide richtig, beide schlecht.
 
 „Wenn Rugar kommt“, sagte Taron, „kommt er nicht durch den Zeugenweg.“
 

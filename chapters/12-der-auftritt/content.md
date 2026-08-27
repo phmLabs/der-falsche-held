@@ -20,19 +20,11 @@ Das war nicht dasselbe wie hilfreich.
 
 „Das ist ungefähr, wie Könige regieren.“
 
-„Ein gefährlicher Vergleich, aber endlich einer mit gesellschaftlicher Reichweite.“
-
 Taron sah nach Osten. Der Himmel wurde dort heller, ein graues Licht über Feldern, Hecken und alten Wegsteinen. Waldkirch lag noch einen halben Tagesritt entfernt. Nah genug, dass er sich bereits beobachtet fühlte. Weit genug, dass er noch umdrehen konnte.
 
 Er drehte nicht um.
 
-Das war ärgerlich.
-
 Früher hätte er es getan.
-
-Vielleicht.
-
-Wahrscheinlich.
 
 Der Gedanke fühlte sich nicht wie Mut an. Eher wie ein Fehler, der zu lange angeschoben worden war, um jetzt noch liegen zu bleiben.
 
@@ -170,8 +162,6 @@ Die Menge jubelte.
 
 „Oh nein“, dachte Taron.
 
-Der Erzähler sagte: „Das war entweder sehr schlecht oder hervorragend. Die Geschichte wird später behaupten, es sei Absicht gewesen.“
-
 Am Tor standen Hauptmann Greve, der Vogt und vier Wachen. Greve sah erleichtert aus. Der Vogt sah aus, als habe sein Gesicht seit Tarons Verschwinden mehrere neue Sorgen gekauft und keine davon zurückgeben können.
 
 „Falkenried“, sagte Greve.
@@ -228,13 +218,7 @@ Malchior hörte nur, was in seine Predigt passte. „Der König erwartet dich.�
 
 Taron hielt inne.
 
-Da war es.
-
-Nicht irgendwann.
-
-Nicht später.
-
-Jetzt.
+Da war es. Jetzt.
 
 Oswins Hand bewegte sich kaum sichtbar näher zum Schwert.
 
@@ -285,8 +269,6 @@ Der Vogt wurde blass. Greve sah von Taron zu Malchior und zurück. Oswin sagte n
 „Woher hast du das?“, fragte Malchior.
 
 „Aus einer Welt, in der Leute lesen, bevor sie sich binden lassen.“
-
-Der Erzähler sagte: „Nicht elegant, aber kernig.“
 
 Malchior senkte die Stimme. „Du verstehst nicht, welche Last du trägst.“
 
@@ -390,8 +372,6 @@ Der König sah ihn an.
 
 „Was verlangst du?“
 
-Das war die Frage.
-
 Taron merkte, dass sein Mund trocken war.
 
 „Ich verlange gar nichts.“
@@ -404,10 +384,6 @@ Der König hob die Hand. Malchior schwieg.
 
 Das war neu.
 
-Klein.
-
-Aber neu.
-
 „Ich muss wieder aufbrechen“, sagte Taron. „Sofort. Der Schutzschlüssel ist als Nächstes erwacht. Die Zwerge sind unterwegs. Wenn Waldkirch wartet, finden andere ihn. Wenn Waldkirch mich festsetzt, verliert Ihr nicht nur mich. Ihr verliert den Weg.“
 
 Der Satz war größer als Taron.
@@ -419,8 +395,6 @@ Der König atmete schwer.
 „Du willst wieder gehen.“
 
 „Nein“, sagte Taron.
-
-Das war wichtig.
 
 Er sah Albrecht direkt an.
 
@@ -507,10 +481,6 @@ Der König sah zu Malchior.
 Malchior lächelte nicht mehr.
 
 Das tat Taron gut.
-
-Nicht edel.
-
-Aber gut.
 
 „Eine kleine Gruppe“, sagte der König schließlich. „Sir Oswin. Taron. Und ein Bote bis zur alten Südbrücke.“
 

@@ -56,8 +56,6 @@ Taron betrachtete die Klinge. „Ich kann sie fallen lassen.“
 
 „Nicht deinen.“
 
-Der Erzähler sagte: „Das ist, für eine Waffenunterweisung, erstaunlich vollständig.“
-
 Taron steckte den Dolch an seinen Gürtel. Er hatte seit Tagen ein Messer bei sich, eigentlich ein kleines Küchenmesser aus Waldkirch, das Elva ihm in Grauwehr in die Hand gedrückt hatte. Es war besser zum Schneiden von Käse als zum Überleben. Dieser Dolch dagegen war schwerer, kürzer und ernst gemeint.
 
 „Ich will ihn nicht benutzen müssen“, sagte Taron.
@@ -115,8 +113,6 @@ Taron wollte widersprechen, kam aber auf einen rutschigen Stein und musste sich 
 Elva schnaubte leise. „In Waldkirch beginnt Geschichte meistens mit einem Priester, der eine Abschrift findet.“
 
 „Das ist noch schlimmer“, sagte Brokk.
-
-Der Erzähler sagte: „Als Abschrift möchte ich anmerken, dass viele Originale durch selbstbewusste Dummheit erheblich verlieren.“
 
 An einer Stelle wurde der Gang breiter, und Taron sah, dass sie nicht in einem Stollen gingen, sondern auf einer Straße.
 
@@ -533,8 +529,6 @@ Der Erzähler sagte nichts, und Taron merkte, dass das inzwischen die genaueste 
 
 „Menschen bauen schlechte Wege, sobald sie glauben, sie seien gemeint.“
 
-Der Erzähler sagte: „Ich halte diesen Satz für unhöflich, aber statistisch schwer angreifbar.“
-
 Aus dem Gang hinter ihnen kam Vargas Stimme, diesmal deutlich genug, dass alle sie verstanden.
 
 „Brokk Eisenhand.“
@@ -568,8 +562,6 @@ Brokk hob die Stimme nicht. „Krail kennt seinen Eid.“
 Von oben kam ein Lachen. Dann ein Schlag. Kein scharfer Klang, eher Holz auf Leder. Jemand keuchte.
 
 Brokks Kiefer arbeitete.
-
-Der Erzähler sagte nichts Tröstliches. Gut. Trost hätte hier wie eine schlechte Decke gewirkt: zu dünn und im falschen Moment angeboten.
 
 „Hauptmann“, flüsterte Lorn.
 
@@ -689,8 +681,6 @@ Taron zog die Hand zurück. „Meine Hand arbeitet gegen mich.“
 
 „Dann führ sie besser.“
 
-Der Erzähler sagte: „Ein Satz, den man erstaunlich spät in vielen Heldenleben hört.“
-
 „Das verzögert sie?“, fragte Taron.
 
 „Kurz.“
@@ -741,8 +731,6 @@ Brokk kniete vor dem Zeichen und legte den Zwergenschlüssel nicht dazu. Er trug
 
 „Noch nicht drei“, sagte Brokk.
 
-Der Erzähler sagte sehr trocken: „Eine beruhigende mathematische Feststellung, falls man Katastrophen gern in Zahlen sortiert.“
-
 Elva blickte in den südlichen Riss. „Und der dritte wartet dort?“
 
 Brokk sah zu der schwach leuchtenden Schutzspur. „Er wartet nicht. Er liegt.“
@@ -776,8 +764,6 @@ Brokk sah auf das Zeichen, das schwach im Stein stand.
 Taron schloss die Finger um den Menschenschlüssel.
 
 „Das lief nicht besonders gut.“
-
-Der Erzähler sagte: „Ein Satz, der die Geschichte vieler Reiche auf bedauerlich wenige Worte bringt.“
 
 Brokk wandte sich zum Ausgang. „Eidgrund ist kein Ort für Banner. Kein Thronsaal. Kein Tempel. Dort trafen sich Leute, die nicht genug Vertrauen hatten, um in den Hallen des anderen zu schwören.“
 

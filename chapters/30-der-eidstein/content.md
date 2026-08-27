@@ -1,3 +1,5 @@
+Das Gitter schwang auf. Vom Steg führte eine schmale Eisentreppe hinab, und sie stiegen hinunter, während unter ihnen die Zeugenplätze aufglommen.
+
 Der Eidstein stand in einer Kammer, die zu groß für Waldkirch war.
 
 Das war Tarons erster Gedanke. Nicht: uralt. Nicht: mächtig. Nicht einmal: bitte lass mich hier wieder hinaus. Die Kammer passte nicht unter diese Burg, unter dieses hungernde, streitende, schlecht gelüftete Waldkirch. Sie war rund, hoch und aus einem Stein gehauen, der im Lampenlicht weder grau noch schwarz war. Drei breite Rinnen liefen vom Rand zur Mitte. Dort stand der Eidstein.
@@ -21,12 +23,6 @@ Am Rand der Kammer standen niedrige Sitze aus Stein. Keine Throne. Zu schlicht, 
 „Warum zwölf?“
 
 Merlan blickte kurz beleidigt, weil die Welt ihm nicht sofort eine Fußnote gab. „Vermutlich, weil elf zu wenige waren.“
-
-Merlan flüsterte: „Eidenschloss.“
-
-Der Erzähler sagte diesmal nicht, dass er das Wort lassen sollte.
-
-Das war beunruhigend.
 
 Brokk ging langsam näher. „Riedwacht war nur ein Vorhof.“
 
@@ -52,13 +48,9 @@ Taron dachte an Arvens Streifen in seinem Mantel. Trau der Stimme. Er war mein F
 
 Der Erzähler sprach leise. „Das ist er.“
 
-Taron wollte fragen, wer. Dann hörte er Schritte.
+Taron musste nicht fragen, wer.
 
-Von der anderen Seite der Kammer öffnete sich ein Durchgang.
-
-König Rugar trat ein.
-
-Er musste einen anderen Weg unter die Burg genommen haben. Einen alten Zwergenweg vielleicht, oder einen, den Niemand ihm gezeigt hatte. Hinter ihm blieb der Durchgang dunkel. Keine Leibwache folgte. Kein Varga. Kein Banner. Rugar brauchte keine Zeugen, wenn die Kammer selbst gezwungen war, ihn anzusehen.
+Rugar stand am anderen Ende der Kammer. Der Durchgang hinter ihm war dunkel geblieben. Er musste einen anderen Weg unter die Burg genommen haben, einen alten Zwergenweg vielleicht, oder einen, den Niemand ihm gezeigt hatte. Keine Leibwache. Kein Varga. Kein Banner. Rugar brauchte keine Zeugen, wenn die Kammer selbst gezwungen war, ihn anzusehen.
 
 Brokk machte einen Laut, der kein Wort war.
 

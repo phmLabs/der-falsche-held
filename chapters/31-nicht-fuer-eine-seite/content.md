@@ -146,7 +146,7 @@ Merlan flüsterte: „Zustimmung.“
 
 „Was?“
 
-„Das fehlende Wort. Kein Schutz ohne Zustimmung.“
+„Das fehlende Wort auf dem Stein. Nicht Stimme. Zustimmung.“
 
 Der andere fuhr herum. Zum ersten Mal sah er Merlan wirklich an.
 
