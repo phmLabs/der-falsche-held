@@ -160,8 +160,6 @@ Oswin hustete. „Graufinger!“
 
 „Unter Kontrolle!“, rief Merlan.
 
-Der Erzähler sagte: „Eine mutige Behauptung in einem Hof, der gerade chemisch beleidigt wurde.“
-
 Am Tor bildete sich eine Linie. Zwerge wollten hinein. Menschen wollten sie draußen halten. Beide Seiten glaubten, unter der Burg liege etwas, das der andere nicht erreichen dürfe. Beide hatten recht und lagen falsch, was für eine Schlacht eine sehr fleißige Kombination war.
 
 Brokk rammte seinen Stab zwischen zwei Schilde. Oswin nutzte die Lücke, drehte einen menschlichen Soldaten aus der Bahn und stieß einen Zwerg mit der Schulter zurück, ohne ihm die Klinge in den Hals zu setzen.
@@ -247,8 +245,6 @@ Oswin blockte einen Schlag. „Sechs!“
 „Das Kind zählt doppelt“, rief Taron, ohne zu wissen, warum.
 
 „Nein!“, riefen Oswin und Brokk gleichzeitig.
-
-Der Erzähler sagte: „Regelbildung in der Schlacht. Der Zivilisation geht es besser, als zu erwarten war.“
 
 Am Ende erreichten sie das Tor zu den unteren Gängen.
 

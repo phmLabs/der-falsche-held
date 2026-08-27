@@ -28,8 +28,6 @@ Taron sah sie an. „Du bist auf seiner Seite?“
 
 „Ich bin auf keiner Seite, die Misthaufen verteidigt.“
 
-Der Erzähler sagte: „Feige, aber diplomatisch.“
-
 Brokk ging eine Weile schweigend. Dann sagte er: „Wenn ein Schutzdämon schützen soll, warum lenkt Niemand Rugar?“
 
 Merlan wurde ernst. „Weil Bindung verderben kann. Oder weil er nie zum Schutz Rugar gebunden war.“
@@ -289,8 +287,6 @@ Merlan schrieb später an den Rand seiner Notizen: Bindung verändert beide Seit
 „Ich vermisse Antworten, die nicht versuchen, zwei Türen gleichzeitig zu benutzen.“
 
 „Dann solltest du keine alten Wesen untersuchen.“
-
-Der Erzähler sagte: „Ein Rat, der bedauerlich spät kommt.“
 
 Brokk saß am Feuer und schärfte eine Kerbe aus seinem Stab. „In Karndorn sagt man, ein Eid macht aus zwei Dingen ein drittes. Nicht besser. Nicht reiner. Nur drittes.“
 

@@ -288,8 +288,6 @@ Oswin hob eine Braue. „Du gibst Botenanweisungen?“
 
 „Unklar. Aber weg von schweigendem Opfer.“
 
-Der Erzähler sagte: „Eine Richtung, die ich unter Vorbehalt unterstütze.“
-
 Sie verließen den Wachhof kurz darauf. Hinter ihnen blieb die leere Straße, vor ihnen Waldkirch, und irgendwo seitlich davon marschierte Rugar mit einem Heer, das glaubte, es bringe Schutz. Taron hatte inzwischen gelernt, dass die gefährlichsten Leute selten sagten, sie brächten Verderben. Verderben war ein schlechtes Banner. Schutz ließ sich besser tragen.
 
 Auf dem ersten Hügel drehte er sich noch einmal um. Im Wachhof hing die Tür schief. Der Brunnen blieb leer. Arvens kleiner Vogel in der Tischplatte blieb zurück, eine Spur für jemanden, der später vielleicht auch zu spät verstand.
@@ -339,8 +337,6 @@ Oswin sah ihn von der Seite an.
 „Was? In letzter Zeit ist alles ein Zeichen.“
 
 „Das war ein Vogel.“
-
-Der Erzähler sagte: „Eine tapfere Arbeitshypothese.“
 
 Brokk blieb plötzlich stehen.
 
@@ -433,7 +429,5 @@ Als sie weiterzogen, erzählte Brokk von Karndorns unteren Hallen. Nicht lange, 
 „Dann wird Rugar sich daran festhalten.“
 
 Brokk nickte langsam. „Weil es leichter ist, sich für echte Not zu entschuldigen als für falsche Schlüsse.“
-
-Der Erzähler sagte: „Eine unangenehm erwachsene Einsicht. Ich empfehle, sie nicht zu oft zu haben.“
 
 Niemand lachte. Aber der Satz blieb bei ihnen.

@@ -86,11 +86,11 @@ Oswin erklärte, die Männer seien hungrig, schlecht ausgebildet und dumm gewese
 
 Oswin sah nach Westen.
 
-„Zweihundertachtundvierzig.“
+„Sechsundachtzig.“
 
 Taron sagte nichts.
 
-„Zweihundertneunundvierzig, wenn man Hauptmann Drogan mitzählt“, sagte Oswin. „Aber er fiel von einer Mauer, bevor ich richtig fertig war. Ich lasse ihn ungern gelten.“
+„Siebenundachtzig, wenn man Hauptmann Drogan mitzählt“, sagte Oswin. „Aber er fiel von einer Mauer, bevor ich richtig fertig war. Ich lasse ihn ungern gelten.“
 
 Das war gewissenhaft.
 

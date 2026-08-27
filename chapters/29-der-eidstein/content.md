@@ -22,8 +22,6 @@ Am Rand der Kammer standen niedrige Sitze aus Stein. Keine Throne. Zu schlicht, 
 
 Merlan blickte kurz beleidigt, weil die Welt ihm nicht sofort eine Fußnote gab. „Vermutlich, weil elf zu wenige waren.“
 
-Der Erzähler sagte: „Wissenschaft am Rand ihrer Geduld. Ein seltener Genuss.“
-
 Merlan flüsterte: „Eidenschloss.“
 
 Der Erzähler sagte diesmal nicht, dass er das Wort lassen sollte.

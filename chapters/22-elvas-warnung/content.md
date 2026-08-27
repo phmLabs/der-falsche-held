@@ -280,8 +280,6 @@ Taron nickte. Er kannte das. Manche Entscheidungen musste man treffen, bevor man
 
 „Ja. Marta hätte nur besser gestohlen.“
 
-Der Erzähler sagte: „Eine moralische Unterscheidung, die in Küchen erstaunlich tragfähig ist.“
-
 Elva sah zu Taron. „Sag ihm, er soll nicht so tun, als verstehe er Küchen.“
 
 „Sie sagt, du sollst nicht so tun, als verstehst du Küchen.“
@@ -369,8 +367,6 @@ Taron sah zu ihr. „Du planst schon die Zeit danach?“
 „Sehr weit oben?“
 
 „Mit Ausrufezeichen.“
-
-Der Erzähler sagte: „Elvas Listen wirken beunruhigend überlebensnah.“
 
 Der Erzähler schwieg dazu. Taron nahm es als Zustimmung, weil er für etwas anderes zu müde war.
 

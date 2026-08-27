@@ -154,7 +154,7 @@ Aber etwas in ihm erinnerte sich an Bewegung zwischen den Bäumen, nachdem sie A
 
 „Wer?“
 
-„Tesk. Vargars Läufer. Er hat gemeldet, dass die Maskenträger sich zurückzogen und einer von ihnen den Menschenjungen nicht mehr Feind nannte.“
+„Torv. Vargas Läufer. Er hat gemeldet, dass die Maskenträger sich zurückzogen und einer von ihnen den Menschenjungen nicht mehr Feind nannte.“
 
 „Das reicht?“
 
@@ -368,7 +368,7 @@ Brokk wandte sich zu ihm. „Du willst den Schutzschlüssel.“
 
 Oswin trat näher. „Warum?“
 
-Brokk sah ihn an. In diesem Blick lagen zweihundertfünfunddreißig Tote und noch etwas, das nicht gezählt werden wollte.
+Brokk sah ihn an. In diesem Blick lagen alle Toten, die er je gezählt hatte, und noch etwas, das sich nicht zählen ließ.
 
 „Weil mein König mit Niemand spricht“, sagte er. „Und weil der Junge es auch tut.“
 

@@ -68,8 +68,6 @@ Malchior hob die heilige Abschrift. „Die Prophezeiung sagt, der wahre Träger 
 
 Taron rieb sich das Gesicht. „Ich beginne, dieses Blatt persönlich abzulehnen.“
 
-Der Erzähler sagte: „Eine späte, aber gesunde Entwicklung.“
-
 Rugar hob den Hammer.
 
 Taron spürte, wie alle drei Schlüssel antworteten. Der Menschenschlüssel an seiner Brust. Der Schutzschlüssel in Elvas Tasche. Der Zwergenschlüssel bei Brokk.

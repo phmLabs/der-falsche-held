@@ -58,7 +58,7 @@ Taron betrachtete die Klinge. „Ich kann sie fallen lassen.“
 
 Der Erzähler sagte: „Das ist, für eine Waffenunterweisung, erstaunlich vollständig.“
 
-Taron steckte den Dolch an seinen Gürtel. Er hatte seit Tagen ein Messer bei sich, eigentlich ein kleines Küchenmesser aus Waldkirch, das Elva ihm gegeben hatte, als sie aufbrachen. Es war besser zum Schneiden von Käse als zum Überleben. Dieser Dolch dagegen war schwerer, kürzer und ernst gemeint.
+Taron steckte den Dolch an seinen Gürtel. Er hatte seit Tagen ein Messer bei sich, eigentlich ein kleines Küchenmesser aus Waldkirch, das Elva ihm in Grauwehr in die Hand gedrückt hatte. Es war besser zum Schneiden von Käse als zum Überleben. Dieser Dolch dagegen war schwerer, kürzer und ernst gemeint.
 
 „Ich will ihn nicht benutzen müssen“, sagte Taron.
 

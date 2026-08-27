@@ -242,9 +242,21 @@ Taron spürte zum ersten Mal seit dem Betreten des Hauses etwas, das beinahe Hof
 
 Oswin saß bereits sehr gerade auf seinem Stuhl, vorsichtig genug, um weder Kissen noch Becher zu verschieben.
 
-„Malchior sagt, im Schatten des Turms ruht der Menschenschlüssel.“
+„Malchior sagt, im Schatten des Turms ruht der erste Splitter der Nachtkrone.“
 
 Merlan schloss die Augen.
+
+Er behielt sie eine Weile geschlossen, so wie andere Leute bis zehn zählen.
+
+„Die Nachtkrone“, sagte er schließlich, „ist ein Reim. Ein Dichter brauchte vor dreihundert Jahren etwas Feierliches am Zeilenende, und seitdem suchen Männer mit Fackeln nach Splittern, die nie zerbrochen sind, weil sie nie eine Krone waren.“
+
+„Also gibt es dort nichts.“
+
+„Das habe ich nicht gesagt. Dort liegt etwas mit einem viel langweiligeren Namen und einem viel schlimmeren Gewicht.“
+
+„Und der wäre?“
+
+Merlan öffnete die Augen. „Der Menschenschlüssel.“
 
 Taron zog die Pergamentabschrift aus seinem Beutel. Malchior hatte sie ihm beim Aufbruch gegeben, zusammengerollt, versiegelt und mit einer Feierlichkeit überreicht, als enthalte sie Weisheit und nicht hauptsächlich Arbeit für andere Menschen.
 

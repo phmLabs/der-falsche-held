@@ -42,8 +42,6 @@ Merlan holte Kreide und zog um jede Schale einen Kreis. Dann zog er um die drei 
 
 „Das ist die Art Frage, die man stellt, bevor man das Fenster öffnet und nachsieht, wer unten eine Leiter hält.“
 
-Der Erzähler sagte: „Ich billige diese Vorsicht. Ungern, aber deutlich.“
-
 Brokk betrachtete die Kreide. „Zwergische Binder hätten Salz genommen.“
 
 „Ich hatte welches“, sagte Merlan. „Dann kam ein Winter, und Menschen brauchten Suppe.“
@@ -276,23 +274,27 @@ Vorher schrieb er drei Abschriften derselben Warnung. Eine für Waldkirch, eine 
 
 „Dann hat Ansel vermutlich eine vierte, die sie mir aus Misstrauen nicht gezeigt hat.“
 
-Der Erzähler sagte: „Ich schätze diese Frau zunehmend.“
-
 Merlan packte die Blätter in Wachstuch. Seine Hände zitterten nicht. Das fiel Taron auf. Merlan hatte Angst, sicher. Aber er war in seinem eigenen Gebiet angekommen: Worte gegen falsche Worte, Abschriften gegen Lücken, Tinte gegen Blut, soweit Tinte es eben schaffte.
 
-Bevor er die Tasche schloss, holte Merlan noch eine schmale Holzschachtel aus einem Regal. Sie war mit drei Drähten versiegelt und mit so vielen Warnzeichen beschriftet, dass Taron sofort einen Schritt zurücktrat.
+Bevor er die Tasche schloss, streckte Merlan die Hand aus.
 
-„Was ist das?“
+„Die Kugel.“
 
-„Rauchkugel.“
+Taron zog das Lederpäckchen aus seinem Beutel und legte es ihm hin. Es war weicher geworden, als Leder sein sollte.
 
-„Singular?“
+Merlan wickelte es auf, drehte die Kugel ins Licht und roch am Wachs. Sein Gesicht wurde schmal.
 
-„Ja.“
+„Feucht gelagert.“
 
-„Warum klingt Singular bei dir wie eine Drohung?“
+„Ich war in einer Zisterne. Danach in einem Wasserlauf. Danach mehrfach im Regen.“
 
-Merlan legte die Schachtel auf den Tisch. „Weil ich nur eine habe. Sie ist selten, teuer, unberechenbar in feuchten Kellern und für gewöhnliche Menschen von Magie kaum zu unterscheiden.“
+„Das erklärt es und entschuldigt nichts.“
+
+Er trug die Kugel zum Ofen, setzte neues Wachs auf das Siegel und wartete, bis es hart war. Dann legte er sie in eine schmale Holzschachtel, die mit drei Drähten versiegelt und mit so vielen Warnzeichen beschriftet war, dass Taron einen Schritt zurücktrat.
+
+„Wozu die Schachtel?“
+
+„Weil ich nur diese eine habe und du sie offenbar wie einen Apfel behandelst. Sie ist selten, teuer, unberechenbar in feuchten Kellern und für gewöhnliche Menschen von Magie kaum zu unterscheiden.“
 
 Oswin trat näher. Zum ersten Mal an diesem Abend sah er nicht gelangweilt von Wissenschaft aus. „Wirkung?“
 
@@ -322,11 +324,9 @@ Taron war überrascht. „Gut?“
 
 „Er weiß, was sie nicht kann.“
 
-Der Erzähler sagte: „Ritterliche Anerkennung für begrenzte Chemie. Die Zivilisation taumelt voran.“
+Merlan schob Taron die Schachtel wieder zu.
 
-Merlan gab Taron die Schachtel.
-
-Taron nahm sie nicht sofort. „Warum ich?“
+Taron nahm sie nicht sofort. „Warum immer noch ich?“
 
 „Weil Oswin sie zu früh taktisch einsetzen würde, Brokk sie für zu zwergisch wertvoll halten könnte, Elva bereits den klügeren Teil dieser Gruppe trägt, und du eine bemerkenswerte Begabung hast, Dinge genau so lange nicht zu benutzen, bis alle nervös werden.“
 

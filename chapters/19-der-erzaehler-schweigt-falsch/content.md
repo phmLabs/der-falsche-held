@@ -262,8 +262,6 @@ Elva sah es. „Was?“
 
 „Dann lebt er noch.“
 
-Der Erzähler sagte: „Eine erschreckend brauchbare Diagnose.“
-
 Ellingen.
 
 Taron ging weiter, aber langsamer. Er fühlte den Menschenschlüssel unter seinem Hemd, wusste um den Zwergenschlüssel bei Brokk und den Schutzschlüssel bei Elva. Drei Dinge, die Freiheit bringen sollten. Niemand hatte laut genug gefragt, wem.

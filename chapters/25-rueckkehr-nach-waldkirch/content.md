@@ -62,8 +62,6 @@ Taron blieb beinahe stehen.
 
 „Alle, bis du Zeit hast.“
 
-Der Erzähler sagte: „Eine solide Regel für Wandtheologie.“
-
 Vor Martas Backstube roch es nicht nach frischem Brot. Das traf Taron härter als die Schrift. Dort hatte es immer nach Brot gerochen, selbst an schlechten Tagen. Nun roch es nach kalter Asche und dünner Suppe.
 
 Marta stand vor der Backstube.

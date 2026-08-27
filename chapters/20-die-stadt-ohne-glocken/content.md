@@ -124,8 +124,6 @@ Ansel sah auf Tarons Brust. „Du trägst einen davon.“
 
 „Nicht dort.“
 
-Der Erzähler sagte: „Ich beginne, diese Frau ebenfalls für lästig zu halten. Ein gutes Zeichen.“
-
 Ansel zeigte auf die Papiere. „Die Glocken wurden vor sechs Jahren geholt. Zwergenkönig Rugar kam selbst. Er sagte, ihr Klang wecke falsche Hoffnung.“
 
 Brokk senkte den Blick.
@@ -268,8 +266,6 @@ Taron merkte sich diesen Blick. Nicht weil er Angst vor ihr bekam. Weil er hofft
 
 „Jeder, der alte Texte liebt, kennt Merlan Graufinger. Die meisten versuchen danach, ihn seltener zu treffen.“
 
-Der Erzähler sagte: „Eine wissenschaftlich belastbare Aussage.“
-
 Als sie Ellingen verließen, schlug hinter ihnen keine Glocke Alarm.
 
 Aber am letzten Haus stand das Mädchen von vorhin. Sie hielt den Holzstab in beiden Händen, den ihre Mutter ihr weggenommen hatte. Diesmal schlug sie nicht gegen einen Eimer. Sie hielt ihn Taron nur entgegen.
@@ -281,8 +277,6 @@ Taron nahm den Stab nicht. Er nickte nur.
 „Wem soll ich das sagen?“
 
 Das Mädchen sah ihn an, als sei er langsamer, als sein Alter erlaubte. „Allen, die Glocken klauen.“
-
-Der Erzähler sagte: „Eine politische Theorie, knapp genug für eine Mauer.“
 
 Elva lächelte dem Mädchen zu. Nicht freundlich im weichen Sinn. Eher wie jemand, der versprach, den Satz nicht fallen zu lassen.
 

@@ -406,15 +406,13 @@ Sein Gesicht veränderte sich nicht, aber etwas in ihm zog sich zusammen.
 
 „Eine Zahl.“
 
-„Zweihundertachtundvierzig.“
+Oswin sah ihn an und sagte nichts.
 
-Elva sog leise Luft ein.
-
-Taron hatte die Zahl schon gehört. Trotzdem traf sie anders, wenn sie vor einem Zwerg ausgesprochen wurde.
+Elva sog leise Luft ein. Taron begriff erst später, dass dieses Schweigen keine Weigerung war, sondern ein Preis, den Oswin vor Zeugen nicht zahlen wollte.
 
 Brokk hielt den Blick auf Oswin.
 
-„Ich habe zweihundertfünfunddreißig Menschen gezählt.“
+„Ich zähle auch“, sagte er.
 
 Keiner sprach.
 

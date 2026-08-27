@@ -220,8 +220,6 @@ Merlan atmete aus. „Nicht Besitz. Rolle.“
 
 Elva sah auf die offene Hand. „Dann ist Schutz schwerer, als ich dachte.“
 
-Der Erzähler sagte: „Endlich sagt es jemand.“
-
 Über ihnen bebte die Decke. Staub fiel. Ein Schrei drang durch die Gänge, dann ein Krachen.
 
 Der Krieg kam näher, selbst hier unten.
@@ -334,8 +332,6 @@ Brokk fuhr mit der eisernen Hand über einen zwergischen Namen. „Karndorn hät
 
 Oswin sah zurück in die Dunkelheit. „Leute vergessen, was ihnen unangenehm dient.“
 
-Der Erzähler sagte: „Eine knappe, unerfreulich belastbare Geschichtstheorie.“
-
 Weiter unten fanden sie einen kleinen Raum neben der Treppe. Darin standen zerbrochene Schalen, ein verrosteter Kessel und ein niedriger Stein mit Brandspuren. Keine Falle. Kein Altar. Eine Küche.
 
 Elva blieb stehen.
@@ -428,8 +424,6 @@ Alle sahen ihn an.
 
 Er zuckte kaum mit der Schulter. „Wenn man sie nicht bewacht, behauptet später jeder, sie sei schon immer woanders gewesen.“
 
-Der Erzähler sagte: „Ritter Oswin, erneut ungebeten präzise.“
-
 Sie gingen weiter.
 
 Der nächste Abschnitt des Gangs war mit kleinen Nischen versehen. In manchen lagen Steine. In einer ein verrosteter Fingerhut. In einer anderen ein Stück Holz, schwarz vor Alter, in das jemand drei Kerben geschnitten hatte. Merlan wollte alles untersuchen. Elva erlaubte ihm drei Atemzüge pro Nische, was eine der härteren wissenschaftlichen Beschränkungen der Geschichte war.
@@ -491,8 +485,6 @@ Links führte eine breite Stufe hinab. Rechts ein schmaler Tunnel, niedriger, du
 „Breiter Gang“, sagte Oswin.
 
 „Zu offensichtlich“, sagte Taron.
-
-Der Erzähler sagte: „Eine erfreuliche, wenn auch verspätete Entwicklung.“
 
 Merlan untersuchte die Zeichen an der Wand. „Der breite Gang ist der Zeugenweg. Der schmale...“
 
