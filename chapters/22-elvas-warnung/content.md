@@ -2,391 +2,391 @@ Sie brachen vor Sonnenaufgang auf.
 
 Merlan kam mit.
 
-Das war die erste schlechte Nachricht des Tages, jedenfalls fuer Merlan. Er trug zwei Taschen, drei Rollen, eine Kiste mit Phiolen und den Gesichtsausdruck eines Mannes, der Reisen weiterhin fuer einen Denkfehler hielt, aber beschlossen hatte, dass manche Denkfehler persoenliche Aufsicht brauchten.
+Das war die erste schlechte Nachricht des Tages, jedenfalls für Merlan. Er trug zwei Taschen, drei Rollen, eine Kiste mit Phiolen und den Gesichtsausdruck eines Mannes, der Reisen weiterhin für einen Denkfehler hielt, aber beschlossen hatte, dass manche Denkfehler persönliche Aufsicht brauchten.
 
-"Ich werde langsam", sagte er.
+„Ich werde langsam“, sagte er.
 
-"Du warst vorher nicht schnell", sagte Oswin.
+„Du warst vorher nicht schnell“, sagte Oswin.
 
-"Das war Absicht."
+„Das war Absicht.“
 
-"Dann bleibt alles beim Alten."
+„Dann bleibt alles beim Alten.“
 
-Taron ging neben Elva, etwas hinter den anderen. Waldkirch lag noch zwei Tagesmaersche entfernt, aber der Gedanke daran war bereits schneller gewesen und wartete in seiner Brust. Er wollte nicht zurueck. Er wollte sehr zurueck. Beides war wahr, was ihn aergerte.
+Taron ging neben Elva, etwas hinter den anderen. Waldkirch lag noch zwei Tagesmärsche entfernt, aber der Gedanke daran war bereits schneller gewesen und wartete in seiner Brust. Er wollte nicht zurück. Er wollte sehr zurück. Beides war wahr, was ihn ärgerte.
 
-Elva trug den Schutzschluessel nicht mehr. Merlan hatte ihn in eine gefuetterte Holzkapsel gelegt, die nun in Oswins Satteltasche steckte. Oswin hatte die Tasche angenommen, als waere sie ein schlafender Feind.
+Elva trug den Schutzschlüssel nicht mehr. Merlan hatte ihn in eine gefütterte Holzkapsel gelegt, die nun in Oswins Satteltasche steckte. Oswin hatte die Tasche angenommen, als wäre sie ein schlafender Feind.
 
-"Du musst mir noch etwas sagen", sagte Taron.
+„Du musst mir noch etwas sagen“, sagte Taron.
 
-Elva sah nicht ueberrascht aus.
+Elva sah nicht überrascht aus.
 
-"Ja."
+„Ja.“
 
-"In Waldkirch. Was du gehoert hast."
+„In Waldkirch. Was du gehört hast.“
 
-Sie gingen ein Stueck weiter, bis die anderen vor ihnen um eine Biegung verschwanden.
+Sie gingen ein Stück weiter, bis die anderen vor ihnen um eine Biegung verschwanden.
 
-"Ich wollte es dir frueher sagen", begann Elva.
+„Ich wollte es dir früher sagen“, begann Elva.
 
-"Das ist meistens der Anfang von Saetzen, die spaeter nicht besser werden."
+„Das ist meistens der Anfang von Sätzen, die später nicht besser werden.“
 
-"Nein. Werden sie nicht."
+„Nein. Werden sie nicht.“
 
-Sie blieb stehen. Taron blieb ebenfalls stehen. Der Weg war schmal, links eine Hecke, rechts ein Graben mit altem Wasser. Kein wuerdiger Ort fuer eine Wahrheit. Aber Taron hatte langsam den Verdacht, dass wuerdige Orte ueberbewertet wurden.
+Sie blieb stehen. Taron blieb ebenfalls stehen. Der Weg war schmal, links eine Hecke, rechts ein Graben mit altem Wasser. Kein würdiger Ort für eine Wahrheit. Aber Taron hatte langsam den Verdacht, dass würdige Orte überbewertet wurden.
 
-"Koenig Albrecht und Malchior wussten, dass du sterben koenntest", sagte Elva. "Nicht nur bei der Pruefung. Auf dem ganzen Weg."
+„König Albrecht und Malchior wussten, dass du sterben könntest“, sagte Elva. „Nicht nur bei der Prüfung. Auf dem ganzen Weg.“
 
-"Das wusste jeder."
+„Das wusste jeder.“
 
-"Sie fanden es tragbar."
+„Sie fanden es tragbar.“
 
-Das Wort war schlimmer als grausam. Grausam haette wenigstens Zähne gehabt. Tragbar klang nach einem Sack Mehl, den man von einem Wagen auf den anderen hob.
+Das Wort war schlimmer als grausam. Grausam hätte wenigstens Zähne gehabt. Tragbar klang nach einem Sack Mehl, den man von einem Wagen auf den anderen hob.
 
-"Tragbar", sagte Taron.
+„Tragbar“, sagte Taron.
 
-Elva nickte. "Malchior sagte, ein Auserwaehlter sei kein Besitz seiner Mutter, seines Dorfes oder seiner eigenen Angst. Wenn dein Leiden Lichtenhain Freiheit bringt, muesse Lichtenhain stark genug sein, es anzunehmen."
+Elva nickte. „Malchior sagte, ein Auserwählter sei kein Besitz seiner Mutter, seines Dorfes oder seiner eigenen Angst. Wenn dein Leiden Lichtenhain Freiheit bringt, müsse Lichtenhain stark genug sein, es anzunehmen.“
 
 Taron sah in den Graben.
 
-Das Wasser stand still. Einige Blaetter lagen darauf. Eins sank langsam, ohne dass jemand ihm einen Titel gab.
+Das Wasser stand still. Einige Blätter lagen darauf. Eins sank langsam, ohne dass jemand ihm einen Titel gab.
 
-"Und der Koenig?"
+„Und der König?“
 
-"Er widersprach nicht. Er sagte, dein Name sei ein Geschenk, das man nicht zurueckweisen duerfe."
+„Er widersprach nicht. Er sagte, dein Name sei ein Geschenk, das man nicht zurückweisen dürfe.“
 
-Der Erzaehler sagte nichts.
+Der Erzähler sagte nichts.
 
-Taron war dankbar dafuer. Das merkte er erst, als keine Bemerkung kam.
+Taron war dankbar dafür. Das merkte er erst, als keine Bemerkung kam.
 
-"Mein Name", sagte er.
+„Mein Name“, sagte er.
 
-"Taron..."
+„Taron...“
 
-"Nein, schon gut. Ich wollte immer einmal ein Geschenk sein. Ich hatte nur gehofft, dass mich vorher jemand einwickelt."
+„Nein, schon gut. Ich wollte immer einmal ein Geschenk sein. Ich hatte nur gehofft, dass mich vorher jemand einwickelt.“
 
-Der Satz kam trocken heraus. Er klang fast wie der Erzaehler. Taron mochte das nicht.
+Der Satz kam trocken heraus. Er klang fast wie der Erzähler. Taron mochte das nicht.
 
-Elva trat naeher. "Ich habe dich mit der Milch in diese Sache gestossen."
+Elva trat näher. „Ich habe dich mit der Milch in diese Sache gestoßen.“
 
-"Du hast Milch verschuettet."
+„Du hast Milch verschüttet.“
 
-"Ich habe gelacht. Ich habe es weitererzaehlt. Ich dachte, es sei ein Kuechenwitz, und dann standen ploetzlich Priester da."
+„Ich habe gelacht. Ich habe es weitererzählt. Ich dachte, es sei ein Küchenwitz, und dann standen plötzlich Priester da.“
 
-"Elva."
+„Elva.“
 
-"Ich bin nicht gekommen, weil du ein Held bist."
+„Ich bin nicht gekommen, weil du ein Held bist.“
 
 Er sah sie an.
 
-Sie wirkte wuetend. Nicht auf ihn. Auf Waldkirch. Auf sich. Auf die ganze Art, wie Maechte Menschen zu Zeichen machten und dann beleidigt waren, wenn sie bluteten.
+Sie wirkte wütend. Nicht auf ihn. Auf Waldkirch. Auf sich. Auf die ganze Art, wie Mächte Menschen zu Zeichen machten und dann beleidigt waren, wenn sie bluteten.
 
-"Ich bin gekommen, weil sie ueber dich sprachen, als waerst du schon halb tot und nur noch nuetzlich. Und weil du Taron bist."
+„Ich bin gekommen, weil sie über dich sprachen, als wärst du schon halb tot und nur noch nützlich. Und weil du Taron bist.“
 
 Der Name stand anders zwischen ihnen als in Albrechts Mund. Nicht wie ein Beweis. Nicht wie ein Siegel. Nur wie etwas, das jemand kannte und nicht hergeben wollte.
 
 Taron schluckte.
 
-"Das ist kein besonders guter Grund, in alte Schluesselsachen zu geraten."
+„Das ist kein besonders guter Grund, in alte Schlüsselsachen zu geraten.“
 
-"Fuer mich schon."
+„Für mich schon.“
 
-"Du bist sehr sicher."
+„Du bist sehr sicher.“
 
-"Ich habe in Kuechen gelernt, dass die besten Gruende meistens praktisch sind. Jemand hat Hunger. Jemand blutet. Jemand wird verkauft, ohne gefragt zu werden. Dann geht man."
+„Ich habe in Küchen gelernt, dass die besten Gründe meistens praktisch sind. Jemand hat Hunger. Jemand blutet. Jemand wird verkauft, ohne gefragt zu werden. Dann geht man.“
 
 Taron sah nach vorn. Merlan war stehen geblieben und tat so, als untersuche er eine Pflanze. Oswin tat so, als sehe er Merlan nicht dabei. Brokk tat gar nicht erst so.
 
-"Ich weiss nicht, ob ich Waldkirch retten will", sagte Taron.
+„Ich weiß nicht, ob ich Waldkirch retten will“, sagte Taron.
 
 Elva nickte.
 
-"Aber ich will nicht, dass es wegen einer Luege stirbt."
+„Aber ich will nicht, dass es wegen einer Lüge stirbt.“
 
-"Das reicht vielleicht."
+„Das reicht vielleicht.“
 
-"Fuer einen Helden?"
+„Für einen Helden?“
 
-"Fuer dich."
+„Für dich.“
 
-Der Erzaehler sagte leise: "Eine seltene, aber annehmbare Kategorie."
+Der Erzähler sagte leise: „Eine seltene, aber annehmbare Kategorie.“
 
-Taron atmete aus. Er war noch verletzt. Das wuerde nicht verschwinden, nur weil Elva die Wahrheit gesagt hatte. Vielleicht war das sogar der Punkt. Wahrheiten waren keine Salben. Sie waren Messer, wenn man Glueck hatte saubere.
+Taron atmete aus. Er war noch verletzt. Das würde nicht verschwinden, nur weil Elva die Wahrheit gesagt hatte. Vielleicht war das sogar der Punkt. Wahrheiten waren keine Salben. Sie waren Messer, wenn man Glück hatte saubere.
 
-Sie gingen nicht sofort weiter. Das war nicht geplant. Aber Plaene hatten in den letzten Tagen eine so schlechte Trefferquote gehabt, dass niemand ihnen viel schuldete.
+Sie gingen nicht sofort weiter. Das war nicht geplant. Aber Pläne hatten in den letzten Tagen eine so schlechte Trefferquote gehabt, dass niemand ihnen viel schuldete.
 
-Am Rand des Weges stand eine verfallene Bildsaeule. Ein alter Heiliger ohne Nase hielt ein Buch, aus dem Regen eine Ecke gebrochen hatte. Darunter lagen abgelegte Dinge: ein Stueck Schnur, zwei Eicheln, ein verkohlter Loeffel. Kleine Bitten von Leuten, die nichts Groesseres entbehren konnten.
+Am Rand des Weges stand eine verfallene Bildsäule. Ein alter Heiliger ohne Nase hielt ein Buch, aus dem Regen eine Ecke gebrochen hatte. Darunter lagen abgelegte Dinge: ein Stück Schnur, zwei Eicheln, ein verkohlter Löffel. Kleine Bitten von Leuten, die nichts Größeres entbehren konnten.
 
-Elva setzte sich auf den niedrigen Sockel. "Als ich das in der Kueche hoerte, wollte ich zuerst nur weg."
+Elva setzte sich auf den niedrigen Sockel. „Als ich das in der Küche hörte, wollte ich zuerst nur weg.“
 
-"Von Waldkirch?"
+„Von Waldkirch?“
 
-"Von der Tuer. Von Malchiors Stimme. Von mir."
+„Von der Tür. Von Malchiors Stimme. Von mir.“
 
 Taron sagte nichts.
 
-"Marta hatte mir einen Topf gegeben", sagte Elva. "Linsensuppe. Mehr Wasser als Linsen, aber sie tat so, als sei das Absicht. Ich sollte ihn in den kleinen Saal bringen. Dort standen Albrecht und Malchior. Ich dachte, sie reden ueber Vorraete. Alle redeten ueber Vorraete."
+„Marta hatte mir einen Topf gegeben“, sagte Elva. „Linsensuppe. Mehr Wasser als Linsen, aber sie tat so, als sei das Absicht. Ich sollte ihn in den kleinen Saal bringen. Dort standen Albrecht und Malchior. Ich dachte, sie reden über Vorräte. Alle redeten über Vorräte.“
 
-Taron sah auf die Opfergaben am Sockel. Ein verkohlter Loeffel war eine sehr kleine Sache, bis man sich vorstellte, dass jemand ihn nicht mehr hatte.
+Taron sah auf die Opfergaben am Sockel. Ein verkohlter Löffel war eine sehr kleine Sache, bis man sich vorstellte, dass jemand ihn nicht mehr hatte.
 
-"Malchior sagte, die Leute wuerden unruhig", fuhr Elva fort. "Der Hunger mache sie anfaellig fuer Zweifel. Und der Koenig sagte, ein Wunder zur rechten Zeit koenne mehr naehren als Korn."
+„Malchior sagte, die Leute würden unruhig“, fuhr Elva fort. „Der Hunger mache sie anfällig für Zweifel. Und der König sagte, ein Wunder zur rechten Zeit könne mehr nähren als Korn.“
 
-"Ich bin ein schlechtes Korn."
+„Ich bin ein schlechtes Korn.“
 
-"Ich fand den Satz damals schon falsch. Aber ich verstand erst spaeter, wie falsch. Malchior sagte, wenn du im Dungeon stirbst, sei das traurig, aber beweiskraeftig. Wenn du ueberlebst, sei es beweiskraeftiger. So oder so wuerde Waldkirch eine Antwort bekommen."
+„Ich fand den Satz damals schon falsch. Aber ich verstand erst später, wie falsch. Malchior sagte, wenn du im Dungeon stirbst, sei das traurig, aber beweiskräftig. Wenn du überlebst, sei es beweiskräftiger. So oder so würde Waldkirch eine Antwort bekommen.“
 
-Taron spuerte, wie seine Finger kalt wurden.
+Taron spürte, wie seine Finger kalt wurden.
 
-"Also war ich nicht einmal das Risiko", sagte er. "Ich war das Ergebnis."
+„Also war ich nicht einmal das Risiko“, sagte er. „Ich war das Ergebnis.“
 
-Elva sah ihn an. "Ja."
+Elva sah ihn an. „Ja.“
 
 Das Ja war nicht grausam. Es war nur mutig genug, nicht weich zu werden.
 
-"Und du bist trotzdem gekommen."
+„Und du bist trotzdem gekommen.“
 
-"Gerade deshalb."
+„Gerade deshalb.“
 
-Auf dem Weg vor ihnen stand Merlan noch immer bei der Pflanze und machte inzwischen nicht einmal mehr glaubwuerdig den Eindruck, sie interessiere ihn. Oswin hatte ihm vermutlich schon dreimal gesagt, dass Tarnung auch Bewegung enthalten duerfe. Brokk wartete mit dem Gesicht eines Zwergs, der persoenliche Gespraeche fuer notwendig hielt und genau deshalb misstrauisch betrachtete.
+Auf dem Weg vor ihnen stand Merlan noch immer bei der Pflanze und machte inzwischen nicht einmal mehr glaubwürdig den Eindruck, sie interessiere ihn. Oswin hatte ihm vermutlich schon dreimal gesagt, dass Tarnung auch Bewegung enthalten dürfe. Brokk wartete mit dem Gesicht eines Zwergs, der persönliche Gespräche für notwendig hielt und genau deshalb misstrauisch betrachtete.
 
-"Ich weiss nicht, was ich mit Albrecht mache, wenn wir zurueckkommen", sagte Taron.
+„Ich weiß nicht, was ich mit Albrecht mache, wenn wir zurückkommen“, sagte Taron.
 
-"Du musst nicht wissen, was du mit einem Koenig machst."
+„Du musst nicht wissen, was du mit einem König machst.“
 
-"Das ist beruhigend falsch."
+„Das ist beruhigend falsch.“
 
-"Du musst wissen, was du nicht mehr mit dir machen laesst."
+„Du musst wissen, was du nicht mehr mit dir machen lässt.“
 
 Taron sah zu ihr.
 
-Elva hielt seinem Blick stand. "Das ist etwas anderes."
+Elva hielt seinem Blick stand. „Das ist etwas anderes.“
 
-Der Erzaehler sagte leise: "Eine Kuechenweisheit von gefaehrlicher Brauchbarkeit."
+Der Erzähler sagte leise: „Eine Küchenweisheit von gefährlicher Brauchbarkeit.“
 
-"Er stimmt dir zu", sagte Taron.
+„Er stimmt dir zu“, sagte Taron.
 
-"Dann soll er aufpassen. Ich gewoehne mich sonst daran."
+„Dann soll er aufpassen. Ich gewöhne mich sonst daran.“
 
-Taron steckte die Haende in die Manteltaschen. In einer fand er nur Fusseln. In der anderen den Rand einer alten Naht, die er vor Tagen schon einmal gespürt hatte. Er tastete darueber, aber der Stoff gab nicht nach.
+Taron steckte die Hände in die Manteltaschen. In einer fand er nur Fusseln. In der anderen den Rand einer alten Naht, die er vor Tagen schon einmal gespürt hatte. Er tastete darüber, aber der Stoff gab nicht nach.
 
-"Was ist?", fragte Elva.
+„Was ist?“, fragte Elva.
 
-"Nichts. Mein Mantel fuehrt offenbar ein eigenes Leben."
+„Nichts. Mein Mantel führt offenbar ein eigenes Leben.“
 
-"Dann passt er zu dir."
+„Dann passt er zu dir.“
 
-Er wollte antworten, doch von vorn rief Oswin: "Wenn ihr fertig seid, bevor der Krieg vorbei ist, waere das fuer die Reiseplanung angenehm."
+Er wollte antworten, doch von vorn rief Oswin: „Wenn ihr fertig seid, bevor der Krieg vorbei ist, wäre das für die Reiseplanung angenehm.“
 
-Elva stand auf. "Er sorgt sich."
+Elva stand auf. „Er sorgt sich.“
 
-"So klingt Sorge?"
+„So klingt Sorge?“
 
-"Bei Oswin ja."
+„Bei Oswin ja.“
 
-Sie gingen zu den anderen zurueck. Taron fuehlte sich nicht leichter. Eher genauer verwundet. Aber die Wunde hatte jetzt Raender. Man konnte sie ansehen, statt nur um sie herum zu stolpern.
+Sie gingen zu den anderen zurück. Taron fühlte sich nicht leichter. Eher genauer verwundet. Aber die Wunde hatte jetzt Ränder. Man konnte sie ansehen, statt nur um sie herum zu stolpern.
 
 Sie gingen weiter.
 
-Am Abend fanden sie Schutz in einer Scheune, die nur noch halb Dach hatte und trotzdem mehr Gastfreundschaft bot als manche Burg. Ein Bauer erlaubte ihnen zu bleiben, nachdem Oswin bezahlte, Brokk draussen wartete und Elva dem Mann zeigte, wie man aus seinen letzten Rüben eine Suppe machte, die nicht wie Kapitulation schmeckte.
+Am Abend fanden sie Schutz in einer Scheune, die nur noch halb Dach hatte und trotzdem mehr Gastfreundschaft bot als manche Burg. Ein Bauer erlaubte ihnen zu bleiben, nachdem Oswin bezahlte, Brokk draußen wartete und Elva dem Mann zeigte, wie man aus seinen letzten Rüben eine Suppe machte, die nicht wie Kapitulation schmeckte.
 
 Der Bauer erkannte Taron beim Essen.
 
-"Du bist der aus Waldkirch."
+„Du bist der aus Waldkirch.“
 
-Taron senkte den Loeffel. "Das kommt darauf an, welche Geschichte Ihr gehoert habt."
+Taron senkte den Löffel. „Das kommt darauf an, welche Geschichte Ihr gehört habt.“
 
-"Die, in der du ein Held bist."
+„Die, in der du ein Held bist.“
 
-"Dann nein."
+„Dann nein.“
 
-Der Bauer kaute lange auf dieser Antwort. "Gut. Helden essen viel."
+Der Bauer kaute lange auf dieser Antwort. „Gut. Helden essen viel.“
 
-Taron wusste nicht, ob er beleidigt worden war. Der Erzaehler begann zu sprechen, ueberlegte es sich aber offenbar anders. Das war eine bemerkenswerte Entwicklung, die Taron misstrauisch machte.
+Taron wusste nicht, ob er beleidigt worden war. Der Erzähler begann zu sprechen, überlegte es sich aber offenbar anders. Das war eine bemerkenswerte Entwicklung, die Taron misstrauisch machte.
 
-Spaeter, als die anderen ruhten, sass Elva am Scheunentor und sah nach Osten. Taron setzte sich neben sie.
+Später, als die anderen ruhten, saß Elva am Scheunentor und sah nach Osten. Taron setzte sich neben sie.
 
-"Du haettest in Waldkirch bleiben koennen", sagte er.
+„Du hättest in Waldkirch bleiben können“, sagte er.
 
-"Ja."
+„Ja.“
 
-"Marta haette dich versteckt."
+„Marta hätte dich versteckt.“
 
-"Vielleicht."
+„Vielleicht.“
 
-"Du waerst sicherer gewesen."
+„Du wärst sicherer gewesen.“
 
-Elva sah ihn an. "Sicherer ist nicht dasselbe wie richtig."
+Elva sah ihn an. „Sicherer ist nicht dasselbe wie richtig.“
 
-"Oswin sagt, richtig kann teuer sein."
+„Oswin sagt, richtig kann teuer sein.“
 
-"Oswin hat recht."
+„Oswin hat recht.“
 
-"Das wird ihm nicht guttun, wenn er es erfaehrt."
+„Das wird ihm nicht guttun, wenn er es erfährt.“
 
-Sie laechelte kurz, dann wurde sie wieder ernst. "Ich hatte Angst, dass du mir nicht glaubst."
+Sie lächelte kurz, dann wurde sie wieder ernst. „Ich hatte Angst, dass du mir nicht glaubst.“
 
-"Ich wollte dir nicht glauben."
+„Ich wollte dir nicht glauben.“
 
-"Das ist ehrlich."
+„Das ist ehrlich.“
 
-"Ich werde davon krankhaft befallen."
+„Ich werde davon krankhaft befallen.“
 
-Elva zog die Knie an. "Wenn wir in Waldkirch sind, werden sie versuchen, dich wieder zu benutzen. Vielleicht netter. Vielleicht mit besseren Worten. Aber sie werden es versuchen."
+Elva zog die Knie an. „Wenn wir in Waldkirch sind, werden sie versuchen, dich wieder zu benutzen. Vielleicht netter. Vielleicht mit besseren Worten. Aber sie werden es versuchen.“
 
 Taron sah hinaus. In der Dunkelheit bewegte sich nichts, aber seit Eidgrund wusste er, dass Unsichtbares keine Entwarnung war.
 
-"Dann erinnerst du mich daran."
+„Dann erinnerst du mich daran.“
 
-"Woran?"
+„Woran?“
 
-"Dass ich Taron bin. Offenbar vergesse ich es leicht, wenn genug Leute andere Namen fuer mich haben."
+„Dass ich Taron bin. Offenbar vergesse ich es leicht, wenn genug Leute andere Namen für mich haben.“
 
 Elva nickte.
 
-Der Erzaehler sagte leise: "Eine Aufgabe von erheblichem Umfang."
+Der Erzähler sagte leise: „Eine Aufgabe von erheblichem Umfang.“
 
-"Ich habe in Waldkirch groessere Toepfe getragen", sagte Elva.
+„Ich habe in Waldkirch größere Töpfe getragen“, sagte Elva.
 
-Als sie die anderen erreichten, sagte Oswin: "Fertig?"
+Als sie die anderen erreichten, sagte Oswin: „Fertig?“
 
-"Nein", sagte Taron. "Aber weiter."
+„Nein“, sagte Taron. „Aber weiter.“
 
 Brokk nickte, als sei das eine Marschordnung, mit der ein Zwerg arbeiten konnte.
 
 Und Waldkirch wartete.
 
-Am naechsten Morgen war der Weg hart gefroren. Das machte ihn leichter zu gehen und schwerer zu moegen. Taron hatte schlecht geschlafen. Immer wenn er die Augen geschlossen hatte, sah er Albrecht im kleinen Saal, Malchior mit der Abschrift, Elva an der Tuer mit einem Topf Suppe in den Haenden. In der Erinnerung stand sie still. In Wirklichkeit musste sie gezittert haben.
+Am nächsten Morgen war der Weg hart gefroren. Das machte ihn leichter zu gehen und schwerer zu mögen. Taron hatte schlecht geschlafen. Immer wenn er die Augen geschlossen hatte, sah er Albrecht im kleinen Saal, Malchior mit der Abschrift, Elva an der Tür mit einem Topf Suppe in den Händen. In der Erinnerung stand sie still. In Wirklichkeit musste sie gezittert haben.
 
-"Warum bist du nicht zu Marta gegangen?", fragte er, als sie wieder nebeneinander gingen.
+„Warum bist du nicht zu Marta gegangen?“, fragte er, als sie wieder nebeneinander gingen.
 
-Elva brauchte keine Erklaerung. "Weil Marta mich gehalten haette."
+Elva brauchte keine Erklärung. „Weil Marta mich gehalten hätte.“
 
-"Das klingt nach Marta."
+„Das klingt nach Marta.“
 
-"Und weil ich dann haette erklaeren muessen, warum ich fortwill. Wenn ich es laut gesagt haette, waere es vielleicht zu gross geworden."
+„Und weil ich dann hätte erklären müssen, warum ich fortwill. Wenn ich es laut gesagt hätte, wäre es vielleicht zu groß geworden.“
 
-Taron nickte. Er kannte das. Manche Entscheidungen musste man treffen, bevor man sie vollstaendig verstand. Sonst gaben sie einem zu viel Zeit, feige zu werden.
+Taron nickte. Er kannte das. Manche Entscheidungen musste man treffen, bevor man sie vollständig verstand. Sonst gaben sie einem zu viel Zeit, feige zu werden.
 
-"Ich habe Brot gestohlen", sagte Elva.
+„Ich habe Brot gestohlen“, sagte Elva.
 
-"Was?"
+„Was?“
 
-"Aus der Kueche. Zwei Laibe. Einen fuer mich, einen fuer unterwegs. Ich dachte, das sei mein schlimmster Teil der Flucht." Sie lachte kurz. "Dann traf ich Zwerge, alte Schluessel und dich in Lebensgefahr. Meine Massstaebe haben gelitten."
+„Aus der Küche. Zwei Laibe. Einen für mich, einen für unterwegs. Ich dachte, das sei mein schlimmster Teil der Flucht.“ Sie lachte kurz. „Dann traf ich Zwerge, alte Schlüssel und dich in Lebensgefahr. Meine Maßstäbe haben gelitten.“
 
-"Marta wusste es vermutlich."
+„Marta wusste es vermutlich.“
 
-"Sicher."
+„Sicher.“
 
-"Dann war es kein Diebstahl."
+„Dann war es kein Diebstahl.“
 
-"Ja. Marta haette nur besser gestohlen."
+„Ja. Marta hätte nur besser gestohlen.“
 
-Der Erzaehler sagte: "Eine moralische Unterscheidung, die in Kuechen erstaunlich tragfaehig ist."
+Der Erzähler sagte: „Eine moralische Unterscheidung, die in Küchen erstaunlich tragfähig ist.“
 
-Elva sah zu Taron. "Sag ihm, er soll nicht so tun, als verstehe er Kuechen."
+Elva sah zu Taron. „Sag ihm, er soll nicht so tun, als verstehe er Küchen.“
 
-"Sie sagt, du sollst nicht so tun, als verstehst du Kuechen."
+„Sie sagt, du sollst nicht so tun, als verstehst du Küchen.“
 
-"Ich verstehe Kuechen als Orte, an denen wichtige Leute selten lange genug bleiben, um die Folgen ihrer Befehle zu riechen."
+„Ich verstehe Küchen als Orte, an denen wichtige Leute selten lange genug bleiben, um die Folgen ihrer Befehle zu riechen.“
 
 Elva schwieg.
 
-"Das war nicht falsch", sagte sie dann.
+„Das war nicht falsch“, sagte sie dann.
 
-Taron merkte, dass sie beide wieder an Waldkirch dachten. An Marta. An leere Toepfe. An einen Koenig, der ein Reich trug und vielleicht nie selbst einen Kessel vom Feuer genommen hatte, wenn unten nichts als Wasser darin war.
+Taron merkte, dass sie beide wieder an Waldkirch dachten. An Marta. An leere Töpfe. An einen König, der ein Reich trug und vielleicht nie selbst einen Kessel vom Feuer genommen hatte, wenn unten nichts als Wasser darin war.
 
-"Wenn wir zurueckkommen", sagte Taron, "will ich zuerst zu Marta."
+„Wenn wir zurückkommen“, sagte Taron, „will ich zuerst zu Marta.“
 
-"Wenn wir zurueckkommen, wirst du zuerst zum Koenig muessen."
+„Wenn wir zurückkommen, wirst du zuerst zum König müssen.“
 
-"Dann will ich danach zu Marta."
+„Dann will ich danach zu Marta.“
 
-"Das ist ein Plan."
+„Das ist ein Plan.“
 
-"Ein kleiner."
+„Ein kleiner.“
 
-"Kleine Plaene ueberleben manchmal besser."
+„Kleine Pläne überleben manchmal besser.“
 
 Elva wurde danach still. Nicht traurig still, eher rechnend. Taron hatte sie inzwischen oft genug beobachtet, um den Unterschied zu erkennen. Traurigkeit senkte ihren Blick. Rechnen machte ihn scharf.
 
-"Was?", fragte er.
+„Was?“, fragte er.
 
-"Marta wird schon wissen, dass etwas kommt."
+„Marta wird schon wissen, dass etwas kommt.“
 
-"Weil sie allwissend ist?"
+„Weil sie allwissend ist?“
 
-"Weil sie Vorratslisten besser liest als Malchior Prophezeiungen."
+„Weil sie Vorratslisten besser liest als Malchior Prophezeiungen.“
 
-Der Erzaehler sagte: "Ein unfairer Vergleich. Vorratslisten enthalten meistens weniger Wein."
+Der Erzähler sagte: „Ein unfairer Vergleich. Vorratslisten enthalten meistens weniger Wein.“
 
-Elva ging weiter. "Wenn die Zwerge Waldkirch einschliessen, ist Brot das Erste. Nicht Mauern. Brot. Wer verteilt, entscheidet, wer ruhig bleibt."
+Elva ging weiter. „Wenn die Zwerge Waldkirch einschließen, ist Brot das Erste. Nicht Mauern. Brot. Wer verteilt, entscheidet, wer ruhig bleibt.“
 
-Taron dachte an Marta in ihrer Backstube, an ihre Haende, an den Ofen, an die duenne Suppe. Er hatte sie immer als Zuflucht gesehen. Elva sah sie als Versorgungslinie. Beides war wahr. Vielleicht war das der Unterschied zwischen jemandem, der in der Kueche Schutz suchte, und jemandem, der dort gearbeitet hatte.
+Taron dachte an Marta in ihrer Backstube, an ihre Hände, an den Ofen, an die dünne Suppe. Er hatte sie immer als Zuflucht gesehen. Elva sah sie als Versorgungslinie. Beides war wahr. Vielleicht war das der Unterschied zwischen jemandem, der in der Küche Schutz suchte, und jemandem, der dort gearbeitet hatte.
 
-"Albrecht weiss das", sagte Taron.
+„Albrecht weiß das“, sagte Taron.
 
-"Ja."
+„Ja.“
 
-"Dann wird er Marta benutzen."
+„Dann wird er Marta benutzen.“
 
-Elva sah ihn an. "Er wird es versuchen."
+Elva sah ihn an. „Er wird es versuchen.“
 
-"Und Marta?"
+„Und Marta?“
 
-"Wird so tun, als gehorche sie, und dabei die wichtigere Sache tun."
+„Wird so tun, als gehorche sie, und dabei die wichtigere Sache tun.“
 
-Taron musste laecheln. "Das klingt nach ihr."
+Taron musste lächeln. „Das klingt nach ihr.“
 
-"Ich habe von ihr gelernt."
+„Ich habe von ihr gelernt.“
 
-"Brot zu stehlen?"
+„Brot zu stehlen?“
 
-"Unter anderem."
+„Unter anderem.“
 
-Sie sah nicht stolz aus, aber auch nicht beschämt. "In der Kueche gab es eine Regel: Wenn der Saal zu viel nimmt, versteckst du etwas fuer die, die nach dem Saal kommen."
+Sie sah nicht stolz aus, aber auch nicht beschämt. „In der Küche gab es eine Regel: Wenn der Saal zu viel nimmt, versteckst du etwas für die, die nach dem Saal kommen.“
 
-"Das ist Diebstahl."
+„Das ist Diebstahl.“
 
-"Ja."
+„Ja.“
 
-"Und?"
+„Und?“
 
-"Manche Regeln sind fuer Leute geschrieben, die schon gegessen haben."
+„Manche Regeln sind für Leute geschrieben, die schon gegessen haben.“
 
-Der Erzaehler sagte: "Ich werde diese Kueche eines Tages in ein moralphilosophisches Lehrbuch schmuggeln."
+Der Erzähler sagte: „Ich werde diese Küche eines Tages in ein moralphilosophisches Lehrbuch schmuggeln.“
 
-"Bitte nicht", sagte Taron. "Malchior koennte es lesen und eine Steuer daraus machen."
+„Bitte nicht“, sagte Taron. „Malchior könnte es lesen und eine Steuer daraus machen.“
 
-Elva lachte kurz. Dann wurde ihr Gesicht wieder ernst. "Wenn wir Waldkirch retten, retten wir nicht nur Mauern. Wir muessen auch verhindern, dass sie danach wieder so tun, als gehoere Rettung denen, die oben sitzen."
+Elva lachte kurz. Dann wurde ihr Gesicht wieder ernst. „Wenn wir Waldkirch retten, retten wir nicht nur Mauern. Wir müssen auch verhindern, dass sie danach wieder so tun, als gehöre Rettung denen, die oben sitzen.“
 
-Taron sah zu ihr. "Du planst schon die Zeit danach?"
+Taron sah zu ihr. „Du planst schon die Zeit danach?“
 
-"Jemand muss."
+„Jemand muss.“
 
-"Ich war noch bei dem Teil, in dem wir vorher nicht sterben."
+„Ich war noch bei dem Teil, in dem wir vorher nicht sterben.“
 
-"Das ist auch auf der Liste."
+„Das ist auch auf der Liste.“
 
-"Sehr weit oben?"
+„Sehr weit oben?“
 
-"Mit Ausrufezeichen."
+„Mit Ausrufezeichen.“
 
-Der Erzaehler sagte: "Elvas Listen wirken beunruhigend ueberlebensnah."
+Der Erzähler sagte: „Elvas Listen wirken beunruhigend überlebensnah.“
 
-Der Erzaehler schwieg dazu. Taron nahm es als Zustimmung, weil er fuer etwas anderes zu muede war.
+Der Erzähler schwieg dazu. Taron nahm es als Zustimmung, weil er für etwas anderes zu müde war.
 
-Am Mittag holten sie Merlan ein, der inzwischen aufgegeben hatte, nicht zu lauschen. Er raeusperte sich und sagte: "Persoenliche Wahrheiten veraendern politische Entscheidungen haeufig staerker als umgekehrt."
+Am Mittag holten sie Merlan ein, der inzwischen aufgegeben hatte, nicht zu lauschen. Er räusperte sich und sagte: „Persönliche Wahrheiten verändern politische Entscheidungen häufig stärker als umgekehrt.“
 
-Oswin sah ihn an. "Du hast wirklich an einer Pflanze gelauscht."
+Oswin sah ihn an. „Du hast wirklich an einer Pflanze gelauscht.“
 
-"Ich habe neben einer Pflanze gewartet. Das ist botanisch ein Unterschied."
+„Ich habe neben einer Pflanze gewartet. Das ist botanisch ein Unterschied.“
 
-Elva schuettelte den Kopf, aber ihre Schultern waren weniger hart als zuvor. Taron merkte, dass die Wahrheit zwischen ihnen nicht kleiner geworden war, aber tragbarer. Nicht im Sinn von Albrecht und Malchior. Tragbar, weil man sie zu zweit anders hielt.
+Elva schüttelte den Kopf, aber ihre Schultern waren weniger hart als zuvor. Taron merkte, dass die Wahrheit zwischen ihnen nicht kleiner geworden war, aber tragbarer. Nicht im Sinn von Albrecht und Malchior. Tragbar, weil man sie zu zweit anders hielt.
 
-Der Weg stieg danach an. Von oben sahen sie im Westen den ersten Rauch ueber Waldkirchs Land. Keine Schlacht noch. Nur Bauern, die feuchte Aeste verbrannten, vielleicht um Felder zu raeumen, vielleicht um sich selbst zu zeigen, dass sie noch Feuer machen konnten.
+Der Weg stieg danach an. Von oben sahen sie im Westen den ersten Rauch über Waldkirchs Land. Keine Schlacht noch. Nur Bauern, die feuchte Äste verbrannten, vielleicht um Felder zu räumen, vielleicht um sich selbst zu zeigen, dass sie noch Feuer machen konnten.
 
-"Wenn wir zu spaet kommen?", fragte Taron.
+„Wenn wir zu spät kommen?“, fragte Taron.
 
-Elva sah den Rauch an. "Dann kommen wir trotzdem."
+Elva sah den Rauch an. „Dann kommen wir trotzdem.“
 
 Das war keine Beruhigung.
 

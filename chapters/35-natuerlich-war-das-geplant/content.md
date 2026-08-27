@@ -1,484 +1,484 @@
-Am Abend sass Taron auf der Mauer von Waldkirch und ass Brot, das zu hart fuer Hoffnung und zu wertvoll fuer Beschwerden war.
+Am Abend saß Taron auf der Mauer von Waldkirch und aß Brot, das zu hart für Hoffnung und zu wertvoll für Beschwerden war.
 
-Unter ihm lag ein Hof voller falscher Ordnung. Menschen und Zwerge sassen nicht beieinander, aber sie sassen auch nicht mehr mit gezogenen Waffen gegeneinander. Das war fuer den ersten Tag nach einer beinahe vollstaendigen Katastrophe ein Verwaltungswunder.
+Unter ihm lag ein Hof voller falscher Ordnung. Menschen und Zwerge saßen nicht beieinander, aber sie saßen auch nicht mehr mit gezogenen Waffen gegeneinander. Das war für den ersten Tag nach einer beinahe vollständigen Katastrophe ein Verwaltungswunder.
 
-Zwischen den Gruppen blieben Luecken. Niemand nannte sie Grenzen, weil alle genug von grossen Woertern hatten. Aber jeder sah sie. Hier die Waldkircher mit ihren Schalen, dort die Zwerge mit ihren Verbandsrollen, dazwischen Wasserkruege, leere Tragen und ein umgestuerzter Wagen, der im Laufe des Tages vom Hindernis zur Bank geworden war.
+Zwischen den Gruppen blieben Lücken. Niemand nannte sie Grenzen, weil alle genug von großen Wörtern hatten. Aber jeder sah sie. Hier die Waldkircher mit ihren Schalen, dort die Zwerge mit ihren Verbandsrollen, dazwischen Wasserkrüge, leere Tragen und ein umgestürzter Wagen, der im Laufe des Tages vom Hindernis zur Bank geworden war.
 
-Kinder waren die Ersten, die die Luecken falsch benutzten. Ein Waldkircher Junge rollte einem Zwergenkind einen Holzring zu. Das Zwergenkind sah zu seiner Mutter. Die Mutter sah zu Rugar. Rugar sah aus, als wisse er nicht, ob Koenige solche Dinge erlauben durften, und nickte schliesslich. Der Ring rollte zurueck.
+Kinder waren die Ersten, die die Lücken falsch benutzten. Ein Waldkircher Junge rollte einem Zwergenkind einen Holzring zu. Das Zwergenkind sah zu seiner Mutter. Die Mutter sah zu Rugar. Rugar sah aus, als wisse er nicht, ob Könige solche Dinge erlauben durften, und nickte schließlich. Der Ring rollte zurück.
 
 Frieden begann manchmal sehr klein und schlecht beaufsichtigt.
 
 Marta verteilte Suppe.
 
-Nicht an Menschen zuerst. Nicht an Zwerge zuerst. An Verletzte zuerst, dann an Kinder, dann an alle, die noch standen und so aussahen, als haetten sie seit Jahren etwas Warmes verdient. Als ein Zwerg misstrauisch in seine Schale blickte, sagte sie, er solle essen oder die Schale jemandem geben, der weniger Theater mache. Der Zwerg ass.
+Nicht an Menschen zuerst. Nicht an Zwerge zuerst. An Verletzte zuerst, dann an Kinder, dann an alle, die noch standen und so aussahen, als hätten sie seit Jahren etwas Warmes verdient. Als ein Zwerg misstrauisch in seine Schale blickte, sagte sie, er solle essen oder die Schale jemandem geben, der weniger Theater mache. Der Zwerg aß.
 
-Elva half ihr. Natuerlich tat sie das. Elva konnte alte Eide retten und trotzdem merken, wenn ein Topf anbrannte. Taron hielt das fuer eine hoeher entwickelte Form von Heldentum.
+Elva half ihr. Natürlich tat sie das. Elva konnte alte Eide retten und trotzdem merken, wenn ein Topf anbrannte. Taron hielt das für eine höher entwickelte Form von Heldentum.
 
-Oswin und Brokk standen bei den Toren. Sie zaehlten nicht laut. Einmal hob Oswin zwei Finger. Brokk nickte und hob drei. Taron wusste nicht, ob es Tote waren oder Gerettete. Vielleicht beides. Vielleicht musste die neue Liste die alte nicht ausloeschen, um wahr zu sein.
+Oswin und Brokk standen bei den Toren. Sie zählten nicht laut. Einmal hob Oswin zwei Finger. Brokk nickte und hob drei. Taron wusste nicht, ob es Tote waren oder Gerettete. Vielleicht beides. Vielleicht musste die neue Liste die alte nicht auslöschen, um wahr zu sein.
 
-Koenig Albrecht und Koenig Rugar sassen im Rittersaal mit Merlan, Malchior, Ansel aus Ellingen und drei Schreibern, die alle aussahen, als haetten sie begriffen, dass Abschriften ab jetzt gefaehrlicher wurden. Der Hunger von Waldkirch lag wieder unter der Burg, aber die Tuer war offen und bewacht, nicht verriegelt und vergessen.
+König Albrecht und König Rugar saßen im Rittersaal mit Merlan, Malchior, Ansel aus Ellingen und drei Schreibern, die alle aussahen, als hätten sie begriffen, dass Abschriften ab jetzt gefährlicher wurden. Der Hunger von Waldkirch lag wieder unter der Burg, aber die Tür war offen und bewacht, nicht verriegelt und vergessen.
 
-Ansel war erst am Nachmittag gekommen, auf einem Maultier, das sie offenbar nur aus Hoeflichkeit nicht verurteilte. Sie brachte zwei versiegelte Rollen und eine sehr schlechte Laune mit. Als sie die leeren Glockenhalter Waldkirchs sah, sagte sie nur: "Ihr habt wenigstens noch welche." Dann ging sie in den Saal und begann, Koenigen zu widersprechen, als sei das eine normale Altersbeschaeftigung.
+Ansel war erst am Nachmittag gekommen, auf einem Maultier, das sie offenbar nur aus Höflichkeit nicht verurteilte. Sie brachte zwei versiegelte Rollen und eine sehr schlechte Laune mit. Als sie die leeren Glockenhalter Waldkirchs sah, sagte sie nur: „Ihr habt wenigstens noch welche.“ Dann ging sie in den Saal und begann, Königen zu widersprechen, als sei das eine normale Altersbeschäftigung.
 
 Malchior schrieb mit. Nicht gern. Aber er schrieb.
 
-Marta hatte ihm vorher Suppe gegeben und gesagt, wer Kraft zum Deuten habe, habe auch Kraft zum Kartoffelschaelen. Seitdem stand neben seinem Stuhl ein Eimer. Taron hielt das fuer eine der gerechteren theologischen Entwicklungen des Tages.
+Marta hatte ihm vorher Suppe gegeben und gesagt, wer Kraft zum Deuten habe, habe auch Kraft zum Kartoffelschälen. Seitdem stand neben seinem Stuhl ein Eimer. Taron hielt das für eine der gerechteren theologischen Entwicklungen des Tages.
 
-Der andere Daemon war fort.
+Der andere Dämon war fort.
 
-Das war kein Sieg. Es war eine Richtung, in die spaeter jemand sehr ungern wuerde gehen muessen.
+Das war kein Sieg. Es war eine Richtung, in die später jemand sehr ungern würde gehen müssen.
 
-Niemand wusste, wohin er gegangen war. Der Erzaehler sagte es nicht, und diesmal fragte Taron nicht sofort. Nicht aus Vertrauen. Aus Erschoepfung. Ausserdem hatte er gelernt, dass manche Antworten erst dann nuetzlich wurden, wenn man genug Brot gegessen hatte, um sie nicht nur als neuen Grund zur Panik zu benutzen.
+Niemand wusste, wohin er gegangen war. Der Erzähler sagte es nicht, und diesmal fragte Taron nicht sofort. Nicht aus Vertrauen. Aus Erschöpfung. Außerdem hatte er gelernt, dass manche Antworten erst dann nützlich wurden, wenn man genug Brot gegessen hatte, um sie nicht nur als neuen Grund zur Panik zu benutzen.
 
-Trotzdem spuerte er etwas am Rand der Welt. Eine duenne Kante. Als habe jemand eine Tuer offen gelassen, weit draussen, hinter Bergen, Hallen, alten Grenzen. Band zwei haette an dieser Stelle sehr gern bedeutungsvoll gehustet, wenn Baende husten koennten. Da sie es nicht konnten, uebernahm der Wind.
+Trotzdem spürte er etwas am Rand der Welt. Eine dünne Kante. Als habe jemand eine Tür offen gelassen, weit draußen, hinter Bergen, Hallen, alten Grenzen. Band zwei hätte an dieser Stelle sehr gern bedeutungsvoll gehustet, wenn Bände husten könnten. Da sie es nicht konnten, übernahm der Wind.
 
-Taron biss ein Stueck Brot ab und bereute es sofort, weil sein Kiefer noch von der Kammer schmerzte.
+Taron biss ein Stück Brot ab und bereute es sofort, weil sein Kiefer noch von der Kammer schmerzte.
 
-"Du haettest es mir sagen muessen", sagte er.
+„Du hättest es mir sagen müssen“, sagte er.
 
-Der Erzaehler schwieg.
+Der Erzähler schwieg.
 
-"Nein. Diesmal nicht. Kein bedeutendes Schweigen, kein alter Eid, kein 'Worte haben Folgen'. Du haettest mich vor ihm warnen muessen."
+„Nein. Diesmal nicht. Kein bedeutendes Schweigen, kein alter Eid, kein 'Worte haben Folgen'. Du hättest mich vor ihm warnen müssen.“
 
-"Ja", sagte der Erzaehler.
+„Ja“, sagte der Erzähler.
 
-Taron hatte mit Widerstand gerechnet. Mit Spott. Mit einer jener Antworten, die wie Tueren aussahen und beim Anfassen nur gemalte Waende waren.
+Taron hatte mit Widerstand gerechnet. Mit Spott. Mit einer jener Antworten, die wie Türen aussahen und beim Anfassen nur gemalte Wände waren.
 
 Das Ja nahm ihm kurz den Schwung.
 
-"Warum nicht?"
+„Warum nicht?“
 
-"Weil ich dich verlassen haette."
+„Weil ich dich verlassen hätte.“
 
 Unten lachte jemand. Ein Kind vielleicht. Der Laut war kurz und verschwand sofort wieder im Murmeln des Hofes. Aber er war da.
 
-Taron sah hinunter. Der Holzring rollte wieder zwischen den Kindern. Diesmal lief ein Waldkircher Maedchen hinterher und blieb mitten zwischen den Gruppen stehen. Alle Erwachsenen bemerkten es zu spaet. Das Maedchen bueckte sich, hob den Ring auf und reichte ihn dem Zwergenkind.
+Taron sah hinunter. Der Holzring rollte wieder zwischen den Kindern. Diesmal lief ein Waldkircher Mädchen hinterher und blieb mitten zwischen den Gruppen stehen. Alle Erwachsenen bemerkten es zu spät. Das Mädchen bückte sich, hob den Ring auf und reichte ihn dem Zwergenkind.
 
 Nichts geschah.
 
 Das war die wichtigste Sache daran.
 
-Keine Axt hob sich. Kein Vater riss sein Kind zurueck. Keine Mutter schrie. Nur zwei Kinder, ein Holzring und ein Hof voller Leute, die ploetzlich so taten, als haetten sie gar nicht hingesehen.
+Keine Axt hob sich. Kein Vater riss sein Kind zurück. Keine Mutter schrie. Nur zwei Kinder, ein Holzring und ein Hof voller Leute, die plötzlich so taten, als hätten sie gar nicht hingesehen.
 
-Der Erzaehler sagte: "Historische Augenblicke sind oft beleidigend unscheinbar."
+Der Erzähler sagte: „Historische Augenblicke sind oft beleidigend unscheinbar.“
 
-"Du darfst wieder kommentieren?"
+„Du darfst wieder kommentieren?“
 
-"In Massen. Ich bin schwach, nicht geschmacklos."
+„In Maßen. Ich bin schwach, nicht geschmacklos.“
 
-"Darueber koennte man streiten."
+„Darüber könnte man streiten.“
 
-"Spaeter. Ich plane, die naechsten Stunden jede Auseinandersetzung zu verlieren und moechte sie verteilen."
+„Später. Ich plane, die nächsten Stunden jede Auseinandersetzung zu verlieren und möchte sie verteilen.“
 
-Der Erzaehler sprach weiter. "Mein Eid verbot mir, den Gefangenen zu benennen, solange seine Riegel nicht beruehrt waren. Haette ich es getan, waere meine Bindung gebrochen. Ich waere frei gewesen."
+Der Erzähler sprach weiter. „Mein Eid verbot mir, den Gefangenen zu benennen, solange seine Riegel nicht berührt waren. Hätte ich es getan, wäre meine Bindung gebrochen. Ich wäre frei gewesen.“
 
-"Das klingt, als waere es gut fuer dich."
+„Das klingt, als wäre es gut für dich.“
 
-"Vielleicht."
+„Vielleicht.“
 
-"Und schlecht fuer mich."
+„Und schlecht für mich.“
 
-"Ja."
+„Ja.“
 
-Taron sah auf seine Haende. Sie zitterten noch ein wenig. Nicht vor Angst allein. Auch vor Erschoepfung. Vor Wut. Vor dem Wissen, dass jemand in seinem Kopf ihn geliebt, belogen, beschuetzt und benutzt hatte, manchmal alles in derselben Stunde.
+Taron sah auf seine Hände. Sie zitterten noch ein wenig. Nicht vor Angst allein. Auch vor Erschöpfung. Vor Wut. Vor dem Wissen, dass jemand in seinem Kopf ihn geliebt, belogen, beschützt und benutzt hatte, manchmal alles in derselben Stunde.
 
-Er hatte geglaubt, die Wahrheit ueber den Erzaehler wuerde eine Tuere oeffnen. Dahinter waere dann ein klarer Raum: Freund oder Feind, Luegner oder Beschuetzer, Daemon oder Stimme. Stattdessen hatte sie einen Gang geoeffnet, der in mehrere Richtungen fuehrte und ueberall schlecht beleuchtet war.
+Er hatte geglaubt, die Wahrheit über den Erzähler würde eine Türe öffnen. Dahinter wäre dann ein klarer Raum: Freund oder Feind, Lügner oder Beschützer, Dämon oder Stimme. Stattdessen hatte sie einen Gang geöffnet, der in mehrere Richtungen führte und überall schlecht beleuchtet war.
 
-"Ich weiss nicht, wie ich dir wieder vertrauen soll", sagte Taron.
+„Ich weiß nicht, wie ich dir wieder vertrauen soll“, sagte Taron.
 
-"Gut."
+„Gut.“
 
-"Das ist nicht die Antwort, mit der du dich retten solltest."
+„Das ist nicht die Antwort, mit der du dich retten solltest.“
 
-"Vertrauen, das sofort weiss wie, ist meistens Gewohnheit. Fang nicht dort an."
+„Vertrauen, das sofort weiß wie, ist meistens Gewohnheit. Fang nicht dort an.“
 
-Taron zog die Knie naeher an. "Wo dann?"
+Taron zog die Knie näher an. „Wo dann?“
 
-"Bei Fragen."
+„Bei Fragen.“
 
-"Ich stelle seit Tagen Fragen."
+„Ich stelle seit Tagen Fragen.“
 
-"Ja. Eine deiner wenigen konsequenten Tugenden."
+„Ja. Eine deiner wenigen konseqünten Tugenden.“
 
 Das klang fast normal. Fast.
 
-"Du haettest frei sein koennen", sagte Taron.
+„Du hättest frei sein können“, sagte Taron.
 
-"Ja."
+„Ja.“
 
-"Mit den drei Schluesseln koenntest du es vielleicht immer noch."
+„Mit den drei Schlüsseln könntest du es vielleicht immer noch.“
 
 Das Schweigen danach war anders.
 
-Taron verstand es, bevor der Erzaehler antwortete.
+Taron verstand es, bevor der Erzähler antwortete.
 
-"Ja", sagte die Stimme.
+„Ja“, sagte die Stimme.
 
-"Willst du?"
+„Willst du?“
 
-Unten im Hof trug Brokk eine Schale zu Rugar. Der Zwergenkoenig nahm sie mit beiden Haenden. Nicht wie ein Herrscher, dem gereicht wurde. Wie jemand, der lernen musste, wieder anzunehmen, ohne sofort daraus Befehl zu machen.
+Unten im Hof trug Brokk eine Schale zu Rugar. Der Zwergenkönig nahm sie mit beiden Händen. Nicht wie ein Herrscher, dem gereicht wurde. Wie jemand, der lernen musste, wieder anzunehmen, ohne sofort daraus Befehl zu machen.
 
-Taron sah ihm nach. "Wenn du frei wirst, wirst du dann koerperlich?"
+Taron sah ihm nach. „Wenn du frei wirst, wirst du dann körperlich?“
 
-"Vielleicht."
+„Vielleicht.“
 
-"Maechtig?"
+„Mächtig?“
 
-"Wahrscheinlich."
+„Wahrscheinlich.“
 
-"Gefaehrlich?"
+„Gefährlich?“
 
-"Ja."
+„Ja.“
 
-"Ehrlich wenigstens."
+„Ehrlich wenigstens.“
 
-"Ich sagte ja."
+„Ich sagte ja.“
 
-Der Wind fuhr ueber die Mauer. Taron zog den Mantel enger. Die geheime Tasche lag an seiner Seite, spuerbar nun, nicht mehr zufaellig.
+Der Wind fuhr über die Mauer. Taron zog den Mantel enger. Die geheime Tasche lag an seiner Seite, spürbar nun, nicht mehr zufällig.
 
-Der Erzaehler lachte leise. Es war ein muedes Lachen, fast ohne Klinge. "Was fuer eine entsetzlich faire Frage."
+Der Erzähler lachte leise. Es war ein müdes Lachen, fast ohne Klinge. „Was für eine entsetzlich faire Frage.“
 
-"Ich werde sie nicht zuruecknehmen."
+„Ich werde sie nicht zurücknehmen.“
 
-"Das befuerchte ich."
+„Das befürchte ich.“
 
-Unten trat Elva aus der Kueche und sah zur Mauer hoch. Sie hob eine Hand. Taron hob seine zurueck. Marta drueckte einem jungen Zwerg eine zweite Schale Suppe in die Hand und zeigte ihm mit strengem Finger, wohin er sie bringen sollte. Er gehorchte schneller als mancher Waldkircher Knecht.
+Unten trat Elva aus der Küche und sah zur Mauer hoch. Sie hob eine Hand. Taron hob seine zurück. Marta drückte einem jungen Zwerg eine zweite Schale Suppe in die Hand und zeigte ihm mit strengem Finger, wohin er sie bringen sollte. Er gehorchte schneller als mancher Waldkircher Knecht.
 
-Der Erzaehler sagte: "Freiheit ist kompliziert."
+Der Erzähler sagte: „Freiheit ist kompliziert.“
 
-"Das ist dein bester Satz?"
+„Das ist dein bester Satz?“
 
-"Ich bin verwundet."
+„Ich bin verwundet.“
 
-"Du hast keinen Koerper."
+„Du hast keinen Körper.“
 
-"Eine sehr koerperliche Sicht auf Verwundung."
+„Eine sehr körperliche Sicht auf Verwundung.“
 
-"Du weichst aus", sagte Taron.
+„Du weichst aus“, sagte Taron.
 
-"Ich sammle mich."
+„Ich sammle mich.“
 
-"Das klingt vornehmer."
+„Das klingt vornehmer.“
 
-"Ich bin eine alte Schutzmacht. Vornehm klingende Ausreden gehoeren zum Bestand."
+„Ich bin eine alte Schutzmacht. Vornehm klingende Ausreden gehören zum Bestand.“
 
-"Sag es einfach."
+„Sag es einfach.“
 
-Der Erzaehler atmete nicht, aber Taron spuerte eine Pause, die wie Atem funktionierte.
+Der Erzähler atmete nicht, aber Taron spürte eine Pause, die wie Atem funktionierte.
 
-"Ich will frei sein", sagte er. "Und ich will bleiben. Beides ist wahr."
+„Ich will frei sein“, sagte er. „Und ich will bleiben. Beides ist wahr.“
 
-Taron nickte langsam. "Das ist unangenehm."
+Taron nickte langsam. „Das ist unangenehm.“
 
-"Ja."
+„Ja.“
 
-"Gut."
+„Gut.“
 
-"Deine Verwendung dieses Wortes wird zunehmend eigenwillig."
+„Deine Verwendung dieses Wortes wird zunehmend eigenwillig.“
 
-"Ich lerne von schlechten Vorbildern."
+„Ich lerne von schlechten Vorbildern.“
 
-Taron lehnte den Kopf gegen den kalten Stein. "Warum bleibst du?"
+Taron lehnte den Kopf gegen den kalten Stein. „Warum bleibst du?“
 
 Lange kam nichts.
 
-Dann: "Weil der andere frei ist. Weil du noch nicht fertig bist. Weil Arven mir einmal vertraute und ich es nicht immer verdiente. Weil du im Stall Angst vor Gewitter hattest und trotzdem so tatest, als wuerdest du nur die Sterne pruefen."
+Dann: „Weil der andere frei ist. Weil du noch nicht fertig bist. Weil Arven mir einmal vertraute und ich es nicht immer verdiente. Weil du im Stall Angst vor Gewitter hattest und trotzdem so tatest, als würdest du nur die Sterne prüfen.“
 
 Taron schloss die Augen.
 
-"Das ist unfair."
+„Das ist unfair.“
 
-"Ja."
+„Ja.“
 
-"Und sentimental."
+„Und sentimental.“
 
-"Erzaehl es niemandem."
+„Erzähl es niemandem.“
 
-"Ich kann dich immer noch nicht ganz leiden."
+„Ich kann dich immer noch nicht ganz leiden.“
 
-"Eine gesunde Grundlage fuer unsere weitere Zusammenarbeit."
+„Eine gesunde Grundlage für unsere weitere Zusammenarbeit.“
 
-Der Hof wurde dunkler. Keine Glocken schlugen. Noch nicht. Vielleicht wuerden sie eines Tages wieder Glocken haben, in Waldkirch, Ellingen, Karndorn. Vielleicht wuerden sie lernen, welche Klaenge alte Eide weckten und welche nur Menschen zum Essen riefen.
+Der Hof wurde dunkler. Keine Glocken schlugen. Noch nicht. Vielleicht würden sie eines Tages wieder Glocken haben, in Waldkirch, Ellingen, Karndorn. Vielleicht würden sie lernen, welche Klänge alte Eide weckten und welche nur Menschen zum Essen riefen.
 
-Im Rittersaal begann eine Stimme zu streiten. Ansel, vermutlich. Kurz darauf eine zweite, Merlan. Dann Rugar, leise genug, dass man die Worte nicht verstand. Albrecht antwortete. Nicht laut. Das war neu. Koenige, die nicht laut wurden, konnten gefaehrlich sein oder lernfaehig. Taron beschloss, die Unterscheidung einem spaeteren Tag zu ueberlassen.
+Im Rittersaal begann eine Stimme zu streiten. Ansel, vermutlich. Kurz darauf eine zweite, Merlan. Dann Rugar, leise genug, dass man die Worte nicht verstand. Albrecht antwortete. Nicht laut. Das war neu. Könige, die nicht laut wurden, konnten gefährlich sein oder lernfähig. Taron beschloss, die Unterscheidung einem späteren Tag zu überlassen.
 
 Elva kam die Treppe zur Mauer hinauf und setzte sich neben ihn. Sie roch nach Rauch, Suppe und Arbeit.
 
-"Marta sagt, du sollst essen, nicht nur daran nagen."
+„Marta sagt, du sollst essen, nicht nur daran nagen.“
 
-"Dieses Brot hat strukturelle Ueberzeugungen."
+„Dieses Brot hat strukturelle Überzeugungen.“
 
-Sie nahm es ihm aus der Hand, brach es mit erstaunlicher Gewalt und gab ihm die weichere Haelfte zurueck.
+Sie nahm es ihm aus der Hand, brach es mit erstaunlicher Gewalt und gab ihm die weichere Hälfte zurück.
 
-"Danke."
+„Danke.“
 
-"Gern."
+„Gern.“
 
-Sie sah ueber den Hof. "Ist er noch da?"
+Sie sah über den Hof. „Ist er noch da?“
 
-"Ja."
+„Ja.“
 
-"Gut?"
+„Gut?“
 
-Taron dachte nach. "Ja. Nein. Spaeter."
+Taron dachte nach. „Ja. Nein. Später.“
 
-Elva nickte, als sei das eine vollstaendige Antwort. Vielleicht war sie es heute.
+Elva nickte, als sei das eine vollständige Antwort. Vielleicht war sie es heute.
 
 Unter ihnen trat Merlan aus dem Saal, eine Rolle unter dem Arm und Tinte an der Wange. Er sah hinauf, entdeckte Taron und winkte mit der Rolle.
 
 Das wirkte bedrohlich.
 
-"Er hat eine Liste", sagte Taron.
+„Er hat eine Liste“, sagte Taron.
 
-"Merlan hat immer eine Liste", sagte Elva.
+„Merlan hat immer eine Liste“, sagte Elva.
 
-"Diese ist fuer mich."
+„Diese ist für mich.“
 
-"Dann lauf."
+„Dann lauf.“
 
-"Das waere wuerdelos."
+„Das wäre würdelos.“
 
-"Du sitzt auf einer Mauer und fuerchtest Papier."
+„Du sitzt auf einer Mauer und fürchtest Papier.“
 
-"Also schnell?"
+„Also schnell?“
 
 Sie gingen nicht schnell genug. Merlan erreichte die Treppe mit der Zielstrebigkeit eines Mannes, der seit Jahren auf den Augenblick gewartet hatte, eine unangenehme Wahrheit ordentlich vorzutragen.
 
-"Taron", sagte er. "Nur eine kurze Frage."
+„Taron“, sagte er. „Nur eine kurze Frage.“
 
-Der Erzaehler sagte: "Flieh. Dieser Satz ist eine Falle mit Tintenrand."
+Der Erzähler sagte: „Flieh. Dieser Satz ist eine Falle mit Tintenrand.“
 
-"Was?", fragte Taron.
+„Was?“, fragte Taron.
 
-Merlan rollte das Papier auf. Es war keine Liste. Es war schlimmer. Eine Abschrift der drei Schluesselzeichen, verbunden durch Linien, Notizen und sehr kleine Korrekturen.
+Merlan rollte das Papier auf. Es war keine Liste. Es war schlimmer. Eine Abschrift der drei Schlüsselzeichen, verbunden durch Linien, Notizen und sehr kleine Korrekturen.
 
-"Theoretisch", sagte Merlan, "waere es moeglich, mit den Schluesseln auch deine Bindung zu loesen."
+„Theoretisch“, sagte Merlan, „wäre es möglich, mit den Schlüsseln auch deine Bindung zu lösen.“
 
 Elva wurde still.
 
 Taron sah auf das Papier. Dann in sich hinein.
 
-"Ich weiss."
+„Ich weiß.“
 
-Merlan sah ueberrascht aus. Gelehrte waren oft enttaeuscht, wenn andere ihre dramatischen Erklaerungen vorwegnahmen. Es nahm ihnen die Moeglichkeit, mit dem Finger auf eine Stelle zu tippen.
+Merlan sah überrascht aus. Gelehrte waren oft enttäuscht, wenn andere ihre dramatischen Erklärungen vorwegnahmen. Es nahm ihnen die Möglichkeit, mit dem Finger auf eine Stelle zu tippen.
 
-"Ah", sagte er.
+„Ah“, sagte er.
 
-"Ah?", fragte Elva.
+„Ah?“, fragte Elva.
 
-"Ich hatte mit mehr Unwissen gerechnet."
+„Ich hatte mit mehr Unwissen gerechnet.“
 
-"Das passiert vielen Leuten bei Taron", sagte der Erzaehler.
+„Das passiert vielen Leuten bei Taron“, sagte der Erzähler.
 
-Taron verzog das Gesicht. "Er hat gerade etwas gesagt."
+Taron verzog das Gesicht. „Er hat gerade etwas gesagt.“
 
-"War es hilfreich?"
+„War es hilfreich?“
 
-"Nein."
+„Nein.“
 
-"Dann zaehlt es nicht."
+„Dann zählt es nicht.“
 
-Merlan betrachtete Taron vorsichtig. "Du musst darueber nicht heute entscheiden."
+Merlan betrachtete Taron vorsichtig. „Du musst darüber nicht heute entscheiden.“
 
-"Doch", sagte Taron.
+„Doch“, sagte Taron.
 
 Elva sah ihn an.
 
-Taron schluckte. "Nicht endgueltig. Aber genug fuer heute. Wenn es moeglich ist, ihn zu befreien, dann ist es auch moeglich, dabei denselben Fehler zu machen wie Rugar."
+Taron schluckte. „Nicht endgültig. Aber genug für heute. Wenn es möglich ist, ihn zu befreien, dann ist es auch möglich, dabei denselben Fehler zu machen wie Rugar.“
 
-Der Erzaehler sprach sehr leise: "Taron."
+Der Erzähler sprach sehr leise: „Taron.“
 
-"Nein", sagte Taron in Gedanken. "Du hast mir oft genug Dinge nicht gesagt, weil der Zeitpunkt angeblich falsch war. Jetzt ist meiner."
+„Nein“, sagte Taron in Gedanken. „Du hast mir oft genug Dinge nicht gesagt, weil der Zeitpunkt angeblich falsch war. Jetzt ist meiner.“
 
-Merlan hoerte nur das aeussere Schweigen und deutete es falsch, was unter Gelehrten als normale Arbeitsbedingung galt.
+Merlan hörte nur das äußere Schweigen und deutete es falsch, was unter Gelehrten als normale Arbeitsbedingung galt.
 
-"Eine Bindung ist nicht zwingend Unterdrueckung", sagte er. "Aber sie ist auch nicht automatisch Schutz. Alte Texte verwenden dafuer dasselbe Wort, wenn die Schreiber muede oder politisch abhaengig waren."
+„Eine Bindung ist nicht zwingend Unterdrückung“, sagte er. „Aber sie ist auch nicht automatisch Schutz. Alte Texte verwenden dafür dasselbe Wort, wenn die Schreiber müde oder politisch abhängig waren.“
 
-"Was waere noetig?", fragte Elva.
+„Was wäre nötig?“, fragte Elva.
 
-Merlan zog die Brauen zusammen. "Alle drei Schluessel. Zustimmung des Gebundenen. Vermutlich Zustimmung des Traegers. Und ein Ort, an dem der Eid zuerst gesprochen oder erneuert wurde."
+Merlan zog die Brauen zusammen. „Alle drei Schlüssel. Zustimmung des Gebundenen. Vermutlich Zustimmung des Trägers. Und ein Ort, an dem der Eid zuerst gesprochen oder erneuert wurde.“
 
-"Also hier", sagte Taron.
+„Also hier“, sagte Taron.
 
-"Oder tiefer."
+„Oder tiefer.“
 
 Alle drei sahen kurz zum Boden.
 
-Der Boden sah unschuldig aus, was Boeden in alten Burgen gern taten, wenn unter ihnen etwas lag.
+Der Boden sah unschuldig aus, was Böden in alten Burgen gern taten, wenn unter ihnen etwas lag.
 
-"Nicht heute", sagte Taron.
+„Nicht heute“, sagte Taron.
 
-Der Erzaehler antwortete nicht.
+Der Erzähler antwortete nicht.
 
-"Ich verweigere dir nicht Freiheit", sagte Taron in Gedanken. "Ich oeffne nur nicht noch eine Tuer, waehrend wir die letzte noch nicht einmal beschriftet haben."
+„Ich verweigere dir nicht Freiheit“, sagte Taron in Gedanken. „Ich öffne nur nicht noch eine Tür, während wir die letzte noch nicht einmal beschriftet haben.“
 
-"Das ist", sagte der Erzaehler nach einer Weile, "eine aergerlich vernuenftige Form von Misstrauen."
+„Das ist“, sagte der Erzähler nach einer Weile, „eine ärgerlich vernünftige Form von Misstrauen.“
 
-"Danke."
+„Danke.“
 
-"Es war kein Lob."
+„Es war kein Lob.“
 
-"Heute nehme ich, was ich bekomme."
+„Heute nehme ich, was ich bekomme.“
 
-Merlan rollte das Papier wieder ein. "Dann verwahre ich diese Notiz getrennt."
+Merlan rollte das Papier wieder ein. „Dann verwahre ich diese Notiz getrennt.“
 
 Elva nahm ihm die Rolle ab.
 
-Merlan blinzelte. "Ich meinte in meinem Arbeitskasten."
+Merlan blinzelte. „Ich meinte in meinem Arbeitskasten.“
 
-"Und ich meine in Martas Speisekammer, hinter den Bohnen. Da sucht niemand aus Versehen nach Weltentscheidungen."
+„Und ich meine in Martas Speisekammer, hinter den Bohnen. Da sucht niemand aus Versehen nach Weltentscheidungen.“
 
-"Bohnen sind feuchtigkeitsgefaehrdend."
+„Bohnen sind feuchtigkeitsgefährdend.“
 
-"Dann wickel sie besser ein."
+„Dann wickel sie besser ein.“
 
-Der Erzaehler sagte: "Die Zukunft der alten Magie liegt hinter Huelsenfruechten. Endlich Fortschritt."
+Der Erzähler sagte: „Die Zukunft der alten Magie liegt hinter Hülsenfrüchten. Endlich Fortschritt.“
 
-Merlan sah Taron misstrauisch an. "Hat er wieder kommentiert?"
+Merlan sah Taron misstrauisch an. „Hat er wieder kommentiert?“
 
-"Ja."
+„Ja.“
 
-"War es sachlich?"
+„War es sachlich?“
 
-"Auf seine Art."
+„Auf seine Art.“
 
-"Dann schreibe ich es nicht auf."
+„Dann schreibe ich es nicht auf.“
 
-Das war vielleicht der groesste wissenschaftliche Fortschritt des Tages.
+Das war vielleicht der größte wissenschaftliche Fortschritt des Tages.
 
 Taron zog den Pergamentstreifen aus seinem Mantel.
 
 Trau der Stimme. Er war mein Freund.
 
-"War das alles geplant?", fragte Taron.
+„War das alles geplant?“, fragte Taron.
 
-Der Erzaehler schwieg genau lange genug, um sich wieder wie er selbst anzufuehlen.
+Der Erzähler schwieg genau lange genug, um sich wieder wie er selbst anzufühlen.
 
-"Natuerlich", sagte er. "Jeder Sturz, jede falsche Lesung, jede beinahe vermeidbare Katastrophe. Ein hoechst sorgfaeltiger Plan."
+„Natürlich“, sagte er. „Jeder Sturz, jede falsche Lesung, jede beinahe vermeidbare Katastrophe. Ein höchst sorgfältiger Plan.“
 
-Taron sah ueber den Hof, ueber Menschen und Zwerge, ueber Suppe, Rauch, Verwundete und zwei Koenige, die zum ersten Mal seit Jahren miteinander sprechen mussten.
+Taron sah über den Hof, über Menschen und Zwerge, über Suppe, Rauch, Verwundete und zwei Könige, die zum ersten Mal seit Jahren miteinander sprechen mussten.
 
-"Du luegst."
+„Du lügst.“
 
-"Selbstverstaendlich."
+„Selbstverständlich.“
 
-"Gut."
+„Gut.“
 
-"Gut?"
+„Gut?“
 
-Taron steckte den Pergamentstreifen zurueck in die geheime Tasche seines Mantels.
+Taron steckte den Pergamentstreifen zurück in die geheime Tasche seines Mantels.
 
-"Dann bist du noch du."
+„Dann bist du noch du.“
 
-Elva sagte es, als waere das kein Trost, sondern eine Feststellung, die man bei Bedarf gegen andere Leute einsetzen konnte. Taron merkte, dass ihm diese Art von Trost lieber war. Er hatte genug von Saetzen, die ihn gross machen wollten. Gross war unbequem, auffaellig und wurde gern mit Pfeilen beantwortet.
+Elva sagte es, als wäre das kein Trost, sondern eine Feststellung, die man bei Bedarf gegen andere Leute einsetzen konnte. Taron merkte, dass ihm diese Art von Trost lieber war. Er hatte genug von Sätzen, die ihn groß machen wollten. Groß war unbequem, auffällig und wurde gern mit Pfeilen beantwortet.
 
-"Ich weiss nicht, ob das reicht", sagte er.
+„Ich weiß nicht, ob das reicht“, sagte er.
 
-"Tut es nie."
+„Tut es nie.“
 
-"Das ist nicht sehr hilfreich."
+„Das ist nicht sehr hilfreich.“
 
-"Doch. Wenn es reichen wuerde, wuerdest du aufhoeren."
+„Doch. Wenn es reichen würde, würdest du aufhören.“
 
-Taron sah sie an. "Du klingst wie jemand, der heimlich sehr weise ist."
+Taron sah sie an. „Du klingst wie jemand, der heimlich sehr weise ist.“
 
-"Ich bin Kueche. Wir nennen es Erfahrung, damit uns niemand Aufgaben mit Krone gibt."
+„Ich bin Küche. Wir nennen es Erfahrung, damit uns niemand Aufgaben mit Krone gibt.“
 
-Der Erzaehler sagte: "Eine verpasste Staatsform."
+Der Erzähler sagte: „Eine verpasste Staatsform.“
 
-"Er kommentiert dich", sagte Taron.
+„Er kommentiert dich“, sagte Taron.
 
-Elva schnaubte. "Dann soll er lernen, Kartoffeln zu schaelen."
+Elva schnaubte. „Dann soll er lernen, Kartoffeln zu schälen.“
 
-Der Erzaehler schwieg einen winzigen Moment.
+Der Erzähler schwieg einen winzigen Moment.
 
-"Ich ziehe meine Bemerkung teilweise zurueck."
+„Ich ziehe meine Bemerkung teilweise zurück.“
 
 Taron lachte. Diesmal tat es weh, aber nicht falsch.
 
-Unten im Hof wurde ein Tisch vor den Rittersaal getragen. Nicht fuer ein Fest. Fuer Karten. Das war eine andere Art von schlechter Nachricht. Karten bedeuteten, dass die Welt groesser war als die Stelle, an der man gerade ueberlebt hatte. Auf der groessten Karte lagen kleine Steine: Waldkirch, Ellingen, Karndorn, Riedwacht, Abendriss, die Silberwacht-Hoehen, der Grenzbach, ein leerer Pass im Osten, den Taron bisher fuer ein dekoratives Kartenproblem gehalten hatte.
+Unten im Hof wurde ein Tisch vor den Rittersaal getragen. Nicht für ein Fest. Für Karten. Das war eine andere Art von schlechter Nachricht. Karten bedeuteten, dass die Welt größer war als die Stelle, an der man gerade überlebt hatte. Auf der größten Karte lagen kleine Steine: Waldkirch, Ellingen, Karndorn, Riedwacht, Abendriss, die Silberwacht-Höhen, der Grenzbach, ein leerer Pass im Osten, den Taron bisher für ein dekoratives Kartenproblem gehalten hatte.
 
-Rugar stand vor der Karte und stuetzte sich auf Brokk. Albrecht stand gegenueber. Zwischen ihnen lag der Osten.
+Rugar stand vor der Karte und stützte sich auf Brokk. Albrecht stand gegenüber. Zwischen ihnen lag der Osten.
 
-"Da ist er hin", sagte Taron leise.
+„Da ist er hin“, sagte Taron leise.
 
-Der Erzaehler antwortete nicht sofort.
+Der Erzähler antwortete nicht sofort.
 
-"Vielleicht."
+„Vielleicht.“
 
-"Vielleicht?"
+„Vielleicht?“
 
-"Der andere war lange gebunden. Freiheit macht nicht sofort klug. Nur gefaehrlich."
+„Der andere war lange gebunden. Freiheit macht nicht sofort klug. Nur gefährlich.“
 
-"Das beruhigt mich nicht."
+„Das beruhigt mich nicht.“
 
-"Es war auch nicht als Beruhigung gedacht. Ich uebe Ehrlichkeit in kleinen, unattraktiven Portionen."
+„Es war auch nicht als Beruhigung gedacht. Ich übe Ehrlichkeit in kleinen, unattraktiven Portionen.“
 
-Taron lehnte die Stirn gegen den Mauerstein. "Warum kann nie jemand nach so etwas einfach verschwinden und Gaerten anlegen?"
+Taron lehnte die Stirn gegen den Mauerstein. „Warum kann nie jemand nach so etwas einfach verschwinden und Gärten anlegen?“
 
-"Einige tun es."
+„Einige tun es.“
 
-"Wirklich?"
+„Wirklich?“
 
-"Ja. Von ihnen handeln selten Geschichten, was ihnen vermutlich recht ist."
+„Ja. Von ihnen handeln selten Geschichten, was ihnen vermutlich recht ist.“
 
-Taron sah auf die Karte. Ein Schreiber markierte Orte, an denen in den letzten Monaten Berichte von seltsamen Ratgebern, stillen Glocken, verschwundenen Grenzsteinen und Koenigen mit ploetzlich sehr klaren Plaenen gekommen waren. Jeder Bericht fuer sich klang nach Geruecht. Zusammen sahen sie aus wie eine Hand, die ueber die Landkarte griff.
+Taron sah auf die Karte. Ein Schreiber markierte Orte, an denen in den letzten Monaten Berichte von seltsamen Ratgebern, stillen Glocken, verschwundenen Grenzsteinen und Königen mit plötzlich sehr klaren Plänen gekommen waren. Jeder Bericht für sich klang nach Gerücht. Zusammen sahen sie aus wie eine Hand, die über die Landkarte griff.
 
-Ansel beugte sich ueber den Tisch und schob einen Stein zwei Fingerbreit nach Norden.
+Ansel beugte sich über den Tisch und schob einen Stein zwei Fingerbreit nach Norden.
 
 Albrecht sagte etwas. Ansel antwortete. Rugar lachte einmal trocken, dann brach das Lachen in Husten ab. Brokk reichte ihm Wasser.
 
-Der Frieden hatte noch nicht einmal richtig angefangen und sah bereits nach Arbeit aus. Taron fand das unhoeflich, aber glaubwuerdig.
+Der Frieden hatte noch nicht einmal richtig angefangen und sah bereits nach Arbeit aus. Taron fand das unhöflich, aber glaubwürdig.
 
-"Sie werden dich rufen", sagte Elva.
+„Sie werden dich rufen“, sagte Elva.
 
-"Ich weiss."
+„Ich weiß.“
 
-"Wirst du gehen?"
+„Wirst du gehen?“
 
-Taron wollte Nein sagen. Sehr. Ein sauberes, festes Nein, das sich in eine Decke wickelte und irgendwo einschlief. Er dachte an Marta, an Brot, an den Stall, an die Moeglichkeit, eines Tages aufzuwachen, ohne dass jemand ihn mit Prophezeiungen bewarf.
+Taron wollte Nein sagen. Sehr. Ein sauberes, festes Nein, das sich in eine Decke wickelte und irgendwo einschlief. Er dachte an Marta, an Brot, an den Stall, an die Möglichkeit, eines Tages aufzuwachen, ohne dass jemand ihn mit Prophezeiungen bewarf.
 
-Dann dachte er an den Holzring im Hof, an Jost ohne Speer, an den jungen Zwerg mit dem Loeffel, an den Hunger vor Brot und Wasser. An die Stimme, die bleiben wollte und frei sein konnte.
+Dann dachte er an den Holzring im Hof, an Jost ohne Speer, an den jungen Zwerg mit dem Löffel, an den Hunger vor Brot und Wasser. An die Stimme, die bleiben wollte und frei sein konnte.
 
-"Nicht heute", sagte er.
+„Nicht heute“, sagte er.
 
-Elva nickte. "Das war nicht meine Frage."
+Elva nickte. „Das war nicht meine Frage.“
 
-"Ich weiss."
+„Ich weiß.“
 
-"Ich nehme es fuer heute."
+„Ich nehme es für heute.“
 
-Das war grosszuegig. Elva tat Grosszuegigkeit gern so, als sei sie nur eine vorlaeufige Arbeitsvereinbarung. Vielleicht war sie dadurch haltbarer.
+Das war großzügig. Elva tat Großzügigkeit gern so, als sei sie nur eine vorläufige Arbeitsvereinbarung. Vielleicht war sie dadurch haltbarer.
 
-Der Erzaehler sagte nichts.
+Der Erzähler sagte nichts.
 
 Diesmal war das Schweigen nicht falsch.
 
 Es war nur da.
 
-Und fuer den Augenblick blieb es.
+Und für den Augenblick blieb es.
 
-Spaeter, sehr viel spaeter, wuerden sie vermutlich Karten ausbreiten und Pfeile darauf zeichnen. Der andere Daemon war frei. Irgendwo wuerde ein alter Eid duenner werden, eine Grenze falsch klingen, ein Koenig zu gut beraten werden. Menschen und Zwerge wuerden wieder streiten, diesmal vielleicht nebeneinander statt immer nur gegeneinander. Vielleicht wuerde Taron mitgehen. Wahrscheinlich wuerde man ihn fragen. Noch wahrscheinlicher wuerde man versuchen, es wie einen Befehl klingen zu lassen.
+Später, sehr viel später, würden sie vermutlich Karten ausbreiten und Pfeile darauf zeichnen. Der andere Dämon war frei. Irgendwo würde ein alter Eid dünner werden, eine Grenze falsch klingen, ein König zu gut beraten werden. Menschen und Zwerge würden wieder streiten, diesmal vielleicht nebeneinander statt immer nur gegeneinander. Vielleicht würde Taron mitgehen. Wahrscheinlich würde man ihn fragen. Noch wahrscheinlicher würde man versuchen, es wie einen Befehl klingen zu lassen.
 
 Aber an diesem Abend blieb er auf der Mauer sitzen, mit Elva neben sich, Martas Suppe im Hof, Oswins und Brokks leisen Zahlen am Tor und einer Stimme im Kopf, die nicht frei war und nicht fort.
 
 Das war kein ordentliches Ende.
 
-Ordentliche Enden waren fuer Geschichten, die ihre Flecken vorher entfernt hatten.
+Ordentliche Enden waren für Geschichten, die ihre Flecken vorher entfernt hatten.
 
 Diese hier hatte noch genug.
 
-Taron sah zum dunklen Himmel ueber Waldkirch. Keine Sterne. Nur Wolken. Frueher haette die Stimme gesagt, Sterne seien Loecher in schlecht verarbeitetem Nachtstoff. Heute sagte sie nichts.
+Taron sah zum dunklen Himmel über Waldkirch. Keine Sterne. Nur Wolken. Früher hätte die Stimme gesagt, Sterne seien Löcher in schlecht verarbeitetem Nachtstoff. Heute sagte sie nichts.
 
-"Du darfst den Satz sagen", dachte Taron.
+„Du darfst den Satz sagen“, dachte Taron.
 
-"Welchen?"
+„Welchen?“
 
-"Den mit den Sternen."
+„Den mit den Sternen.“
 
-Der Erzaehler schwieg einen Moment.
+Der Erzähler schwieg einen Moment.
 
-"Nicht heute", sagte er dann. "Heute bleibt die Nacht ganz."
+„Nicht heute“, sagte er dann. „Heute bleibt die Nacht ganz.“
 
 Taron nickte.
 
@@ -486,40 +486,40 @@ Das war unerwartet gut.
 
 Unten rief Marta nach Elva. Elva seufzte, stand auf und sah Taron an.
 
-"Kommst du?"
+„Kommst du?“
 
 Taron sah zum Hof, dann zum dunklen Himmel, dann in sich hinein, wo die Stimme blieb.
 
-"Gleich."
+„Gleich.“
 
-"Das heisst bei dir nie gleich."
+„Das heißt bei dir nie gleich.“
 
-"Heute schon."
+„Heute schon.“
 
-Sie glaubte ihm nicht ganz. Aber sie ging, und das war Vertrauen in einer vernuenftigen Menge.
+Sie glaubte ihm nicht ganz. Aber sie ging, und das war Vertrauen in einer vernünftigen Menge.
 
 Taron blieb noch einen Atemzug sitzen.
 
-"Bereit?", fragte der Erzaehler.
+„Bereit?“, fragte der Erzähler.
 
-"Wofuer?"
+„Wofür?“
 
-"Fuer die naechste falsche Auslegung."
+„Für die nächste falsche Auslegung.“
 
 Taron stand auf. Seine Beine schmerzten. Sein Kopf auch. Die Welt ebenfalls, vermutlich.
 
-"Nein", sagte er. "Aber ich komme trotzdem."
+„Nein“, sagte er. „Aber ich komme trotzdem.“
 
-"Ausgezeichnet", sagte der Erzaehler. "Dann war ja wirklich alles geplant."
+„Ausgezeichnet“, sagte der Erzähler. „Dann war ja wirklich alles geplant.“
 
-Taron ging die Treppe hinunter und liess die Antwort offen.
+Taron ging die Treppe hinunter und ließ die Antwort offen.
 
-Das war vermutlich die ehrlichste Art, diese Geschichte fuer den Moment zu beenden: nicht mit einer Antwort, sondern mit jemandem, der trotzdem weiterging.
+Das war vermutlich die ehrlichste Art, diese Geschichte für den Moment zu beenden: nicht mit einer Antwort, sondern mit jemandem, der trotzdem weiterging.
 
 Unten wartete Suppe.
 
-Das war kein grosses Symbol. Es war besser: warm, knapp, geteilt und dringend noetig. Taron nahm eine Schale von Marta entgegen, setzte sich zwischen Elva und einen Zwerg, dessen Namen er noch nicht kannte, und ass.
+Das war kein großes Symbol. Es war besser: warm, knapp, geteilt und dringend nötig. Taron nahm eine Schale von Marta entgegen, setzte sich zwischen Elva und einen Zwerg, dessen Namen er noch nicht kannte, und aß.
 
-Der Erzaehler kommentierte nicht.
+Der Erzähler kommentierte nicht.
 
 Auch das war eine Art Planung.

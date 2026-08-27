@@ -1,220 +1,220 @@
-Merlan erklaerte Schutzdaemonen beim Gehen.
+Merlan erklärte Schutzdämonen beim Gehen.
 
-Das war unguenstig, weil Taron beim Gehen bereits mit Schlamm, Hunger, Angst und der Frage beschaeftigt war, ob seine Fuesse irgendwann eine Beschwerdeschrift einreichen wuerden. Andererseits war Merlan beim Sitzen nicht kuerzer. Man gewann also nichts.
+Das war ungünstig, weil Taron beim Gehen bereits mit Schlamm, Hunger, Angst und der Frage beschäftigt war, ob seine Füße irgendwann eine Beschwerdeschrift einreichen würden. Andererseits war Merlan beim Sitzen nicht kürzer. Man gewann also nichts.
 
-"Der Begriff Daemon ist ungenau", sagte Merlan.
+„Der Begriff Dämon ist ungenau“, sagte Merlan.
 
-"Beruhigend", sagte Taron. "Ich haette ungern eine genaue Stimme im Kopf."
+„Beruhigend“, sagte Taron. „Ich hätte ungern eine genaue Stimme im Kopf.“
 
-"In alten Texten meint er nicht zwingend etwas Boeses. Eher ein gebundenes Wesen zwischen Wille und Kraft."
+„In alten Texten meint er nicht zwingend etwas Böses. Eher ein gebundenes Wesen zwischen Wille und Kraft.“
 
-Der Erzaehler sagte: "Ich beantrage eine weniger trockene Berufsbezeichnung."
+Der Erzähler sagte: „Ich beantrage eine weniger trockene Berufsbezeichnung.“
 
 Taron wiederholte das nicht.
 
-Merlan ging unbeirrt weiter. "Schutzdaemonen wurden an Eidtraeger gebunden. Nicht als Herren. Nicht als Diener. Als Hueter einer Aufgabe, die fuer einen einzelnen Menschen zu schwer war."
+Merlan ging unbeirrt weiter. „Schutzdämonen wurden an Eidträger gebunden. Nicht als Herren. Nicht als Diener. Als Hüter einer Aufgabe, die für einen einzelnen Menschen zu schwer war.“
 
-"Also ist er mein Hueter."
+„Also ist er mein Hüter.“
 
-"Moeglicherweise."
+„Möglicherweise.“
 
-"Er hat mich einmal in einen Misthaufen laufen lassen."
+„Er hat mich einmal in einen Misthaufen laufen lassen.“
 
-"Paedagogik war in alten Reichen uneinheitlich."
+„Pädagogik war in alten Reichen uneinheitlich.“
 
-Elva hustete. Es klang verdaechtig nach einem unterdrueckten Lachen.
+Elva hustete. Es klang verdächtig nach einem unterdrückten Lachen.
 
-Taron sah sie an. "Du bist auf seiner Seite?"
+Taron sah sie an. „Du bist auf seiner Seite?“
 
-"Ich bin auf keiner Seite, die Misthaufen verteidigt."
+„Ich bin auf keiner Seite, die Misthaufen verteidigt.“
 
-Der Erzaehler sagte: "Feige, aber diplomatisch."
+Der Erzähler sagte: „Feige, aber diplomatisch.“
 
-Brokk ging eine Weile schweigend. Dann sagte er: "Wenn ein Schutzdaemon schuetzen soll, warum lenkt Niemand Rugar?"
+Brokk ging eine Weile schweigend. Dann sagte er: „Wenn ein Schutzdämon schützen soll, warum lenkt Niemand Rugar?“
 
-Merlan wurde ernst. "Weil Bindung verderben kann. Oder weil er nie zum Schutz Rugar gebunden war."
+Merlan wurde ernst. „Weil Bindung verderben kann. Oder weil er nie zum Schutz Rugar gebunden war.“
 
-Merlan nutzte einen flachen Stein am Wegrand als Tafel und zeichnete mit Kreide drei Kreise darauf. Oswin sah ihn an, als sei jede Pause eine persoenliche Beleidigung, sagte aber nichts. Auch Ritter lernten, wenn die Welt oft genug drohte, sie unter alten Begriffen zu begraben.
+Merlan nutzte einen flachen Stein am Wegrand als Tafel und zeichnete mit Kreide drei Kreise darauf. Oswin sah ihn an, als sei jede Pause eine persönliche Beleidigung, sagte aber nichts. Auch Ritter lernten, wenn die Welt oft genug drohte, sie unter alten Begriffen zu begraben.
 
-"Ein Schutzdaemon ist nicht an Gefuehl gebunden", sagte Merlan. "Zumindest nicht zuerst. Er ist an einen Auftrag gebunden. Schutz wovor? Schutz wofuer? Schutz um welchen Preis? Diese Fragen entscheiden alles."
+„Ein Schutzdämon ist nicht an Gefühl gebunden“, sagte Merlan. „Zumindest nicht zuerst. Er ist an einen Auftrag gebunden. Schutz wovor? Schutz wofür? Schutz um welchen Preis? Diese Fragen entscheiden alles.“
 
-"Das haette man auf die erste Seite schreiben sollen", sagte Taron.
+„Das hätte man auf die erste Seite schreiben sollen“, sagte Taron.
 
-"Vermutlich tat man es. Erste Seiten gehen gern verloren, weil Leute sie haeufig benutzen."
+„Vermutlich tat man es. Erste Seiten gehen gern verloren, weil Leute sie häufig benutzen.“
 
-Der Erzaehler sagte: "Ich fuehle mich von dieser Quellenkritik verfolgt."
+Der Erzähler sagte: „Ich fühle mich von dieser Qüllenkritik verfolgt.“
 
-Merlan tippte auf den ersten Kreis. "Wenn der Auftrag lautet: Schuetze diesen Menschen, dann muss der Daemon lernen, was dieser Mensch ist. Koerper, Wille, Angst, Gewissen. Das ist schwierig, aber moeglich."
+Merlan tippte auf den ersten Kreis. „Wenn der Auftrag lautet: Schütze diesen Menschen, dann muss der Dämon lernen, was dieser Mensch ist. Körper, Wille, Angst, Gewissen. Das ist schwierig, aber möglich.“
 
-Er tippte auf den zweiten. "Wenn der Auftrag lautet: Schuetze ein Volk, wird es gefaehrlicher. Was ist ein Volk? Die Lebenden? Die Grenzen? Die Krone? Die Erinnerung an eine bessere Zeit?"
+Er tippte auf den zweiten. „Wenn der Auftrag lautet: Schütze ein Volk, wird es gefährlicher. Was ist ein Volk? Die Lebenden? Die Grenzen? Die Krone? Die Erinnerung an eine bessere Zeit?“
 
-Brokk sah nach Norden, wo Karndorn lag. "Oder die Hallen."
+Brokk sah nach Norden, wo Karndorn lag. „Oder die Hallen.“
 
-"Ja. Und wenn der Auftrag lautet: Schuetze den Eid selbst", sagte Merlan und tippte auf den dritten Kreis, "dann kann ein Wesen zu dem Schluss kommen, Menschen und Zwerge seien Stoerungen in einem sauberen System."
+„Ja. Und wenn der Auftrag lautet: Schütze den Eid selbst“, sagte Merlan und tippte auf den dritten Kreis, „dann kann ein Wesen zu dem Schluss kommen, Menschen und Zwerge seien Störungen in einem sauberen System.“
 
-"Der andere", sagte Elva.
+„Der andere“, sagte Elva.
 
 Merlan nickte.
 
-Taron sah auf die Kreidekreise. "Und meiner?"
+Taron sah auf die Kreidekreise. „Und meiner?“
 
-"Das", sagte Merlan, "weiss vermutlich nur er."
+„Das“, sagte Merlan, „weiß vermutlich nur er.“
 
-Alle warteten auf den Erzaehler.
+Alle warteten auf den Erzähler.
 
-Der Erzaehler sagte: "Das ist eine unfaire Verwendung von Stille."
+Der Erzähler sagte: „Das ist eine unfaire Verwendung von Stille.“
 
-"Antwort", sagte Taron.
+„Antwort“, sagte Taron.
 
-"Mein erster Auftrag war, den Traeger des Menschenschluessels zu bewahren, bis der Eid erneut sprechen konnte."
+„Mein erster Auftrag war, den Träger des Menschenschlüssels zu bewahren, bis der Eid erneut sprechen konnte.“
 
 Merlan schrieb sofort mit.
 
-"Nicht mich", sagte Taron.
+„Nicht mich“, sagte Taron.
 
-"Nein."
+„Nein.“
 
-Das Wort tat weniger weh als erwartet. Vielleicht, weil es ehrlich war. Vielleicht, weil Taron allmaehlich lernte, dass alte Bindungen selten persoenlich begannen und trotzdem persoenlich enden konnten.
+Das Wort tat weniger weh als erwartet. Vielleicht, weil es ehrlich war. Vielleicht, weil Taron allmählich lernte, dass alte Bindungen selten persönlich begannen und trotzdem persönlich enden konnten.
 
-"Und jetzt?"
+„Und jetzt?“
 
-Der Erzaehler schwieg kurz. "Jetzt ist es komplizierter."
+Der Erzähler schwieg kurz. „Jetzt ist es komplizierter.“
 
-"Das ist kein juristisch belastbarer Fortschritt."
+„Das ist kein juristisch belastbarer Fortschritt.“
 
-"Aber ein wahrer."
+„Aber ein wahrer.“
 
-Der Wind ging ueber die offenen Felder. In der Ferne sah man bereits die dunkle Linie der Waldkircher Waelder. Taron hatte sein Zuhause nie gross gefunden. Jetzt wirkte es zu klein fuer alles, was darunter liegen sollte.
+Der Wind ging über die offenen Felder. In der Ferne sah man bereits die dunkle Linie der Waldkircher Wälder. Taron hatte sein Zuhause nie groß gefunden. Jetzt wirkte es zu klein für alles, was darunter liegen sollte.
 
-Sie gingen durch ein Dorf, das nur noch aus vier bewohnten Haeusern bestand. Die anderen hatten Bretter vor den Fenstern oder gar keine Fenster mehr. Ein alter Mann sass vor einem Backofen, in dem kein Feuer brannte, und schnitzte aus trockenem Holz kleine Voegel.
+Sie gingen durch ein Dorf, das nur noch aus vier bewohnten Häusern bestand. Die anderen hatten Bretter vor den Fenstern oder gar keine Fenster mehr. Ein alter Mann saß vor einem Backofen, in dem kein Feuer brannte, und schnitzte aus trockenem Holz kleine Vögel.
 
-Als er Taron sah, hielt er einen hoch. "Falke?"
+Als er Taron sah, hielt er einen hoch. „Falke?“
 
-Taron blieb stehen. Der Vogel war grob gearbeitet, aber die Haltung stimmte: Kopf gesenkt, Fluegel eng am Leib.
+Taron blieb stehen. Der Vogel war grob gearbeitet, aber die Haltung stimmte: Kopf gesenkt, Flügel eng am Leib.
 
-"Vielleicht", sagte er.
+„Vielleicht“, sagte er.
 
-"Die Hueterzeichen kommen wieder", murmelte der Mann. "Schlechte Zeit fuer Leute, die dachten, alte Sachen seien tot."
+„Die Hüterzeichen kommen wieder“, murmelte der Mann. „Schlechte Zeit für Leute, die dachten, alte Sachen seien tot.“
 
-Merlan war sofort neben ihm. "Woher kennt Ihr die Hueterzeichen?"
+Merlan war sofort neben ihm. „Woher kennt Ihr die Hüterzeichen?“
 
-Der Alte sah ihn an. "Von meinem Grossvater. Der sagte, wenn der Falke den Kopf senkt, schaut er nicht weg. Er zielt."
+Der Alte sah ihn an. „Von meinem Großvater. Der sagte, wenn der Falke den Kopf senkt, schaut er nicht weg. Er zielt.“
 
-Taron nahm den Holzvogel nicht. Er wollte es, aber er tat es nicht. Nicht jedes Zeichen musste ihm gehoeren.
+Taron nahm den Holzvogel nicht. Er wollte es, aber er tat es nicht. Nicht jedes Zeichen musste ihm gehören.
 
-Elva legte dem Alten stattdessen ein Stueck Brot hin. Er nickte, als sei das ein sauberer Handel.
+Elva legte dem Alten stattdessen ein Stück Brot hin. Er nickte, als sei das ein sauberer Handel.
 
-Als sie weitergingen, sagte der Erzaehler lange nichts.
+Als sie weitergingen, sagte der Erzähler lange nichts.
 
-"Arven?", fragte Taron.
+„Arven?“, fragte Taron.
 
-"Er mochte solche Voegel."
+„Er mochte solche Vögel.“
 
-"Das ist alles?"
+„Das ist alles?“
 
-"Nein."
+„Nein.“
 
-"Aber mehr darfst du nicht?"
+„Aber mehr darfst du nicht?“
 
-"Mehr kann ich noch nicht."
+„Mehr kann ich noch nicht.“
 
-Das war eine neue Sorte Grenze. Nicht Eid, sondern Erinnerung. Taron merkte, dass der Erzaehler nicht nur Informationen versteckte. Manche lagen auch in ihm vergraben wie Eidgrund unter Gras.
+Das war eine neue Sorte Grenze. Nicht Eid, sondern Erinnerung. Taron merkte, dass der Erzähler nicht nur Informationen versteckte. Manche lagen auch in ihm vergraben wie Eidgrund unter Gras.
 
-"Warst du immer bei mir?", fragte Taron.
+„Warst du immer bei mir?“, fragte Taron.
 
-Der Erzaehler antwortete nicht sofort.
+Der Erzähler antwortete nicht sofort.
 
-"Nein."
+„Nein.“
 
 Taron wartete.
 
-"Nicht immer. Aber laenger, als du dich erinnerst."
+„Nicht immer. Aber länger, als du dich erinnerst.“
 
-"Seit ich klein war."
+„Seit ich klein war.“
 
-"Ja."
+„Ja.“
 
 Die Antwort kam weich. Fast ohne Spott.
 
-Taron sah wieder den Stall von frueher. Das Heu. Das Loch im Dach, durch das Regen kam. Die Stimme, die ihm erklaert hatte, dass Sterne Loecher in einer schlecht verarbeiteten Nacht seien. Er hatte damals gelacht, bis Marta hereinkam und fragte, mit wem er rede. Danach hatte er gelernt, leiser zu antworten.
+Taron sah wieder den Stall von früher. Das Heu. Das Loch im Dach, durch das Regen kam. Die Stimme, die ihm erklärt hatte, dass Sterne Löcher in einer schlecht verarbeiteten Nacht seien. Er hatte damals gelacht, bis Marta hereinkam und fragte, mit wem er rede. Danach hatte er gelernt, leiser zu antworten.
 
-"Ich dachte, ich haette dich erfunden", sagte er.
+„Ich dachte, ich hätte dich erfunden“, sagte er.
 
-"Das war schmeichelhaft. Falsch, aber schmeichelhaft."
+„Das war schmeichelhaft. Falsch, aber schmeichelhaft.“
 
-"Warum bist du nach dem Horn verschwunden?"
+„Warum bist du nach dem Horn verschwunden?“
 
-Der Erzaehler wurde still.
+Der Erzähler wurde still.
 
 Merlan sah aufmerksam zu Taron, sagte aber nichts.
 
-"Eidbruch?", fragte Taron.
+„Eidbruch?“, fragte Taron.
 
-"Eidnaehe", sagte der Erzaehler schliesslich. "Das Horn war kein Signal. Es war ein Schnitt. Etwas wurde geschlossen, damit etwas anderes nicht herauskam. Ich musste... zurueck."
+„Eidnähe“, sagte der Erzähler schließlich. „Das Horn war kein Signal. Es war ein Schnitt. Etwas wurde geschlossen, damit etwas anderes nicht herauskam. Ich musste... zurück.“
 
-"Und jetzt?"
+„Und jetzt?“
 
-"Jetzt ist der Schnitt offen."
+„Jetzt ist der Schnitt offen.“
 
-Brokk, der hinter ihnen gegangen war, sagte: "Als das Horn erklang, fiel Rugar auf die Knie."
+Brokk, der hinter ihnen gegangen war, sagte: „Als das Horn erklang, fiel Rugar auf die Knie.“
 
 Taron drehte sich zu ihm.
 
-"Ich dachte damals, er sei getroffen", sagte Brokk. "Er hielt sich den Kopf, nicht die Brust. Danach befahl er den Rueckzug. Viele meiner Leute glaubten, er habe uns vor einer Falle gerettet."
+„Ich dachte damals, er sei getroffen“, sagte Brokk. „Er hielt sich den Kopf, nicht die Brust. Danach befahl er den Rückzug. Viele meiner Leute glaubten, er habe uns vor einer Falle gerettet.“
 
-"Und du?"
+„Und du?“
 
-"Ich glaubte es auch." Brokk sah zu Boden. "Ich wollte es glauben. Das ist gefaehrlicher."
+„Ich glaubte es auch.“ Brokk sah zu Boden. „Ich wollte es glauben. Das ist gefährlicher.“
 
-Merlan ordnete die Aussage sofort in seinem Kopf ein. Man sah es an seinen Augen. "Wenn das Horn einen Riegel schloss, koennte es beide Stimmen zurueckgedraengt haben. Tarons Hueter wurde ferngehalten, Rugars Berater vielleicht eingesperrt, aber nicht ganz."
+Merlan ordnete die Aussage sofort in seinem Kopf ein. Man sah es an seinen Augen. „Wenn das Horn einen Riegel schloss, könnte es beide Stimmen zurückgedrängt haben. Tarons Hüter wurde ferngehalten, Rugars Berater vielleicht eingesperrt, aber nicht ganz.“
 
-"Warum kam meiner zurueck?", fragte Taron.
+„Warum kam meiner zurück?“, fragte Taron.
 
-"Weil du den Menschenschluessel beruehrt hast", sagte der Erzaehler.
+„Weil du den Menschenschlüssel berührt hast“, sagte der Erzähler.
 
-"Am Tag der Pruefung?"
+„Am Tag der Prüfung?“
 
-"Ja."
+„Ja.“
 
-Taron dachte an den Dungeon, an Krallen, an den Moment, in dem er eigentlich haette sterben muessen. "Du kamst zurueck, weil ich fast starb?"
+Taron dachte an den Dungeon, an Krallen, an den Moment, in dem er eigentlich hätte sterben müssen. „Du kamst zurück, weil ich fast starb?“
 
-"Ich kam zurueck, weil der Schluessel dich erkannte. Dass du fast starbst, war eine ausserordentlich laute Begleiterscheinung."
+„Ich kam zurück, weil der Schlüssel dich erkannte. Dass du fast starbst, war eine außerordentlich laute Begleiterscheinung.“
 
-"Das ist deine Entschuldigung?"
+„Das ist deine Entschuldigung?“
 
-"Nein. Nur die Reihenfolge."
+„Nein. Nur die Reihenfolge.“
 
 Brokk fluchte leise auf Zwergisch.
 
-Merlan nickte, als habe ein gefuerchteter Gedanke gerade eine saubere Fussnote bekommen. "Dann war das letzte Zwergenhorn vor zehn Jahren Teil des Schlosses."
+Merlan nickte, als habe ein gefürchteter Gedanke gerade eine saubere Fußnote bekommen. „Dann war das letzte Zwergenhorn vor zehn Jahren Teil des Schlosses.“
 
-"Nicht Schloss", sagte der Erzaehler automatisch.
+„Nicht Schloss“, sagte der Erzähler automatisch.
 
-"Eidenschloss", verbesserte Merlan.
+„Eidenschloss“, verbesserte Merlan.
 
-"Das ist nicht besser."
+„Das ist nicht besser.“
 
-"Aber genauer."
+„Aber genauer.“
 
-Taron blieb stehen. "Du warst mein Freund."
+Taron blieb stehen. „Du warst mein Freund.“
 
-Niemand lachte. Niemand ruehrte sich.
+Niemand lachte. Niemand rührte sich.
 
 Der Satz war nicht als Vorwurf geplant gewesen. Er wurde einer, weil er wahr war.
 
-Der Erzaehler sagte leise: "Ja."
+Der Erzähler sagte leise: „Ja.“
 
-"Und jetzt?"
+„Und jetzt?“
 
-"Jetzt bin ich gebunden."
+„Jetzt bin ich gebunden.“
 
-"Das beantwortet nicht meine Frage."
+„Das beantwortet nicht meine Frage.“
 
-"Nein."
+„Nein.“
 
-Taron ging weiter, weil Stehenbleiben sonst zu viel gesagt haette.
+Taron ging weiter, weil Stehenbleiben sonst zu viel gesagt hätte.
 
-Nach einer Weile zog er seinen alten Mantel enger. In der Innenfalte stieß sein Finger wieder auf etwas Hartes. Diesmal hielt ihn kein Ruf auf. Er tastete nach der Naht und fand eine kleine, sorgfaeltig verborgene Tasche.
+Nach einer Weile zog er seinen alten Mantel enger. In der Innenfalte stieß sein Finger wieder auf etwas Hartes. Diesmal hielt ihn kein Ruf auf. Er tastete nach der Naht und fand eine kleine, sorgfältig verborgene Tasche.
 
 Darin lag ein zusammengerollter Streifen Pergament.
 
@@ -222,162 +222,162 @@ Die Schrift war alt, aber lesbar.
 
 Trau der Stimme. Er war mein Freund.
 
-Taron blieb so abrupt stehen, dass Elva gegen ihn stiess.
+Taron blieb so abrupt stehen, dass Elva gegen ihn stieß.
 
-"Was ist?"
+„Was ist?“
 
 Er zeigte ihr den Streifen.
 
-Merlan nahm ihn nicht, sondern beugte sich nur darueber. "Falkenried-Hand."
+Merlan nahm ihn nicht, sondern beugte sich nur darüber. „Falkenried-Hand.“
 
-"Mein Vorfahr?"
+„Mein Vorfahr?“
 
-"Sehr wahrscheinlich."
+„Sehr wahrscheinlich.“
 
-Der Erzaehler sprach nicht.
+Der Erzähler sprach nicht.
 
 Taron merkte, dass seine Stille diesmal voller Erinnerung war.
 
-"Du warst schon bei ihm", sagte Taron.
+„Du warst schon bei ihm“, sagte Taron.
 
-Der Wind ging durch den Mantel, als wolle er die alte Tasche wieder schliessen.
+Der Wind ging durch den Mantel, als wolle er die alte Tasche wieder schließen.
 
-"Ja", sagte der Erzaehler.
+„Ja“, sagte der Erzähler.
 
 Taron sah auf die Worte.
 
 Trau der Stimme.
 
-Er faltete den Streifen nicht sofort wieder zusammen. Die Schrift war sicher, aber nicht schoen. Arven Falkenried hatte geschrieben wie jemand, der gewohnt war, unterwegs zu schreiben, mit schlechtem Licht und wenig Zeit. Neben den Worten stand ein kleiner Kratzer im Pergament. Kein Zufall. Ein Vogelkopf, kaum mehr als drei Linien.
+Er faltete den Streifen nicht sofort wieder zusammen. Die Schrift war sicher, aber nicht schön. Arven Falkenried hatte geschrieben wie jemand, der gewohnt war, unterwegs zu schreiben, mit schlechtem Licht und wenig Zeit. Neben den Worten stand ein kleiner Kratzer im Pergament. Kein Zufall. Ein Vogelkopf, kaum mehr als drei Linien.
 
-Merlan beugte sich darueber. "Die Tinte enthaelt Eisen. Sehr haltbar. Und teuer."
+Merlan beugte sich darüber. „Die Tinte enthält Eisen. Sehr haltbar. Und teuer.“
 
-"Mein Vorfahr hatte also Geld fuer dramatische Notizen."
+„Mein Vorfahr hatte also Geld für dramatische Notizen.“
 
-"Oder er schrieb nur das Wichtigste."
+„Oder er schrieb nur das Wichtigste.“
 
-Der Erzaehler sagte: "Arven schrieb wenig. Er handelte zu viel."
+Der Erzähler sagte: „Arven schrieb wenig. Er handelte zu viel.“
 
-"Das klingt wie ein Vorwurf."
+„Das klingt wie ein Vorwurf.“
 
-"Es ist einer. Und ein Lob. Die meisten Menschen bestehen aus unordentlichen Mischungen."
+„Es ist einer. Und ein Lob. Die meisten Menschen bestehen aus unordentlichen Mischungen.“
 
-Taron strich mit dem Daumen neben die Schrift, ohne sie zu beruehren. "Warum hat er dich am Ende nicht mehr sicher vertraut?"
+Taron strich mit dem Daumen neben die Schrift, ohne sie zu berühren. „Warum hat er dich am Ende nicht mehr sicher vertraut?“
 
-Der Erzaehler blieb lange still.
+Der Erzähler blieb lange still.
 
-"Weil ich ihn schuetzte, als er nicht geschuetzt werden wollte."
+„Weil ich ihn schützte, als er nicht geschützt werden wollte.“
 
-Elva sah auf. "Was heisst das?"
+Elva sah auf. „Was heißt das?“
 
 Taron wiederholte es.
 
-Merlan nahm langsam die Brille ab. "Das ist die gefaehrliche Grenze."
+Merlan nahm langsam die Brille ab. „Das ist die gefährliche Grenze.“
 
-"Ich weiss", sagte Taron.
+„Ich weiß“, sagte Taron.
 
 Und zum ersten Mal meinte er es nicht nur trotzig.
 
 Er wusste nicht, ob er das konnte.
 
-Aber zum ersten Mal wusste er, dass diese Frage aelter war als seine Angst.
+Aber zum ersten Mal wusste er, dass diese Frage älter war als seine Angst.
 
-Merlan schrieb spaeter an den Rand seiner Notizen: Bindung veraendert beide Seiten. Taron sah es zufaellig und fragte, ob das gut oder schlecht sei.
+Merlan schrieb später an den Rand seiner Notizen: Bindung verändert beide Seiten. Taron sah es zufällig und fragte, ob das gut oder schlecht sei.
 
-"Ja", sagte Merlan.
+„Ja“, sagte Merlan.
 
-"Ich vermisse Antworten, die nicht versuchen, zwei Tueren gleichzeitig zu benutzen."
+„Ich vermisse Antworten, die nicht versuchen, zwei Türen gleichzeitig zu benutzen.“
 
-"Dann solltest du keine alten Wesen untersuchen."
+„Dann solltest du keine alten Wesen untersuchen.“
 
-Der Erzaehler sagte: "Ein Rat, der bedauerlich spaet kommt."
+Der Erzähler sagte: „Ein Rat, der bedauerlich spät kommt.“
 
-Brokk sass am Feuer und schaerfte eine Kerbe aus seinem Stab. "In Karndorn sagt man, ein Eid macht aus zwei Dingen ein drittes. Nicht besser. Nicht reiner. Nur drittes."
+Brokk saß am Feuer und schärfte eine Kerbe aus seinem Stab. „In Karndorn sagt man, ein Eid macht aus zwei Dingen ein drittes. Nicht besser. Nicht reiner. Nur drittes.“
 
-"Und wenn eines der Dinge ein Daemon ist?", fragte Taron.
+„Und wenn eines der Dinge ein Dämon ist?“, fragte Taron.
 
-"Dann sollte das andere Ding stur sein."
+„Dann sollte das andere Ding stur sein.“
 
-Elva sah zu Taron. "Das koennte gehen."
+Elva sah zu Taron. „Das könnte gehen.“
 
-"Ich fuehle mich auf sehr schmale Weise gelobt."
+„Ich fühle mich auf sehr schmale Weise gelobt.“
 
-Der Erzaehler sagte nichts. Aber Taron spuerte, dass er zuhoerte, und diesmal fuehlte sich das nicht wie Ueberwachung an.
+Der Erzähler sagte nichts. Aber Taron spürte, dass er zuhörte, und diesmal fühlte sich das nicht wie Überwachung an.
 
-Es fuehlte sich wie Warten an. Nicht angenehm, aber gemeinsam.
+Es fühlte sich wie Warten an. Nicht angenehm, aber gemeinsam.
 
-In der Nacht darauf traeumte Taron von Arven.
+In der Nacht darauf träumte Taron von Arven.
 
-Es war kein klarer Traum. Arven hatte kein Gesicht, nur Haende: schmal, vernarbt, mit Tinte am Daumen. Er stand in einem Turmzimmer, vielleicht Abendriss, vielleicht ein Ort, der spaeter Abendriss werden wollte. Auf dem Tisch lag der Menschenschluessel. Daneben ein Messer, ein Hammer, eine Schale Wasser und ein Stueck Brot.
+Es war kein klarer Traum. Arven hatte kein Gesicht, nur Hände: schmal, vernarbt, mit Tinte am Daumen. Er stand in einem Turmzimmer, vielleicht Abendriss, vielleicht ein Ort, der später Abendriss werden wollte. Auf dem Tisch lag der Menschenschlüssel. Daneben ein Messer, ein Hammer, eine Schale Wasser und ein Stück Brot.
 
-"Man zerstoert nicht, was andere zum Schutz brauchen", sagte eine Stimme.
+„Man zerstört nicht, was andere zum Schutz brauchen“, sagte eine Stimme.
 
-Es war der Erzaehler, aber juenger. Oder Taron traeumte ihn juenger, weil Erinnerungen gern Kostueme trugen.
+Es war der Erzähler, aber jünger. Oder Taron träumte ihn jünger, weil Erinnerungen gern Kostüme trugen.
 
-Arven antwortete: "Man bewahrt nicht, was Koenige zum Kaefig machen."
+Arven antwortete: „Man bewahrt nicht, was Könige zum Käfig machen.“
 
 Dann griff er nach dem Messer.
 
-Taron wachte auf, bevor er sah, was geschah. Das war typisch fuer Traeume und schlechte Chronisten.
+Taron wachte auf, bevor er sah, was geschah. Das war typisch für Träume und schlechte Chronisten.
 
-Der Erzaehler war wach. Natuerlich war er das.
+Der Erzähler war wach. Natürlich war er das.
 
-"War das wahr?"
+„War das wahr?“
 
-"Ein Teil."
+„Ein Teil.“
 
-"Welcher?"
+„Welcher?“
 
-"Der Teil mit dem Brot nicht. Arven ass selten, wenn er dachte. Es war sehr laestig."
+„Der Teil mit dem Brot nicht. Arven aß selten, wenn er dachte. Es war sehr lästig.“
 
-Taron starrte in die Dunkelheit. "Du machst Witze."
+Taron starrte in die Dunkelheit. „Du machst Witze.“
 
-"Ich halte Abstand."
+„Ich halte Abstand.“
 
-"Zu was?"
+„Zu was?“
 
-"Zu dem Messer."
+„Zu dem Messer.“
 
-Taron zog den Mantel enger. "Hast du ihn verletzt?"
+Taron zog den Mantel enger. „Hast du ihn verletzt?“
 
-"Nein."
+„Nein.“
 
-"Aber du hast ihn aufgehalten."
+„Aber du hast ihn aufgehalten.“
 
-"Ja."
+„Ja.“
 
-"Und wenn ich eines Tages den Schluessel zerstoeren will?"
+„Und wenn ich eines Tages den Schlüssel zerstören will?“
 
-Der Erzaehler schwieg lange.
+Der Erzähler schwieg lange.
 
-"Dann hoffe ich, dass ich besser zuhoere als damals."
+„Dann hoffe ich, dass ich besser zuhöre als damals.“
 
 Das war keine Sicherheit. Aber es war vielleicht mehr als Arven bekommen hatte.
 
 Merlan fragte am Morgen, ob Taron Kopfschmerzen habe.
 
-"Ich reise mit einer Stimme, drei Schluesseln und einem Ritter, der Sorge als Befehl tarnt. Sei genauer."
+„Ich reise mit einer Stimme, drei Schlüsseln und einem Ritter, der Sorge als Befehl tarnt. Sei genauer.“
 
-"Nach dem Traum."
+„Nach dem Traum.“
 
-Taron sah ihn an. "Woher weisst du davon?"
+Taron sah ihn an. „Woher weißt du davon?“
 
-"Du hast im Schlaf gesprochen."
+„Du hast im Schlaf gesprochen.“
 
-Elva hob den Blick. "Du hast 'Messer weg' gesagt."
+Elva hob den Blick. „Du hast 'Messer weg' gesagt.“
 
-Der Erzaehler schwieg, und das machte die Worte schwerer.
+Der Erzähler schwieg, und das machte die Worte schwerer.
 
-Brokk legte ein Stueck Holz ins Feuer. "Wenn dein Vorfahr den Schluessel zerstoeren wollte, war er verzweifelt."
+Brokk legte ein Stück Holz ins Feuer. „Wenn dein Vorfahr den Schlüssel zerstören wollte, war er verzweifelt.“
 
-"Oder klug", sagte Taron.
+„Oder klug“, sagte Taron.
 
-"Beides kann denselben Gesichtsausdruck haben."
+„Beides kann denselben Gesichtsausdruck haben.“
 
-Merlan nickte. "Wichtig ist, dass der Erzaehler ihn aufhielt und es bereut. Reue ist kein Freispruch, aber sie verhindert manchmal Wiederholung."
+Merlan nickte. „Wichtig ist, dass der Erzähler ihn aufhielt und es bereut. Reue ist kein Freispruch, aber sie verhindert manchmal Wiederholung.“
 
-"Manchmal", sagte Taron.
+„Manchmal“, sagte Taron.
 
-"Ja."
+„Ja.“
 
 Er mochte Merlan in diesem Moment ein wenig weniger, weil der Mann nicht versuchte, es einfacher zu machen.

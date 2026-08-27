@@ -1,387 +1,387 @@
-Merlan Graufinger oeffnete die Tuer, sah Taron an und sagte: "Du hast mehr Schluessel."
+Merlan Graufinger öffnete die Tür, sah Taron an und sagte: „Du hast mehr Schlüssel.“
 
-Taron blinzelte. "Guten Abend waere auch moeglich gewesen."
+Taron blinzelte. „Guten Abend wäre auch möglich gewesen.“
 
-"Guten Abend ist selten forschungserheblich."
+„Guten Abend ist selten forschungserheblich.“
 
-"Du bist wirklich schwer zu vermissen."
+„Du bist wirklich schwer zu vermissen.“
 
-Merlan trat zur Seite und liess sie ein. Sein Haus war unveraendert ordentlich, was nach Tagen in Schlamm, Nebel und alten Eiden wie eine Beleidigung wirkte. Auf dem Tisch lagen Papiere. Neben dem Herd stand ein Topf, der tatsaechlich nach Essen roch. Taron wurde fuer einen Moment von der sehr unheldischen Erkenntnis ergriffen, dass Suppe manchmal wichtiger war als Wahrheit.
+Merlan trat zur Seite und ließ sie ein. Sein Haus war unverändert ordentlich, was nach Tagen in Schlamm, Nebel und alten Eiden wie eine Beleidigung wirkte. Auf dem Tisch lagen Papiere. Neben dem Herd stand ein Topf, der tatsächlich nach Essen roch. Taron wurde für einen Moment von der sehr unheldischen Erkenntnis ergriffen, dass Suppe manchmal wichtiger war als Wahrheit.
 
-Merlan bemerkte seinen Blick und stellte wortlos Schalen auf den Tisch. Das war fuer ihn eine ungewoehnlich herzliche Geste. Er entschuldigte sie sofort, indem er sagte: "Unterzuckerung verschlechtert Schlussfolgerungen."
+Merlan bemerkte seinen Blick und stellte wortlos Schalen auf den Tisch. Das war für ihn eine ungewöhnlich herzliche Geste. Er entschuldigte sie sofort, indem er sagte: „Unterzuckerung verschlechtert Schlussfolgerungen.“
 
-"Ich fuehle mich umsorgt und beleidigt", sagte Taron.
+„Ich fühle mich umsorgt und beleidigt“, sagte Taron.
 
-"Dann ist der Satz vollstaendig angekommen."
+„Dann ist der Satz vollständig angekommen.“
 
-Brokk ass im Stehen. Oswin ass am Fenster. Elva ass erst, nachdem sie gesehen hatte, dass alle anderen eine Schale hatten. Taron bemerkte es und sagte nichts, weil manche Wahrheiten durch Aussprechen kleiner wurden. Merlan gab ihr trotzdem die groesste Portion, ohne hinzusehen. Vielleicht war er nicht warm. Aber er war aufmerksam, und das war in seinem Haus fast dasselbe.
+Brokk aß im Stehen. Oswin aß am Fenster. Elva aß erst, nachdem sie gesehen hatte, dass alle anderen eine Schale hatten. Taron bemerkte es und sagte nichts, weil manche Wahrheiten durch Aussprechen kleiner wurden. Merlan gab ihr trotzdem die größte Portion, ohne hinzusehen. Vielleicht war er nicht warm. Aber er war aufmerksam, und das war in seinem Haus fast dasselbe.
 
-Draussen ging Regen gegen die Scheiben. Hohensteg wirkte durch das Glas wie ein Ort, der beschlossen hatte, heute nicht in alte Angelegenheiten verwickelt zu werden. Das war klug von Hohensteg und voellig wirkungslos.
+Draußen ging Regen gegen die Scheiben. Hohensteg wirkte durch das Glas wie ein Ort, der beschlossen hatte, heute nicht in alte Angelegenheiten verwickelt zu werden. Das war klug von Hohensteg und völlig wirkungslos.
 
-Elva stellte den Schutzschluessel auf den Tisch, noch in Stoff gewickelt.
+Elva stellte den Schutzschlüssel auf den Tisch, noch in Stoff gewickelt.
 
-Brokk legte den Zwergenschluessel daneben.
+Brokk legte den Zwergenschlüssel daneben.
 
-Taron nahm den Menschenschluessel ab.
+Taron nahm den Menschenschlüssel ab.
 
 Merlan wurde sehr still.
 
-"Nicht zusammenlegen", sagte der Erzaehler.
+„Nicht zusammenlegen“, sagte der Erzähler.
 
-Taron wiederholte es, und Merlan nickte sofort. Er schob drei Holzschalen auf den Tisch und liess jeden Schluessel in einer eigenen liegen.
+Taron wiederholte es, und Merlan nickte sofort. Er schob drei Holzschalen auf den Tisch und ließ jeden Schlüssel in einer eigenen liegen.
 
-"Ausgezeichnet. Raeumliche Vorsicht. Eine der unterschaetzten Tugenden."
+„Ausgezeichnet. Räumliche Vorsicht. Eine der unterschätzten Tugenden.“
 
-Merlan holte Kreide und zog um jede Schale einen Kreis. Dann zog er um die drei Kreise einen vierten, aber nicht geschlossen. Eine Luecke blieb nach Sueden.
+Merlan holte Kreide und zog um jede Schale einen Kreis. Dann zog er um die drei Kreise einen vierten, aber nicht geschlossen. Eine Lücke blieb nach Süden.
 
-"Warum die Luecke?", fragte Taron.
+„Warum die Lücke?“, fragte Taron.
 
-"Weil geschlossene Kreise in Anwesenheit unbekannter alter Bindungen eine Einladung sind."
+„Weil geschlossene Kreise in Anwesenheit unbekannter alter Bindungen eine Einladung sind.“
 
-"An wen?"
+„An wen?“
 
-"Das ist die Art Frage, die man stellt, bevor man das Fenster oeffnet und nachsieht, wer unten eine Leiter haelt."
+„Das ist die Art Frage, die man stellt, bevor man das Fenster öffnet und nachsieht, wer unten eine Leiter hält.“
 
-Der Erzaehler sagte: "Ich billige diese Vorsicht. Ungern, aber deutlich."
+Der Erzähler sagte: „Ich billige diese Vorsicht. Ungern, aber deutlich.“
 
-Brokk betrachtete die Kreide. "Zwergische Binder haetten Salz genommen."
+Brokk betrachtete die Kreide. „Zwergische Binder hätten Salz genommen.“
 
-"Ich hatte welches", sagte Merlan. "Dann kam ein Winter, und Menschen brauchten Suppe."
+„Ich hatte welches“, sagte Merlan. „Dann kam ein Winter, und Menschen brauchten Suppe.“
 
 Brokk nickte. Das war kein sentimentaler Moment, aber ein ehrlicher. In Zeiten von Hunger wurde selbst Schutzkreis-Material politisch.
 
-"Was sind sie?", fragte Elva.
+„Was sind sie?“, fragte Elva.
 
-Merlan setzte sich nicht. Er ging um den Tisch, als koenne er die Antwort aus einem besseren Winkel weniger gefaehrlich machen.
+Merlan setzte sich nicht. Er ging um den Tisch, als könne er die Antwort aus einem besseren Winkel weniger gefährlich machen.
 
-"Keine Schluessel im gewoehnlichen Sinn. Eher Vollmachten. Mensch, Zwerg, Schutz. Drei Stimmen eines alten Schlosses."
+„Keine Schlüssel im gewöhnlichen Sinn. Eher Vollmachten. Mensch, Zwerg, Schutz. Drei Stimmen eines alten Schlosses.“
 
-Er zeigte auf den Menschenschluessel. "Dieser spricht fuer die menschlichen Linien: Blut, Name, Erbe, Verantwortung. Nicht Adel allein, sonst haette er sich jedem Koenig bereitwillig an den Hals geworfen."
+Er zeigte auf den Menschenschlüssel. „Dieser spricht für die menschlichen Linien: Blut, Name, Erbe, Verantwortung. Nicht Adel allein, sonst hätte er sich jedem König bereitwillig an den Hals geworfen.“
 
-"Ein Bild, das ich nicht brauchte", sagte Taron.
+„Ein Bild, das ich nicht brauchte“, sagte Taron.
 
-"Dann der Zwergenschluessel", fuhr Merlan fort. "Halle, Handwerk, Eid, Volk. Er gehoert nicht Rugar, weil Rugar Koenig ist, sondern weil Karndorn ihn als Traeger anerkannte. Das ist ein Unterschied, der Koenigen selten gefaellt."
+„Dann der Zwergenschlüssel“, fuhr Merlan fort. „Halle, Handwerk, Eid, Volk. Er gehört nicht Rugar, weil Rugar König ist, sondern weil Karndorn ihn als Träger anerkannte. Das ist ein Unterschied, der Königen selten gefällt.“
 
 Brokk brummte zustimmend.
 
-"Und der Schutzschluessel?", fragte Elva.
+„Und der Schutzschlüssel?“, fragte Elva.
 
-Merlan sah auf die eingewickelte Form. "Der gefaehrlichste. Er spricht nicht fuer Menschen oder Zwerge. Er spricht fuer die Bindung selbst. Er kann bewahren, aber auch festhalten. Er kann loesen, aber auch freisetzen."
+Merlan sah auf die eingewickelte Form. „Der gefährlichste. Er spricht nicht für Menschen oder Zwerge. Er spricht für die Bindung selbst. Er kann bewahren, aber auch festhalten. Er kann lösen, aber auch freisetzen.“
 
-"Du benutzt absichtlich Worte, die in beide Richtungen schneiden", sagte Oswin.
+„Du benutzt absichtlich Worte, die in beide Richtungen schneiden“, sagte Oswin.
 
-"Ja. Alte Magie tat das offenbar auch."
+„Ja. Alte Magie tat das offenbar auch.“
 
-Brokk verschraenkte die Arme. "Eidenschloss."
+Brokk verschränkte die Arme. „Eidenschloss.“
 
-Merlan sah ihn an. "Ihr nennt es so?"
+Merlan sah ihn an. „Ihr nennt es so?“
 
-"Seit Riedwacht."
+„Seit Riedwacht.“
 
-"Dann wart ihr naeher an der Wahrheit als Waldkirch."
+„Dann wart ihr näher an der Wahrheit als Waldkirch.“
 
-"Das ist nicht schwer", sagte Taron. "Waldkirch haelt mich fuer einen Plan."
+„Das ist nicht schwer“, sagte Taron. „Waldkirch hält mich für einen Plan.“
 
 Merlan nahm die Abschrift der Prophezeiung aus einem Stapel. Der Weinfleck lag darauf wie ein kleiner brauner Krieg.
 
-"Die Schluessel bringen Freiheit", las er. "Die Frage war nie, ob das stimmt. Die Frage ist, wem."
+„Die Schlüssel bringen Freiheit“, las er. „Die Frage war nie, ob das stimmt. Die Frage ist, wem.“
 
 Merlan nahm ein Messer, nicht zum Schneiden, sondern zum Beschweren der Ecke. Die Klinge lag genau neben dem Weinfleck.
 
-"Der Fleck ist nicht nur ein Schaden", sagte er.
+„Der Fleck ist nicht nur ein Schaden“, sagte er.
 
-Taron hob den Kopf. "Bitte sag nicht, der Wein war absichtlich."
+Taron hob den Kopf. „Bitte sag nicht, der Wein war absichtlich.“
 
-"Ich kann es nicht beweisen."
+„Ich kann es nicht beweisen.“
 
-"Das ist Merlanisch fuer: Ich glaube es und warte auf Papier."
+„Das ist Merlanisch für: Ich glaube es und warte auf Papier.“
 
-"Ungefaehr."
+„Ungefähr.“
 
-Elva beugte sich ueber die Stelle. "Wenn jemand die Prophezeiung faelschen wollte, warum so unordentlich?"
+Elva beugte sich über die Stelle. „Wenn jemand die Prophezeiung fälschen wollte, warum so unordentlich?“
 
-"Weil eine Luecke besser ist als ein falsches Wort", sagte Merlan. "Ein falsches Wort kann widerlegt werden. Eine Luecke wird von Wuenschen gefuellt."
+„Weil eine Lücke besser ist als ein falsches Wort“, sagte Merlan. „Ein falsches Wort kann widerlegt werden. Eine Lücke wird von Wünschen gefüllt.“
 
-Der Erzaehler sagte: "Das ist eine der besseren Beschreibungen politischer Theologie. Ich werde sie trotzdem nicht in Gold sticken."
+Der Erzähler sagte: „Das ist eine der besseren Beschreibungen politischer Theologie. Ich werde sie trotzdem nicht in Gold sticken.“
 
-Brokk sah auf den Fleck. "Menschen lasen Freiheit fuer Lichtenhain."
+Brokk sah auf den Fleck. „Menschen lasen Freiheit für Lichtenhain.“
 
-"Zwerge Freiheit fuer Karndorn", sagte Elva.
+„Zwerge Freiheit für Karndorn“, sagte Elva.
 
-Taron sah auf die drei Schalen. "Und Niemand las Freiheit fuer sich."
+Taron sah auf die drei Schalen. „Und Niemand las Freiheit für sich.“
 
-Er legte Ansels Blatt daneben. Die fehlende Stelle passte zu erschreckend vielen Moeglichkeiten. Freiheit dem Volk. Freiheit dem Eid. Freiheit dem Gebundenen.
+Er legte Ansels Blatt daneben. Die fehlende Stelle passte zu erschreckend vielen Möglichkeiten. Freiheit dem Volk. Freiheit dem Eid. Freiheit dem Gebundenen.
 
 Oder Freiheit dem Gefangenen.
 
-Der Erzaehler sagte nichts, aber die Luft um Taron wurde kuehler.
+Der Erzähler sagte nichts, aber die Luft um Taron wurde kühler.
 
-"Das Schloss ist kein Werkzeug", sagte Merlan. "Werkzeuge warten auf Haende. Das hier erinnert sich."
+„Das Schloss ist kein Werkzeug“, sagte Merlan. „Werkzeuge warten auf Hände. Das hier erinnert sich.“
 
-Als er das sagte, bewegten sich die Schluessel.
+Als er das sagte, bewegten sich die Schlüssel.
 
-Nicht weit. Nicht sichtbar genug, dass jemand, der blinzelte, es sicher haette beschwoeren koennen. Aber Taron sah, wie der Menschenschluessel in seiner Schale mit einem leisen Kratzen nach innen rutschte. Der Zwergenschluessel antwortete. Der Schutzschluessel gab keinen Laut von sich, aber der Stoff darueber spannte sich.
+Nicht weit. Nicht sichtbar genug, dass jemand, der blinzelte, es sicher hätte beschwören können. Aber Taron sah, wie der Menschenschlüssel in seiner Schale mit einem leisen Kratzen nach innen rutschte. Der Zwergenschlüssel antwortete. Der Schutzschlüssel gab keinen Laut von sich, aber der Stoff darüber spannte sich.
 
 Oswin zog sofort das Schwert halb aus der Scheide.
 
-"Gegen Besteck?", fragte Taron.
+„Gegen Besteck?“, fragte Taron.
 
-"Gegen alles, was sich ohne Haende bewegt."
+„Gegen alles, was sich ohne Hände bewegt.“
 
-Merlan hob beide Haende. "Nicht anfassen."
+Merlan hob beide Hände. „Nicht anfassen.“
 
-"Das ist inzwischen unser Familienwappen", sagte Taron.
+„Das ist inzwischen unser Familienwappen“, sagte Taron.
 
 Die Kreidelinien auf dem Tisch wurden heller. In ihnen entstanden winzige Unterbrechungen, genau wie in Eidgrund. Merlan beugte sich so weit vor, dass seine Nase fast in eine sehr alte Katastrophe geriet.
 
-"Es reagiert auf Erinnerung", fluesterte er.
+„Es reagiert auf Erinnerung“, flüsterte er.
 
-"Auf wessen?"
+„Auf wessen?“
 
-Der Erzaehler antwortete: "Auf meine."
+Der Erzähler antwortete: „Auf meine.“
 
 Alle warteten, bis Taron es wiederholte.
 
-Merlan wurde blass vor Erkenntnis. "Dann bist du nicht nur Zeuge. Du bist Teil des Schlosses."
+Merlan wurde blass vor Erkenntnis. „Dann bist du nicht nur Zeuge. Du bist Teil des Schlosses.“
 
-"Eidenschloss", murmelte Taron.
+„Eidenschloss“, murmelte Taron.
 
-"Ich fuerchte, in diesem Fall ist beides richtig."
+„Ich fürchte, in diesem Fall ist beides richtig.“
 
-"Steine erinnern sich nicht", sagte Oswin.
+„Steine erinnern sich nicht“, sagte Oswin.
 
-Merlan sah ihn milde an. "Steine nicht. Eide schon, wenn genug Blut, Namen und Dummheit daran gebunden wurden."
+Merlan sah ihn milde an. „Steine nicht. Eide schon, wenn genug Blut, Namen und Dummheit daran gebunden wurden.“
 
-"Das ist deine sachliche Stimme?"
+„Das ist deine sachliche Stimme?“
 
-"Ja."
+„Ja.“
 
-Brokk beugte sich ueber die Schalen. "Rugar will damit Karndorn befreien."
+Brokk beugte sich über die Schalen. „Rugar will damit Karndorn befreien.“
 
-"Von was?", fragte Elva.
+„Von was?“, fragte Elva.
 
 Niemand antwortete sofort.
 
-Merlan tippte auf die dritte Linie in Ansels Zeichnung. "Von einer Bindung, die er nicht versteht. Oder von einer Stimme, die ihm erklaert hat, dass Bindung und Gefangenschaft dasselbe seien."
+Merlan tippte auf die dritte Linie in Ansels Zeichnung. „Von einer Bindung, die er nicht versteht. Oder von einer Stimme, die ihm erklärt hat, dass Bindung und Gefangenschaft dasselbe seien.“
 
-Der Erzaehler sprach leise. "Fuer manche Wesen ist das kein Irrtum."
+Der Erzähler sprach leise. „Für manche Wesen ist das kein Irrtum.“
 
-Taron sah auf. "Fuer dich?"
+Taron sah auf. „Für dich?“
 
-Merlan schaute zwischen Taron und der leeren Luft neben ihm hin und her. Nicht laecherlich. Nicht mitleidig. Eher wie ein Mann, der eine unsichtbare Randnotiz endlich im Haupttext fand.
+Merlan schaute zwischen Taron und der leeren Luft neben ihm hin und her. Nicht lächerlich. Nicht mitleidig. Eher wie ein Mann, der eine unsichtbare Randnotiz endlich im Haupttext fand.
 
-"Taron", sagte er vorsichtig, "deine Stimme ist nicht nur ein Fluch, eine Einbildung oder eine besonders laestige Form von Gewissen."
+„Taron“, sagte er vorsichtig, „deine Stimme ist nicht nur ein Fluch, eine Einbildung oder eine besonders lästige Form von Gewissen.“
 
-"Das haette ich gern frueher schriftlich gehabt."
+„Das hätte ich gern früher schriftlich gehabt.“
 
-"Ich hatte keine ausreichenden Belege."
+„Ich hatte keine ausreichenden Belege.“
 
-"Wir alle mussten mit weniger arbeiten."
+„Wir alle mussten mit weniger arbeiten.“
 
-Merlan zog ein weiteres Blatt hervor. Darauf standen alte Begriffe: Hueter, Eidtraeger, Schutz, Loesung.
+Merlan zog ein weiteres Blatt hervor. Darauf standen alte Begriffe: Hüter, Eidträger, Schutz, Lösung.
 
-"Wenn diese Texte stimmen, dann war das Eidenschloss dazu da, gebundene Schutzmaechte von ihren Wirten zu loesen, wenn sie verdorben, missbraucht oder falsch gebunden waren."
+„Wenn diese Texte stimmen, dann war das Eidenschloss dazu da, gebundene Schutzmächte von ihren Wirten zu lösen, wenn sie verdorben, missbraucht oder falsch gebunden waren.“
 
-Merlan legte eine zweite Reihe Blaetter aus. Einige waren aus Ellingen, andere aus seinem eigenen Bestand. Er ordnete sie nicht nach Alter, sondern nach Widerspruch, was fuer Taron wie eine sehr gelehrte Form von Unordnung aussah.
+Merlan legte eine zweite Reihe Blätter aus. Einige waren aus Ellingen, andere aus seinem eigenen Bestand. Er ordnete sie nicht nach Alter, sondern nach Widerspruch, was für Taron wie eine sehr gelehrte Form von Unordnung aussah.
 
-"Hier steht, Loesung sei Gnade. Hier steht, Loesung sei Strafe. Hier steht, Loesung sei nur mit Zustimmung des Wirts erlaubt. Und hier", er tippte auf ein verbranntes Randstueck, "steht vermutlich, dass Zustimmung entbehrlich sei, wenn der Schutz selbst Gefahr wird."
+„Hier steht, Lösung sei Gnade. Hier steht, Lösung sei Strafe. Hier steht, Lösung sei nur mit Zustimmung des Wirts erlaubt. Und hier“, er tippte auf ein verbranntes Randstück, „steht vermutlich, dass Zustimmung entbehrlich sei, wenn der Schutz selbst Gefahr wird.“
 
-Der Erzaehler wurde kalt in Tarons Kopf.
+Der Erzähler wurde kalt in Tarons Kopf.
 
-"Das ist die Stelle, die er benutzt", sagte Taron.
+„Das ist die Stelle, die er benutzt“, sagte Taron.
 
-Merlan sah ihn an. "Wer?"
+Merlan sah ihn an. „Wer?“
 
 Taron wartete auf Schmerz, Verbot, Schweigen.
 
-Der Erzaehler sagte nur: "Sag: die andere Stimme."
+Der Erzähler sagte nur: „Sag: die andere Stimme.“
 
-"Die andere Stimme", sagte Taron.
+„Die andere Stimme“, sagte Taron.
 
-Brokk schloss die Augen. "Niemand."
+Brokk schloss die Augen. „Niemand.“
 
-"Wenn Niemand Rugar einredet, dass Schutz ohne Zustimmung erlaubt ist", sagte Elva, "dann kann er alles rechtfertigen."
+„Wenn Niemand Rugar einredet, dass Schutz ohne Zustimmung erlaubt ist“, sagte Elva, „dann kann er alles rechtfertigen.“
 
-"Ja", sagte Merlan. "Und wenn er die Schluessel bekommt, kann er aus Rechtfertigung Handlung machen."
+„Ja“, sagte Merlan. „Und wenn er die Schlüssel bekommt, kann er aus Rechtfertigung Handlung machen.“
 
-Brokk starrte ihn an. "Dann kann Rugar gerettet werden."
+Brokk starrte ihn an. „Dann kann Rugar gerettet werden.“
 
-"Vielleicht."
+„Vielleicht.“
 
 Taron kannte dieses Vielleicht inzwischen. Es war das Lieblingswort von Leuten, die einem eine Leiter in einen Brunnen reichten und unten nicht nachgesehen hatten, ob Schlangen darin lagen.
 
-"Und wenn der andere nicht gerettet werden will?", fragte Elva.
+„Und wenn der andere nicht gerettet werden will?“, fragte Elva.
 
-Merlan sah zum Schutzschluessel.
+Merlan sah zum Schutzschlüssel.
 
-"Dann oeffnen wir moeglicherweise seine Tuer."
+„Dann öffnen wir möglicherweise seine Tür.“
 
-Die Suppe kochte ueber.
+Die Suppe kochte über.
 
 Alle zuckten zusammen.
 
-Der Erzaehler sagte: "Ich begruesse diesen Beitrag der Kueche. Er fasst die Lage knapp zusammen."
+Der Erzähler sagte: „Ich begrüße diesen Beitrag der Küche. Er fasst die Lage knapp zusammen.“
 
 Merlan nahm den Topf vom Feuer. Niemand lachte, aber Taron merkte, dass alle wieder atmeten.
 
-In dieser Nacht schliefen sie nicht viel. Merlan schrieb, Brokk zeichnete Eidzeichen aus Erinnerung nach, Elva ordnete Ansels Abschriften, und Oswin stand am Fenster. Taron sass vor den drei Schalen und spuerte, dass die Schluessel einander kannten.
+In dieser Nacht schliefen sie nicht viel. Merlan schrieb, Brokk zeichnete Eidzeichen aus Erinnerung nach, Elva ordnete Ansels Abschriften, und Oswin stand am Fenster. Taron saß vor den drei Schalen und spürte, dass die Schlüssel einander kannten.
 
 Kurz nach Mitternacht begann die kleine Handglocke aus Ellingen in Tarons Beutel zu zittern.
 
-Sie gab keinen Ton von sich. Nur ein feines Beben, das durch Leder und Stoff bis in den Tisch wanderte. Merlan hob sofort den Kopf. Er sah nicht aus wie ein Mann, der geweckt wurde. Er sah aus wie ein Mann, der gehofft hatte, ein Problem warte bis zum Morgen, und nun persoenlich enttaeuscht wurde.
+Sie gab keinen Ton von sich. Nur ein feines Beben, das durch Leder und Stoff bis in den Tisch wanderte. Merlan hob sofort den Kopf. Er sah nicht aus wie ein Mann, der geweckt wurde. Er sah aus wie ein Mann, der gehofft hatte, ein Problem warte bis zum Morgen, und nun persönlich enttäuscht wurde.
 
-"Alle still", sagte er.
+„Alle still“, sagte er.
 
-"Ich war still", sagte Taron.
+„Ich war still“, sagte Taron.
 
-"Innerlich auch."
+„Innerlich auch.“
 
-"Das kann ich nicht versprechen."
+„Das kann ich nicht versprechen.“
 
-Der Erzaehler sagte nichts. Taron spuerte ihn wie eine Hand knapp vor einer Flamme.
+Der Erzähler sagte nichts. Taron spürte ihn wie eine Hand knapp vor einer Flamme.
 
-Die Schluessel bewegten sich wieder. Der Menschenschluessel drehte sich nach Osten. Der Zwergenschluessel nach Norden. Der Schutzschluessel blieb, wo er war. In der Kreideluecke nach Sueden erschien ein dunkler Punkt.
+Die Schlüssel bewegten sich wieder. Der Menschenschlüssel drehte sich nach Osten. Der Zwergenschlüssel nach Norden. Der Schutzschlüssel blieb, wo er war. In der Kreidelücke nach Süden erschien ein dunkler Punkt.
 
-Brokk beugte sich vor. "Waldkirch."
+Brokk beugte sich vor. „Waldkirch.“
 
-"Oder darunter", sagte Merlan.
+„Oder darunter“, sagte Merlan.
 
-Taron sah den Punkt wachsen. Er war kein Licht. Eher ein fehlendes Stueck Tisch.
+Taron sah den Punkt wachsen. Er war kein Licht. Eher ein fehlendes Stück Tisch.
 
-Fuer einen Augenblick hoerte er etwas aus weiter Ferne: kein Bruellen, kein Horn. Ein tiefes, hungriges Atmen unter Stein.
+Für einen Augenblick hörte er etwas aus weiter Ferne: kein Brüllen, kein Horn. Ein tiefes, hungriges Atmen unter Stein.
 
 Der Hunger von Waldkirch.
 
-Elva griff nach seiner Hand. "Taron?"
+Elva griff nach seiner Hand. „Taron?“
 
-"Er ist wach."
+„Er ist wach.“
 
 Niemand fragte, wer.
 
 Niemand musste.
 
-Gegen Morgen sagte Merlan: "Ihr muesst nach Waldkirch."
+Gegen Morgen sagte Merlan: „Ihr müsst nach Waldkirch.“
 
-Vorher schrieb er drei Abschriften derselben Warnung. Eine fuer Waldkirch, eine fuer Ellingen, eine fuer Karndorn, falls Karndorn jemals wieder bereit war, Papier aus Menschenhand nicht sofort als Beleidigung zu betrachten. Jede begann anders und endete gleich: Kein Schutz ohne Zustimmung.
+Vorher schrieb er drei Abschriften derselben Warnung. Eine für Waldkirch, eine für Ellingen, eine für Karndorn, falls Karndorn jemals wieder bereit war, Papier aus Menschenhand nicht sofort als Beleidigung zu betrachten. Jede begann anders und endete gleich: Kein Schutz ohne Zustimmung.
 
-"Das ist der Kern?", fragte Elva.
+„Das ist der Kern?“, fragte Elva.
 
-"Im Moment", sagte Merlan. "Kerne haben die unangenehme Eigenschaft, spaeter Baeume zu werden."
+„Im Moment“, sagte Merlan. „Kerne haben die unangenehme Eigenschaft, später Bäume zu werden.“
 
-"Und wenn Albrecht die Warnung verbrennen laesst?", fragte Taron.
+„Und wenn Albrecht die Warnung verbrennen lässt?“, fragte Taron.
 
-"Dann habe ich noch zwei."
+„Dann habe ich noch zwei.“
 
-"Und wenn Rugar sie verbrennen laesst?"
+„Und wenn Rugar sie verbrennen lässt?“
 
-"Dann hat Ansel vermutlich eine vierte, die sie mir aus Misstrauen nicht gezeigt hat."
+„Dann hat Ansel vermutlich eine vierte, die sie mir aus Misstrauen nicht gezeigt hat.“
 
-Der Erzaehler sagte: "Ich schaetze diese Frau zunehmend."
+Der Erzähler sagte: „Ich schätze diese Frau zunehmend.“
 
-Merlan packte die Blaetter in Wachstuch. Seine Haende zitterten nicht. Das fiel Taron auf. Merlan hatte Angst, sicher. Aber er war in seinem eigenen Gebiet angekommen: Worte gegen falsche Worte, Abschriften gegen Luecken, Tinte gegen Blut, soweit Tinte es eben schaffte.
+Merlan packte die Blätter in Wachstuch. Seine Hände zitterten nicht. Das fiel Taron auf. Merlan hatte Angst, sicher. Aber er war in seinem eigenen Gebiet angekommen: Worte gegen falsche Worte, Abschriften gegen Lücken, Tinte gegen Blut, soweit Tinte es eben schaffte.
 
-Bevor er die Tasche schloss, holte Merlan noch eine schmale Holzschachtel aus einem Regal. Sie war mit drei Draehten versiegelt und mit so vielen Warnzeichen beschriftet, dass Taron sofort einen Schritt zuruecktrat.
+Bevor er die Tasche schloss, holte Merlan noch eine schmale Holzschachtel aus einem Regal. Sie war mit drei Drähten versiegelt und mit so vielen Warnzeichen beschriftet, dass Taron sofort einen Schritt zurücktrat.
 
-"Was ist das?"
+„Was ist das?“
 
-"Rauchkugel."
+„Rauchkugel.“
 
-"Singular?"
+„Singular?“
 
-"Ja."
+„Ja.“
 
-"Warum klingt Singular bei dir wie eine Drohung?"
+„Warum klingt Singular bei dir wie eine Drohung?“
 
-Merlan legte die Schachtel auf den Tisch. "Weil ich nur eine habe. Sie ist selten, teuer, unberechenbar in feuchten Kellern und fuer gewoehnliche Menschen von Magie kaum zu unterscheiden."
+Merlan legte die Schachtel auf den Tisch. „Weil ich nur eine habe. Sie ist selten, teuer, unberechenbar in feuchten Kellern und für gewöhnliche Menschen von Magie kaum zu unterscheiden.“
 
-Oswin trat naeher. Zum ersten Mal an diesem Abend sah er nicht gelangweilt von Wissenschaft aus. "Wirkung?"
+Oswin trat näher. Zum ersten Mal an diesem Abend sah er nicht gelangweilt von Wissenschaft aus. „Wirkung?“
 
-"Sichtblockade. Reizung der Augen. Orientierungslosigkeit. Kein Feuer, sofern niemand grob dumm ist."
+„Sichtblockade. Reizung der Augen. Orientierungslosigkeit. Kein Feuer, sofern niemand grob dumm ist.“
 
-Taron sah auf die Schachtel. "Wir sind mehrere Leute."
+Taron sah auf die Schachtel. „Wir sind mehrere Leute.“
 
-"Dann ist Vorsicht angezeigt."
+„Dann ist Vorsicht angezeigt.“
 
 Oswin nahm die Schachtel nicht. Er betrachtete sie wie ein erfahrener Mann, der auf einem Schlachtfeld gerade ein kleines Wetter gefunden hatte.
 
-"Wie lange?"
+„Wie lange?“
 
-"Vielleicht eine Viertelstunde in geschlossenen Raeumen. Weniger im Wind."
+„Vielleicht eine Viertelstunde in geschlossenen Räumen. Weniger im Wind.“
 
-"Kann man damit einen Rueckzug decken?"
+„Kann man damit einen Rückzug decken?“
 
-"Ja."
+„Ja.“
 
-"Kann man damit eine Schlacht gewinnen?"
+„Kann man damit eine Schlacht gewinnen?“
 
-Merlan sah ihn ueber die Brille hinweg an. "Wer versucht, eine Schlacht mit Rauch zu gewinnen, hat meistens den Begriff Schlacht nicht ausreichend verstanden."
+Merlan sah ihn über die Brille hinweg an. „Wer versucht, eine Schlacht mit Rauch zu gewinnen, hat meistens den Begriff Schlacht nicht ausreichend verstanden.“
 
-Oswin nickte. "Gut."
+Oswin nickte. „Gut.“
 
-Taron war ueberrascht. "Gut?"
+Taron war überrascht. „Gut?“
 
-"Er weiss, was sie nicht kann."
+„Er weiß, was sie nicht kann.“
 
-Der Erzaehler sagte: "Ritterliche Anerkennung fuer begrenzte Chemie. Die Zivilisation taumelt voran."
+Der Erzähler sagte: „Ritterliche Anerkennung für begrenzte Chemie. Die Zivilisation taumelt voran.“
 
 Merlan gab Taron die Schachtel.
 
-Taron nahm sie nicht sofort. "Warum ich?"
+Taron nahm sie nicht sofort. „Warum ich?“
 
-"Weil Oswin sie zu frueh taktisch einsetzen wuerde, Brokk sie fuer zu zwergisch wertvoll halten koennte, Elva bereits den kluegeren Teil dieser Gruppe traegt, und du eine bemerkenswerte Begabung hast, Dinge genau so lange nicht zu benutzen, bis alle nervoes werden."
+„Weil Oswin sie zu früh taktisch einsetzen würde, Brokk sie für zu zwergisch wertvoll halten könnte, Elva bereits den klügeren Teil dieser Gruppe trägt, und du eine bemerkenswerte Begabung hast, Dinge genau so lange nicht zu benutzen, bis alle nervös werden.“
 
-"Das war sehr spezifisch beleidigend."
+„Das war sehr spezifisch beleidigend.“
 
-"Danke."
+„Danke.“
 
-Elva nahm die Schachtel, steckte sie in Tarons Beutel und zog den Riemen fest. "Er verliert sie sonst beim Nachdenken."
+Elva nahm die Schachtel, steckte sie in Tarons Beutel und zog den Riemen fest. „Er verliert sie sonst beim Nachdenken.“
 
-"Ich stehe direkt hier."
+„Ich stehe direkt hier.“
 
-"Eben."
+„Eben.“
 
-Oswin sah Taron ernst an. "Nicht werfen, weil du Angst hast."
+Oswin sah Taron ernst an. „Nicht werfen, weil du Angst hast.“
 
-"Ich werfe vieles wegen Angst."
+„Ich werfe vieles wegen Angst.“
 
-"Dann lern den Unterschied."
+„Dann lern den Unterschied.“
 
-"Zwischen?"
+„Zwischen?“
 
-"Angst, die dich retten will, und Angst, die nur Bewegung braucht."
+„Angst, die dich retten will, und Angst, die nur Bewegung braucht.“
 
-Der Satz blieb auf dem Tisch liegen, schwerer als die Schachtel. Taron nickte, ohne eine spitze Antwort zu finden. Der Erzaehler haette eine gehabt, sagte sie aber nicht.
+Der Satz blieb auf dem Tisch liegen, schwerer als die Schachtel. Taron nickte, ohne eine spitze Antwort zu finden. Der Erzähler hätte eine gehabt, sagte sie aber nicht.
 
 Das machte sie leider wichtiger.
 
-Oswin sah aus dem Fenster. "Wenn wir nach Waldkirch gehen, laufen wir zwischen beide Heere."
+Oswin sah aus dem Fenster. „Wenn wir nach Waldkirch gehen, laufen wir zwischen beide Heere.“
 
-"Ja", sagte Brokk.
+„Ja“, sagte Brokk.
 
-"Gut."
+„Gut.“
 
-Taron sah ihn an. "Gut?"
+Taron sah ihn an. „Gut?“
 
-"Dann sehen beide Seiten, wen sie fast erschlagen."
+„Dann sehen beide Seiten, wen sie fast erschlagen.“
 
 Der Satz war trocken, aber nicht leicht. Niemand lachte.
 
-Merlan verschloss seine Tasche. "Dann sollten wir aufbrechen, bevor die Geschichte ohne uns weiterarbeitet. Sie zeigt in letzter Zeit wenig Talent."
+Merlan verschloss seine Tasche. „Dann sollten wir aufbrechen, bevor die Geschichte ohne uns weiterarbeitet. Sie zeigt in letzter Zeit wenig Talent.“
 
-"Natuerlich", sagte Taron. "Warum sollte der Ort, an dem alles begann, sich auch nur einmal aus etwas heraushalten?"
+„Natürlich“, sagte Taron. „Warum sollte der Ort, an dem alles begann, sich auch nur einmal aus etwas heraushalten?“
 
-"Unter Waldkirch liegt der Eidstein."
+„Unter Waldkirch liegt der Eidstein.“
 
-Der Erzaehler flüsterte: "Und er ist wach geworden."
+Der Erzähler flüsterte: „Und er ist wach geworden.“
 
 Diesmal fragte Taron nicht, woher er das wusste.
 
-Er fuerchtete, die Antwort zu kennen.
+Er fürchtete, die Antwort zu kennen.
 
-Merlan loeschte die Lampe nicht. Er stellte sie ans Fenster, als koenne ein kleines Licht Hohensteg davon ueberzeugen, noch einen Morgen laenger gewoehnlich zu bleiben.
+Merlan löschte die Lampe nicht. Er stellte sie ans Fenster, als könne ein kleines Licht Hohensteg davon überzeugen, noch einen Morgen länger gewöhnlich zu bleiben.
 
-Niemand im Raum glaubte daran. Trotzdem liess es keiner ausblasen.
+Niemand im Raum glaubte daran. Trotzdem ließ es keiner ausblasen.
 
-Manche Zeichen waren nur deshalb nuetzlich, weil jemand sie stehen liess.
+Manche Zeichen waren nur deshalb nützlich, weil jemand sie stehen ließ.
 
-Taron nahm sich vor, das Licht nicht als Hoffnung zu bezeichnen. Hoffnung war ihm zu gross. Aber er sah trotzdem hin, bevor sie gingen.
+Taron nahm sich vor, das Licht nicht als Hoffnung zu bezeichnen. Hoffnung war ihm zu groß. Aber er sah trotzdem hin, bevor sie gingen.

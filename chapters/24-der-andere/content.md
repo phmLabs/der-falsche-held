@@ -1,439 +1,439 @@
 Sie erreichten einen verlassenen Wachhof kurz vor Waldkirch und blieben dort nur, weil Merlan drohte, im Gehen umzufallen und seine Notizen dabei unordentlich zu verstreuen.
 
-Der Hof war vor Jahren aufgegeben worden. Die Tuer hing schief, die Stallraufe war leer, und im Brunnen lag Laub. Oswin pruefte jeden Raum, Brokk jeden Stein im Hof, Elva die Vorratskammer. Sie fand drei harte Rueben und eine Mausfalle.
+Der Hof war vor Jahren aufgegeben worden. Die Tür hing schief, die Stallraufe war leer, und im Brunnen lag Laub. Oswin prüfte jeden Raum, Brokk jeden Stein im Hof, Elva die Vorratskammer. Sie fand drei harte Rüben und eine Mausfalle.
 
-Der Wachhof hatte einmal an der alten Handelsstrasse gelegen. Man sah es noch an den breiten Torpfosten und an den Ringen in der Mauer, an denen frueher Pferde, Ochsen und vermutlich auch sehr eigensinnige Esel angebunden worden waren. Jetzt wuchs Gras zwischen den Pflastersteinen. Die Strasse selbst war jenseits des Hofes nur noch eine hellere Narbe im Boden.
+Der Wachhof hatte einmal an der alten Handelsstraße gelegen. Man sah es noch an den breiten Torpfosten und an den Ringen in der Mauer, an denen früher Pferde, Ochsen und vermutlich auch sehr eigensinnige Esel angebunden worden waren. Jetzt wuchs Gras zwischen den Pflastersteinen. Die Straße selbst war jenseits des Hofes nur noch eine hellere Narbe im Boden.
 
-"Warum ist der aufgegeben?", fragte Taron.
+„Warum ist der aufgegeben?“, fragte Taron.
 
-Oswin sah in den leeren Stall. "Nach dem Krieg lohnte die Strasse nicht mehr. Haendler nahmen den Umweg ueber Hohensteg oder kamen gar nicht."
+Oswin sah in den leeren Stall. „Nach dem Krieg lohnte die Straße nicht mehr. Händler nahmen den Umweg über Hohensteg oder kamen gar nicht.“
 
-"Und Waldkirch wunderte sich spaeter ueber Hunger."
+„Und Waldkirch wunderte sich später über Hunger.“
 
-"Waldkirch wunderte sich nicht", sagte Oswin. "Es suchte Schuld."
+„Waldkirch wunderte sich nicht“, sagte Oswin. „Es suchte Schuld.“
 
-Brokk hob aus dem Brunnen einen alten Eimer, in dem nur Schlamm lag. "Karndorn auch."
+Brokk hob aus dem Brunnen einen alten Eimer, in dem nur Schlamm lag. „Karndorn auch.“
 
 Sie sagten beide nichts weiter. Der Satz reichte, und er war schwer genug.
 
-"Die Falle ist leer", sagte sie.
+„Die Falle ist leer“, sagte sie.
 
-"Ein Zeichen kluger Maeuse", sagte der Erzaehler.
+„Ein Zeichen kluger Mäuse“, sagte der Erzähler.
 
-Taron sass auf einer Bank und hielt den Pergamentstreifen seines Vorfahren in der Hand. Trau der Stimme. Er war mein Freund.
+Taron saß auf einer Bank und hielt den Pergamentstreifen seines Vorfahren in der Hand. Trau der Stimme. Er war mein Freund.
 
-Die Bank stand in der alten Wachstube. In die Tischplatte waren Namen geritzt: Grenzer, Fuhrleute, ein paar derbe Woerter, die Taron mit Interesse und Elva mit hochgezogener Braue las. Zwischen all dem fand sich wieder der kleine Vogelkopf. Diesmal war er mit Absicht versteckt, in den Winkel eines Buchstabens gesetzt.
+Die Bank stand in der alten Wachstube. In die Tischplatte waren Namen geritzt: Grenzer, Fuhrleute, ein paar derbe Wörter, die Taron mit Interesse und Elva mit hochgezogener Braue las. Zwischen all dem fand sich wieder der kleine Vogelkopf. Diesmal war er mit Absicht versteckt, in den Winkel eines Buchstabens gesetzt.
 
-"Arven war hier auch", sagte Taron.
+„Arven war hier auch“, sagte Taron.
 
-Der Erzaehler schwieg so, dass Taron die Antwort schon kannte.
+Der Erzähler schwieg so, dass Taron die Antwort schon kannte.
 
-"Wie oft war mein Vorfahr an Orten, die zufaellig wichtig werden?"
+„Wie oft war mein Vorfahr an Orten, die zufällig wichtig werden?“
 
-"Seltener, als es wirkt. Wichtige Orte sind aufdringlich. Sie draengen sich in Rueckblicke."
+„Seltener, als es wirkt. Wichtige Orte sind aufdringlich. Sie drängen sich in Rückblicke.“
 
-"Das ist keine Zahl."
+„Das ist keine Zahl.“
 
-"Eine Zahl wuerde dich nur zu weiteren Fragen ermutigen."
+„Eine Zahl würde dich nur zu weiteren Fragen ermutigen.“
 
-"Du hast mich kennengelernt?"
+„Du hast mich kennengelernt?“
 
-"Leider."
+„Leider.“
 
-"Wie hiess er?", fragte Taron.
+„Wie hieß er?“, fragte Taron.
 
-Der Erzaehler schwieg.
+Der Erzähler schwieg.
 
-"Das darfst du doch sagen."
+„Das darfst du doch sagen.“
 
-"Arven Falkenried."
+„Arven Falkenried.“
 
-Der Name fuehlte sich fremd an und trotzdem nicht leer.
+Der Name fühlte sich fremd an und trotzdem nicht leer.
 
-Merlan hob den Kopf. "Arven gilt als Mitgruender der Hueter von Abendriss."
+Merlan hob den Kopf. „Arven gilt als Mitgründer der Hüter von Abendriss.“
 
-"Natuerlich gilt er das", sagte Taron. "In meiner Familie waere es auch zu viel verlangt, einfach nur einmal ordentlich Kartoffeln angebaut zu haben."
+„Natürlich gilt er das“, sagte Taron. „In meiner Familie wäre es auch zu viel verlangt, einfach nur einmal ordentlich Kartoffeln angebaut zu haben.“
 
-Brokk kam vom Hof herein. "Falkenried stahl den Menschenschluessel?"
+Brokk kam vom Hof herein. „Falkenried stahl den Menschenschlüssel?“
 
-Merlan schob die Brille hoeher. "Nach einigen menschlichen Chroniken bewahrte er ihn."
+Merlan schob die Brille höher. „Nach einigen menschlichen Chroniken bewahrte er ihn.“
 
-"Das ist dasselbe mit besserem Siegel."
+„Das ist dasselbe mit besserem Siegel.“
 
-"Oft, ja."
+„Oft, ja.“
 
-Taron sah auf den Streifen. "Warum schrieb er, ich soll dir trauen?"
+Taron sah auf den Streifen. „Warum schrieb er, ich soll dir trauen?“
 
-Der Erzaehler antwortete lange nicht.
+Der Erzähler antwortete lange nicht.
 
-Dann sagte er: "Weil er am Ende nicht mehr sicher war, ob er mir noch trauen durfte."
+Dann sagte er: „Weil er am Ende nicht mehr sicher war, ob er mir noch trauen durfte.“
 
 Das war keine beruhigende Antwort. Sie war aber ehrlich genug, um weh zu tun.
 
-Taron legte den Streifen auf den Tisch. "Was hast du getan?"
+Taron legte den Streifen auf den Tisch. „Was hast du getan?“
 
-"Ich rettete ihn."
+„Ich rettete ihn.“
 
-"Das klingt nach einer absichtlich unvollstaendigen Antwort."
+„Das klingt nach einer absichtlich unvollständigen Antwort.“
 
-"Ja."
+„Ja.“
 
-Elva verschraenkte die Arme. "Wenn Rettung dazu fuehrt, dass jemand einem nicht mehr traut, war es vermutlich keine einfache Rettung."
+Elva verschränkte die Arme. „Wenn Rettung dazu führt, dass jemand einem nicht mehr traut, war es vermutlich keine einfache Rettung.“
 
-Der Erzaehler sagte: "Kuechenlogik ist eine unterschaetzte Disziplin."
+Der Erzähler sagte: „Küchenlogik ist eine unterschätzte Disziplin.“
 
-"Antwort", sagte Taron.
+„Antwort“, sagte Taron.
 
-Die Stimme wurde leiser. "Arven wollte den Menschenschluessel nicht nur verstecken. Er wollte ihn zerstoeren."
+Die Stimme wurde leiser. „Arven wollte den Menschenschlüssel nicht nur verstecken. Er wollte ihn zerstören.“
 
-Merlan gab ein ersticktes Geraeusch von sich. "Das waere wahrscheinlich unmoeglich gewesen."
+Merlan gab ein ersticktes Geräusch von sich. „Das wäre wahrscheinlich unmöglich gewesen.“
 
-"Er wusste das nicht", sagte der Erzaehler. "Er wusste nur, dass Koenige ihn wollten, Zwerge ihn suchten und ein gebundener Schutz am Hof bereits begann, Menschen als Hindernisse zu betrachten."
+„Er wusste das nicht“, sagte der Erzähler. „Er wusste nur, dass Könige ihn wollten, Zwerge ihn suchten und ein gebundener Schutz am Hof bereits begann, Menschen als Hindernisse zu betrachten.“
 
-"Und du hast ihn aufgehalten."
+„Und du hast ihn aufgehalten.“
 
-"Ja."
+„Ja.“
 
-"Wie?"
+„Wie?“
 
 Diesmal kam keine Antwort.
 
-Taron sah auf seine eigenen Haende. "Gegen seinen Willen."
+Taron sah auf seine eigenen Hände. „Gegen seinen Willen.“
 
-"Ja."
+„Ja.“
 
 Das Wort schnitt sauber durch den Raum.
 
-Brokk sah zum Erzaehler, obwohl er ihn nicht sehen konnte. "Dann kennst du den Rand."
+Brokk sah zum Erzähler, obwohl er ihn nicht sehen konnte. „Dann kennst du den Rand.“
 
-"Ja", sagte Taron fuer die Stimme.
+„Ja“, sagte Taron für die Stimme.
 
-Oswin stand am Fenster. "Und der andere hat ihn ueberschritten."
+Oswin stand am Fenster. „Und der andere hat ihn überschritten.“
 
-Der Erzaehler antwortete nicht.
+Der Erzähler antwortete nicht.
 
 Niemand brauchte es.
 
-Merlan breitete die Ellinger Abschriften auf einem Fass aus. "Wenn Arven den Schluessel aus einer koeniglichen Verwahrung nahm, tat er es vermutlich, weil der Schutzdaemon des damaligen Hofes bereits Einfluss nahm."
+Merlan breitete die Ellinger Abschriften auf einem Fass aus. „Wenn Arven den Schlüssel aus einer königlichen Verwahrung nahm, tat er es vermutlich, weil der Schutzdämon des damaligen Hofes bereits Einfluss nahm.“
 
-Merlan zeichnete eine Linie von Arvens Namen zu Abendriss, dann zu Waldkirch, dann zu Riedwacht. Die Karte war grob, aber die Richtung stimmte zu gut. Taron sah die Punkte und bekam das unangenehme Gefuehl, dass sein Leben auf einer alten Karte schon lange als leerer Platz vorgesehen war.
+Merlan zeichnete eine Linie von Arvens Namen zu Abendriss, dann zu Waldkirch, dann zu Riedwacht. Die Karte war grob, aber die Richtung stimmte zu gut. Taron sah die Punkte und bekam das unangenehme Gefühl, dass sein Leben auf einer alten Karte schon lange als leerer Platz vorgesehen war.
 
-"Arven brachte den Menschenschluessel nach Abendriss", sagte Merlan. "Die Hueter bauten keine Schatzkammer. Sie bauten eine Pruefung, die jeden abschrecken sollte, der nach Besitz suchte."
+„Arven brachte den Menschenschlüssel nach Abendriss“, sagte Merlan. „Die Hüter bauten keine Schatzkammer. Sie bauten eine Prüfung, die jeden abschrecken sollte, der nach Besitz suchte.“
 
-"Hat hervorragend funktioniert", sagte Taron. "Ich suchte nicht nach Besitz und wurde trotzdem fast umgebracht."
+„Hat hervorragend funktioniert“, sagte Taron. „Ich suchte nicht nach Besitz und wurde trotzdem fast umgebracht.“
 
-"Pruefungen altern schlecht", sagte Merlan. "Sie verwechseln Zweck mit Gewohnheit."
+„Prüfungen altern schlecht“, sagte Merlan. „Sie verwechseln Zweck mit Gewohnheit.“
 
-Der Erzaehler sagte: "Ein Satz, der in jedem Orden verboten gehoeren wuerde, also vermutlich richtig ist."
+Der Erzähler sagte: „Ein Satz, der in jedem Orden verboten gehören würde, also vermutlich richtig ist.“
 
-Brokk nickte langsam. "Der andere."
+Brokk nickte langsam. „Der andere.“
 
 Das Wort machte den Raum enger.
 
-Elva setzte sich neben Taron. "Was ist er?"
+Elva setzte sich neben Taron. „Was ist er?“
 
-Der Erzaehler sprach so leise, dass Taron die Worte fast nicht wiederholen konnte. "Ein Schutzdaemon, der entschied, dass Schutz ohne Zustimmung wirksamer sei."
+Der Erzähler sprach so leise, dass Taron die Worte fast nicht wiederholen konnte. „Ein Schutzdämon, der entschied, dass Schutz ohne Zustimmung wirksamer sei.“
 
-Merlan schrieb mit, dann hielt er inne. "Das ist eine gefaehrliche Theologie."
+Merlan schrieb mit, dann hielt er inne. „Das ist eine gefährliche Theologie.“
 
-"Es ist eine gefaehrliche Praxis", sagte Oswin vom Fenster.
+„Es ist eine gefährliche Praxis“, sagte Oswin vom Fenster.
 
-Der Erzaehler fuhr fort. "Er wurde gebunden, dann gebannt, dann halb vergessen. Vergessen ist fuer solche Wesen kein Tod. Es ist ein Raum ohne Licht, in dem Gedanken weitergehen."
+Der Erzähler fuhr fort. „Er wurde gebunden, dann gebannt, dann halb vergessen. Vergessen ist für solche Wesen kein Tod. Es ist ein Raum ohne Licht, in dem Gedanken weitergehen.“
 
-"Wer bannte ihn?", fragte Elva.
+„Wer bannte ihn?“, fragte Elva.
 
-Der Erzaehler schwieg.
+Der Erzähler schwieg.
 
 Taron wartete. Nicht trotzig. Geduldig genug, dass die Stimme vielleicht einen Weg fand.
 
-"Viele", sagte der Erzaehler schliesslich. "Nicht Helden. Muede Leute. Schreiber. Binder. Hauptleute. Eine Koenigin ohne Krone. Ein Zwerg, der seinen Hammer niederlegte. Arven spaeter nicht, aber er erbte ihre Angst."
+„Viele“, sagte der Erzähler schließlich. „Nicht Helden. Müde Leute. Schreiber. Binder. Hauptleute. Eine Königin ohne Krone. Ein Zwerg, der seinen Hammer niederlegte. Arven später nicht, aber er erbte ihre Angst.“
 
 Merlan schrieb so schnell, dass seine Feder kratzte.
 
-"Keine Namen?", fragte Taron.
+„Keine Namen?“, fragte Taron.
 
-"Namen ziehen an."
+„Namen ziehen an.“
 
-Brokk nickte langsam. "Darum entfernten sie sie."
+Brokk nickte langsam. „Darum entfernten sie sie.“
 
-"Darum entfernte er sie spaeter auch", sagte der Erzaehler. "Wenn nur noch Funktionen bleiben, kann man Menschen leichter ersetzen."
+„Darum entfernte er sie später auch“, sagte der Erzähler. „Wenn nur noch Funktionen bleiben, kann man Menschen leichter ersetzen.“
 
-Taron dachte an "Auserwaehlter". An "Opfer". An "Traeger". Alles Worte, die sehr nuetzlich wurden, sobald niemand mehr Taron sagen wollte.
+Taron dachte an „Auserwählter“. An „Opfer“. An „Träger“. Alles Worte, die sehr nützlich wurden, sobald niemand mehr Taron sagen wollte.
 
-Taron dachte an Rugar. An Niemand. An einen Koenig, der einst Kinder aus brennenden Staellen getragen hatte und spaeter Glocken aus Staedten holen liess.
+Taron dachte an Rugar. An Niemand. An einen König, der einst Kinder aus brennenden Ställen getragen hatte und später Glocken aus Städten holen ließ.
 
-"Er hat Rugar nicht einfach belogen", sagte Taron.
+„Er hat Rugar nicht einfach belogen“, sagte Taron.
 
-"Nein."
+„Nein.“
 
-"Er hat ihm gegeben, was wie Schutz aussah."
+„Er hat ihm gegeben, was wie Schutz aussah.“
 
-"Ja."
+„Ja.“
 
-Brokk setzte sich schwer. "Karndorn hungerte nach den Kriegen. Unsere unteren Hallen waren gebrochen. Menschen sperrten Wege, Haendler kamen nicht mehr. Rugar wollte sein Volk schuetzen."
+Brokk setzte sich schwer. „Karndorn hungerte nach den Kriegen. Unsere unteren Hallen waren gebrochen. Menschen sperrten Wege, Händler kamen nicht mehr. Rugar wollte sein Volk schützen.“
 
-"Und Niemand sagte ihm, wie", sagte Elva.
+„Und Niemand sagte ihm, wie“, sagte Elva.
 
 Brokk nickte.
 
-Merlan zog eine Linie zwischen den drei Schluesseln auf seiner Skizze. "Der andere braucht alle drei Schluessel, um frei zu werden. Aber er braucht auch einen Moment, in dem die Voelker einander so sehr fuerchten, dass niemand den Vorgang aufhaelt."
+Merlan zog eine Linie zwischen den drei Schlüsseln auf seiner Skizze. „Der andere braucht alle drei Schlüssel, um frei zu werden. Aber er braucht auch einen Moment, in dem die Völker einander so sehr fürchten, dass niemand den Vorgang aufhält.“
 
-"Warum nicht einfach heimlich?", fragte Taron.
+„Warum nicht einfach heimlich?“, fragte Taron.
 
-Merlan sah auf. "Weil das Eidenschloss nicht nur Mechanik ist. Es braucht Zustimmung, Ersatz fuer Zustimmung oder einen Bruch, der stark genug ist, Zustimmung zu uebertoenen."
+Merlan sah auf. „Weil das Eidenschloss nicht nur Mechanik ist. Es braucht Zustimmung, Ersatz für Zustimmung oder einen Bruch, der stark genug ist, Zustimmung zu übertönen.“
 
-"Eine Schlacht", sagte Oswin.
+„Eine Schlacht“, sagte Oswin.
 
-"Angst von beiden Seiten", sagte Elva.
+„Angst von beiden Seiten“, sagte Elva.
 
-"Blut im richtigen Stein", sagte Brokk.
+„Blut im richtigen Stein“, sagte Brokk.
 
 Alle sahen ihn an.
 
-Er verzog keine Miene. "So reden alte Bindertexte."
+Er verzog keine Miene. „So reden alte Bindertexte.“
 
-"Ich moechte alte Bindertexte sehr ungern kennenlernen", sagte Taron.
+„Ich möchte alte Bindertexte sehr ungern kennenlernen“, sagte Taron.
 
-"Zu spaet", sagte der Erzaehler.
+„Zu spät“, sagte der Erzähler.
 
-"Eine Schlacht", sagte Oswin.
+„Eine Schlacht“, sagte Oswin.
 
-Draussen bewegte sich etwas.
+Draußen bewegte sich etwas.
 
 Oswin hob die Hand. Alle wurden still.
 
-Hufschlaege. Viele.
+Hufschläge. Viele.
 
 Nicht von Norden. Von Westen.
 
-Ein Junge in Waldkircher Farben ritt in den Hof, rutschte fast vom Pferd und starrte die Gruppe an, als sei die Welt noch schlechter organisiert, als er befuerchtet hatte.
+Ein Junge in Waldkircher Farben ritt in den Hof, rutschte fast vom Pferd und starrte die Gruppe an, als sei die Welt noch schlechter organisiert, als er befürchtet hatte.
 
-Er war kaum aelter als Taron gewesen war, als die Stimme verstummte. Sein Helm sass zu tief, sein Wappenrock war falsch geknoepft, und sein Pferd schaeumte vor Erschoepfung. Oswin war bei ihm, bevor der Junge ganz fiel, und fing ihn am Arm.
+Er war kaum älter als Taron gewesen war, als die Stimme verstummte. Sein Helm saß zu tief, sein Wappenrock war falsch geknöpft, und sein Pferd schäumte vor Erschöpfung. Oswin war bei ihm, bevor der Junge ganz fiel, und fing ihn am Arm.
 
-"Langsam. Atmen. Wer schickt dich?"
+„Langsam. Atmen. Wer schickt dich?“
 
-"Hauptmann Greve. Nein, der Koenig. Also Greve im Namen des Koenigs." Der Junge sah Brokk wieder und verlor den Faden. "Das ist ein Zwerg."
+„Hauptmann Greve. Nein, der König. Also Greve im Namen des Königs.“ Der Junge sah Brokk wieder und verlor den Faden. „Das ist ein Zwerg.“
 
-"Mehrere", sagte Taron. "Wir versuchen, uns davon nicht aufhalten zu lassen."
+„Mehrere“, sagte Taron. „Wir versuchen, uns davon nicht aufhalten zu lassen.“
 
-Der Junge verstand den Satz nicht. Das war vernuenftig von ihm.
+Der Junge verstand den Satz nicht. Das war vernünftig von ihm.
 
-"Herr Oswin", keuchte er. "Die Zwerge marschieren. Koenig Albrecht sammelt alles, was eine Waffe tragen kann."
+„Herr Oswin“, keuchte er. „Die Zwerge marschieren. König Albrecht sammelt alles, was eine Waffe tragen kann.“
 
 Taron schloss die Hand um den Pergamentstreifen.
 
-"Und Rugar?", fragte Brokk.
+„Und Rugar?“, fragte Brokk.
 
-Der Junge sah den Zwerg und wurde bleich. "Der Zwergenkoenig fuehrt sie selbst."
+Der Junge sah den Zwerg und wurde bleich. „Der Zwergenkönig führt sie selbst.“
 
-Der Erzaehler sagte: "Dann hat der andere seine Buehne."
+Der Erzähler sagte: „Dann hat der andere seine Bühne.“
 
-"Und wir?", fragte Taron.
+„Und wir?“, fragte Taron.
 
-"Wir sind bedauerlicherweise eingeladen."
+„Wir sind bedauerlicherweise eingeladen.“
 
 Taron stand auf.
 
-Er war kein Held. Nicht richtig. Nicht so, wie Waldkirch ihn brauchte, nicht so, wie alte Texte es behaupteten, nicht so, wie Lieder spaeter luegen wuerden.
+Er war kein Held. Nicht richtig. Nicht so, wie Waldkirch ihn brauchte, nicht so, wie alte Texte es behaupteten, nicht so, wie Lieder später lügen würden.
 
-Aber er hatte drei Schluessel in seiner Naehe, eine Warnung in seinem Mantel und genug Wut, um nicht mehr nur weglaufen zu wollen.
+Aber er hatte drei Schlüssel in seiner Nähe, eine Warnung in seinem Mantel und genug Wut, um nicht mehr nur weglaufen zu wollen.
 
-Er steckte Arvens Streifen zurueck in die geheime Tasche. Diesmal tat er es bewusst. Nicht als Versteck, sondern als Antwort. Wenn sein Vorfahr diesen Mantel fuer spaeter vorbereitet hatte, dann war spaeter nun ein sehr unordentlicher Raum mit zu vielen Waffen.
+Er steckte Arvens Streifen zurück in die geheime Tasche. Diesmal tat er es bewusst. Nicht als Versteck, sondern als Antwort. Wenn sein Vorfahr diesen Mantel für später vorbereitet hatte, dann war später nun ein sehr unordentlicher Raum mit zu vielen Waffen.
 
-"Ich brauche ein Pferd", sagte Taron.
+„Ich brauche ein Pferd“, sagte Taron.
 
-Oswin sah ihn an. "Du kannst kaum reiten."
+Oswin sah ihn an. „Du kannst kaum reiten.“
 
-"Dann brauche ich ein geduldiges Pferd."
+„Dann brauche ich ein geduldiges Pferd.“
 
-"Du hast Kummer."
+„Du hast Kummer.“
 
-"Ich sagte geduldig, nicht moralisch ueberlegen."
+„Ich sagte geduldig, nicht moralisch überlegen.“
 
-Elva nahm die drei Rueben aus der Vorratskammer und steckte sie ein. "Fuer unterwegs."
+Elva nahm die drei Rüben aus der Vorratskammer und steckte sie ein. „Für unterwegs.“
 
 Merlan sah sie an.
 
-"Was?", sagte sie. "Wenn die Welt untergeht, soll sie nicht mit leeren Taschen untergehen."
+„Was?“, sagte sie. „Wenn die Welt untergeht, soll sie nicht mit leeren Taschen untergehen.“
 
-Brokk ging zum Hof hinaus. "Nach Waldkirch schnell. Aber nicht auf der Hauptstrasse. Rugar wird sie nehmen."
+Brokk ging zum Hof hinaus. „Nach Waldkirch schnell. Aber nicht auf der Hauptstraße. Rugar wird sie nehmen.“
 
-"Und Albrecht wird sie bewachen", sagte Oswin.
+„Und Albrecht wird sie bewachen“, sagte Oswin.
 
-"Also wieder ein schlechter Weg", sagte Taron.
+„Also wieder ein schlechter Weg“, sagte Taron.
 
-Der Erzaehler sagte: "Du entwickelst ein Talent fuer Vorhersagen."
+Der Erzähler sagte: „Du entwickelst ein Talent für Vorhersagen.“
 
-"Nach Waldkirch", sagte er.
+„Nach Waldkirch“, sagte er.
 
-Der Junge aus Waldkirch bekam Wasser, eine halbe Ruebe und die Anweisung, nicht heldenhaft vom Pferd zu fallen. Er nahm alle drei mit einem Ernst entgegen, der Taron unangenehm bekannt vorkam.
+Der Junge aus Waldkirch bekam Wasser, eine halbe Rübe und die Anweisung, nicht heldenhaft vom Pferd zu fallen. Er nahm alle drei mit einem Ernst entgegen, der Taron unangenehm bekannt vorkam.
 
-"Wie heisst du?", fragte Taron.
+„Wie heißt du?“, fragte Taron.
 
-"Niko."
+„Niko.“
 
-"Niko, wenn jemand fragt, was du gesehen hast, sagst du: Menschen und Zwerge versuchen, einen Krieg zu verhindern."
+„Niko, wenn jemand fragt, was du gesehen hast, sagst du: Menschen und Zwerge versuchen, einen Krieg zu verhindern.“
 
 Der Junge sah zu Brokk.
 
-"Das glaubt mir niemand."
+„Das glaubt mir niemand.“
 
-"Dann sag es trotzdem. Unglaubliche Wahrheiten brauchen Uebung."
+„Dann sag es trotzdem. Unglaubliche Wahrheiten brauchen Übung.“
 
-Oswin hob eine Braue. "Du gibst Botenanweisungen?"
+Oswin hob eine Braue. „Du gibst Botenanweisungen?“
 
-"Ich entwickle mich."
+„Ich entwickle mich.“
 
-"In welche Richtung?"
+„In welche Richtung?“
 
-"Unklar. Aber weg von schweigendem Opfer."
+„Unklar. Aber weg von schweigendem Opfer.“
 
-Der Erzaehler sagte: "Eine Richtung, die ich unter Vorbehalt unterstuetze."
+Der Erzähler sagte: „Eine Richtung, die ich unter Vorbehalt unterstütze.“
 
-Sie verliessen den Wachhof kurz darauf. Hinter ihnen blieb die leere Strasse, vor ihnen Waldkirch, und irgendwo seitlich davon marschierte Rugar mit einem Heer, das glaubte, es bringe Schutz. Taron hatte inzwischen gelernt, dass die gefaehrlichsten Leute selten sagten, sie braechten Verderben. Verderben war ein schlechtes Banner. Schutz liess sich besser tragen.
+Sie verließen den Wachhof kurz darauf. Hinter ihnen blieb die leere Straße, vor ihnen Waldkirch, und irgendwo seitlich davon marschierte Rugar mit einem Heer, das glaubte, es bringe Schutz. Taron hatte inzwischen gelernt, dass die gefährlichsten Leute selten sagten, sie brächten Verderben. Verderben war ein schlechtes Banner. Schutz ließ sich besser tragen.
 
-Auf dem ersten Huegel drehte er sich noch einmal um. Im Wachhof hing die Tuer schief. Der Brunnen blieb leer. Arvens kleiner Vogel in der Tischplatte blieb zurueck, eine Spur fuer jemanden, der spaeter vielleicht auch zu spaet verstand.
+Auf dem ersten Hügel drehte er sich noch einmal um. Im Wachhof hing die Tür schief. Der Brunnen blieb leer. Arvens kleiner Vogel in der Tischplatte blieb zurück, eine Spur für jemanden, der später vielleicht auch zu spät verstand.
 
-"Kommst du?", fragte Elva.
+„Kommst du?“, fragte Elva.
 
 Taron nickte.
 
-"Ja."
+„Ja.“
 
-Der Erzaehler sagte: "Beachtlich. Eine Antwort ohne Ausrede."
+Der Erzähler sagte: „Beachtlich. Eine Antwort ohne Ausrede.“
 
-"Gewoehn dich nicht daran."
+„Gewöhn dich nicht daran.“
 
-"Ich werde versuchen, tapfer zu sein."
+„Ich werde versuchen, tapfer zu sein.“
 
 Niemand widersprach.
 
-Auf dem Weg vom Wachhof sahen sie Rauch im Westen. Kein Schlachtfeuer, sagte Oswin. Zu duenn. Wahrscheinlich Bauern, die Felder abbrannten, damit ein Heer weniger fand.
+Auf dem Weg vom Wachhof sahen sie Rauch im Westen. Kein Schlachtfeuer, sagte Oswin. Zu dünn. Wahrscheinlich Bauern, die Felder abbrannten, damit ein Heer weniger fand.
 
-"Das ist verzweifelt", sagte Elva.
+„Das ist verzweifelt“, sagte Elva.
 
-"Ja", sagte Brokk. "Und wirksam."
+„Ja“, sagte Brokk. „Und wirksam.“
 
-Taron sah den Rauch lange an. Menschen verbrannten Essen, damit andere es nicht nahmen. Zwerge marschierten, weil ihre Hallen Hunger hatten. Koenige nannten beides Schutz, wenn es ihnen gehoerte, und Grausamkeit, wenn es die anderen taten.
+Taron sah den Rauch lange an. Menschen verbrannten Essen, damit andere es nicht nahmen. Zwerge marschierten, weil ihre Hallen Hunger hatten. Könige nannten beides Schutz, wenn es ihnen gehörte, und Grausamkeit, wenn es die anderen taten.
 
-"Der andere muss nicht viel erfinden", sagte er.
+„Der andere muss nicht viel erfinden“, sagte er.
 
-Der Erzaehler antwortete leise: "Nein. Er muss nur den richtigen Schmerz lauter machen."
+Der Erzähler antwortete leise: „Nein. Er muss nur den richtigen Schmerz lauter machen.“
 
-Taron zog den Mantel enger. "Dann muessen wir leiser werden?"
+Taron zog den Mantel enger. „Dann müssen wir leiser werden?“
 
-"Nein", sagte Elva. "Genauer."
+„Nein“, sagte Elva. „Genauer.“
 
-Das Wort blieb bei ihnen, waehrend Waldkirch naeher kam.
+Das Wort blieb bei ihnen, während Waldkirch näher kam.
 
-Genauer war kein leichteres Wort als mutiger. Aber es war vielleicht nuetzlicher.
+Genauer war kein leichteres Wort als mutiger. Aber es war vielleicht nützlicher.
 
-Sie mieden die Hauptstrasse und nahmen einen Hohlweg, der zwischen nassen Boeschungen verlief. Die Raeder alter Karren hatten tiefe Spuren hinterlassen, in denen sich Wasser sammelte. Taron trat zweimal hinein und behauptete beim zweiten Mal, es sei Absicht gewesen, um die Tiefe zu pruefen. Niemand glaubte ihm. Nicht einmal er.
+Sie mieden die Hauptstraße und nahmen einen Hohlweg, der zwischen nassen Böschungen verlief. Die Räder alter Karren hatten tiefe Spuren hinterlassen, in denen sich Wasser sammelte. Taron trat zweimal hinein und behauptete beim zweiten Mal, es sei Absicht gewesen, um die Tiefe zu prüfen. Niemand glaubte ihm. Nicht einmal er.
 
 Oben auf dem Rand des Hohlwegs tauchte ein Rabe auf, sah sie an und flog wieder fort.
 
-"Späher?", fragte Taron.
+„Späher?“, fragte Taron.
 
 Oswin sah ihn von der Seite an.
 
-"Was? In letzter Zeit ist alles ein Zeichen."
+„Was? In letzter Zeit ist alles ein Zeichen.“
 
-"Das war ein Vogel."
+„Das war ein Vogel.“
 
-Der Erzaehler sagte: "Eine tapfere Arbeitshypothese."
+Der Erzähler sagte: „Eine tapfere Arbeitshypothese.“
 
-Brokk blieb ploetzlich stehen.
+Brokk blieb plötzlich stehen.
 
 Oswin zog im selben Augenblick das Schwert. Das war beunruhigend, weil es bedeutete, dass beide etwas bemerkt hatten und Taron wieder einmal nur an einen Vogel gedacht hatte.
 
-"Runter", sagte Oswin.
+„Runter“, sagte Oswin.
 
-Sie duckten sich zwischen Brombeeren und nassen Lehm. Einen Atemzug spaeter kamen Stimmen ueber den Weg. Zwergisch. Zwei, vielleicht drei. Taron verstand kein Wort, aber er verstand den Ton: Leute, die suchten und bereits zu muede waren, um dabei leise genug zu sein.
+Sie duckten sich zwischen Brombeeren und nassen Lehm. Einen Atemzug später kamen Stimmen über den Weg. Zwergisch. Zwei, vielleicht drei. Taron verstand kein Wort, aber er verstand den Ton: Leute, die suchten und bereits zu müde waren, um dabei leise genug zu sein.
 
 Brokk lauschte.
 
-"Vargas Vorhut", fluesterte er. "Sie suchen den Wachhof."
+„Vargas Vorhut“, flüsterte er. „Sie suchen den Wachhof.“
 
-"Niko?", fragte Elva.
+„Niko?“, fragte Elva.
 
 Oswins Gesicht wurde hart.
 
-Die Stimmen kamen naeher. Einer der Zwerge lachte. Nicht froehlich. Er sagte etwas, und Brokk schloss die eiserne Hand langsam zur Faust.
+Die Stimmen kamen näher. Einer der Zwerge lachte. Nicht fröhlich. Er sagte etwas, und Brokk schloss die eiserne Hand langsam zur Faust.
 
-"Was?", fragte Taron.
+„Was?“, fragte Taron.
 
-"Sie haben den Jungen gesehen. Nicht gefangen. Er ritt nach Sueden."
+„Sie haben den Jungen gesehen. Nicht gefangen. Er ritt nach Süden.“
 
 Taron atmete aus.
 
-"Und?"
+„Und?“
 
-Brokks Blick blieb oben. "Sie glauben, er luegt. Menschen und Zwerge verhindern keinen Krieg, sagen sie. Menschen und Zwerge beginnen ihn nur."
+Brokks Blick blieb oben. „Sie glauben, er lügt. Menschen und Zwerge verhindern keinen Krieg, sagen sie. Menschen und Zwerge beginnen ihn nur.“
 
-Der Satz war so platt, dass er fast laecherlich haette sein koennen. Leider war Plattheit oft sehr gut bewaffnet.
+Der Satz war so platt, dass er fast lächerlich hätte sein können. Leider war Plattheit oft sehr gut bewaffnet.
 
-Elva griff in ihren Beutel und zog eine der harten Rueben heraus.
+Elva griff in ihren Beutel und zog eine der harten Rüben heraus.
 
-Taron starrte sie an. "Jetzt?"
+Taron starrte sie an. „Jetzt?“
 
-"Ablenkung."
+„Ablenkung.“
 
-"Mit Gemuese?"
+„Mit Gemüse?“
 
-"Du hast bessere Munition?"
+„Du hast bessere Munition?“
 
-Der Erzaehler sagte: "Die Ruebe kehrt als taktisches Element zurueck. Ich gebe zu, selbst ich haette diese Erzaehlentscheidung nicht getroffen."
+Der Erzähler sagte: „Die Rübe kehrt als taktisches Element zurück. Ich gebe zu, selbst ich hätte diese Erzählentscheidung nicht getroffen.“
 
 Elva warf.
 
-Die Ruebe flog ueber den Rand des Hohlwegs und landete mit einem dumpfen Klackern auf der anderen Seite im Gebuesch. Die Stimmen verstummten.
+Die Rübe flog über den Rand des Hohlwegs und landete mit einem dumpfen Klackern auf der anderen Seite im Gebüsch. Die Stimmen verstummten.
 
-"Was war das?", fragte einer der Zwerge auf Zwergisch.
+„Was war das?“, fragte einer der Zwerge auf Zwergisch.
 
-Brokk fluesterte die Uebersetzung nicht. Sein Gesicht sagte genug.
+Brokk flüsterte die Übersetzung nicht. Sein Gesicht sagte genug.
 
-Die Zwerge gingen der Ruebe nach.
+Die Zwerge gingen der Rübe nach.
 
 Oswin sah Elva an.
 
-"Gut geworfen."
+„Gut geworfen.“
 
-"Kueche."
+„Küche.“
 
-"Ich nehme alles zurueck, was ich je ueber Kuechen als Schlachtfelder nicht gesagt habe."
+„Ich nehme alles zurück, was ich je über Küchen als Schlachtfelder nicht gesagt habe.“
 
-"Du hast darueber etwas gedacht."
+„Du hast darüber etwas gedacht.“
 
-"Moeglich."
+„Möglich.“
 
-Sie krochen weiter, sehr langsam. Taron bekam Dornen in den Mantel, Lehm an die Haende und die unangenehme Erkenntnis, dass Rueben in dieser Reise mehr leisteten als einige Adelige in Waldkirch.
+Sie krochen weiter, sehr langsam. Taron bekam Dornen in den Mantel, Lehm an die Hände und die unangenehme Erkenntnis, dass Rüben in dieser Reise mehr leisteten als einige Adelige in Waldkirch.
 
-Als die Stimmen hinter ihnen leiser wurden, richteten sie sich wieder auf. Brokk blieb einen Moment zurueck und sah in Richtung der Vorhut.
+Als die Stimmen hinter ihnen leiser wurden, richteten sie sich wieder auf. Brokk blieb einen Moment zurück und sah in Richtung der Vorhut.
 
-"Du koenntest zu ihnen gehen", sagte Taron.
+„Du könntest zu ihnen gehen“, sagte Taron.
 
-"Ja."
+„Ja.“
 
-"Und?"
+„Und?“
 
-"Sie wuerden mich hoeren. Dann Varga holen. Dann muesste ich denselben Satz vor mehr Aexten sagen."
+„Sie würden mich hören. Dann Varga holen. Dann müsste ich denselben Satz vor mehr Äxten sagen.“
 
-"Ist das schlecht?"
+„Ist das schlecht?“
 
-"Nein. Nur spaeter."
+„Nein. Nur später.“
 
 Das Wort traf Taron anders, wenn Brokk es sagte. Nicht als Ausweichen. Als Einordnung eines Kampfes, der nicht in diesen Hohlweg passte.
 
-Als sie weiterzogen, erzaehlte Brokk von Karndorns unteren Hallen. Nicht lange, nicht weich. Nur genug: gebrochene Wasserrinnen, Pilzgaerten ohne Licht, Kinder, die lernten, Suppe nach Eisen schmecken zu lassen, weil Eisen wenigstens nach etwas schmeckte. Taron hoerte zu und dachte an Waldkirch. An Marta, die Wasser in Toepfe goss und so tat, als sei es Rezept.
+Als sie weiterzogen, erzählte Brokk von Karndorns unteren Hallen. Nicht lange, nicht weich. Nur genug: gebrochene Wasserrinnen, Pilzgärten ohne Licht, Kinder, die lernten, Suppe nach Eisen schmecken zu lassen, weil Eisen wenigstens nach etwas schmeckte. Taron hörte zu und dachte an Waldkirch. An Marta, die Wasser in Töpfe goss und so tat, als sei es Rezept.
 
-"Er hat echte Not benutzt", sagte Taron.
+„Er hat echte Not benutzt“, sagte Taron.
 
-"Ja", sagte Brokk.
+„Ja“, sagte Brokk.
 
-"Dann wird Rugar sich daran festhalten."
+„Dann wird Rugar sich daran festhalten.“
 
-Brokk nickte langsam. "Weil es leichter ist, sich fuer echte Not zu entschuldigen als fuer falsche Schluesse."
+Brokk nickte langsam. „Weil es leichter ist, sich für echte Not zu entschuldigen als für falsche Schlüsse.“
 
-Der Erzaehler sagte: "Eine unangenehm erwachsene Einsicht. Ich empfehle, sie nicht zu oft zu haben."
+Der Erzähler sagte: „Eine unangenehm erwachsene Einsicht. Ich empfehle, sie nicht zu oft zu haben.“
 
 Niemand lachte. Aber der Satz blieb bei ihnen.

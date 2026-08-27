@@ -1,86 +1,86 @@
-Die Schattenkaempfer machten keine Geraeusche.
+Die Schattenkämpfer machten keine Geräusche.
 
-Das war unhoeflich. Feinde sollten atmen, fluchen, knirschen oder wenigstens dramatisch zischen. Diese hier bewegten sich, als sei Klang eine Eigenschaft lebender Dinge, die sie laengst abgelegt hatten.
+Das war unhöflich. Feinde sollten atmen, fluchen, knirschen oder wenigstens dramatisch zischen. Diese hier bewegten sich, als sei Klang eine Eigenschaft lebender Dinge, die sie längst abgelegt hatten.
 
 Oswin hielt den ersten Schlag. Brokk den zweiten. Der dritte ging an ihnen vorbei und traf Merlan, nicht mit einer Klinge, sondern mit der flachen Hand. Der Gelehrte fiel gegen die Wand und blieb dort sitzen, beleidigt und benommen.
 
-Die Gestalten kaempften nicht wie Lebende. Lebende schonten verletzte Beine, wurden wuetend, atmeten falsch, machten Fehler aus Angst oder Stolz. Diese Schatten folgten Linien, die der andere ihnen gab. Wenn Oswin auswich, war der naechste Schlag schon dort, wo ein gut ausgebildeter Mann sinnvollerweise landen musste. Wenn Brokk blockte, floss die dunkle Klinge nicht gegen seinen Stab, sondern um ihn herum, als sei Widerstand nur eine langsamere Form von Zustimmung.
+Die Gestalten kämpften nicht wie Lebende. Lebende schonten verletzte Beine, wurden wütend, atmeten falsch, machten Fehler aus Angst oder Stolz. Diese Schatten folgten Linien, die der andere ihnen gab. Wenn Oswin auswich, war der nächste Schlag schon dort, wo ein gut ausgebildeter Mann sinnvollerweise landen musste. Wenn Brokk blockte, floss die dunkle Klinge nicht gegen seinen Stab, sondern um ihn herum, als sei Widerstand nur eine langsamere Form von Zustimmung.
 
-"Sie lesen uns", rief Oswin.
+„Sie lesen uns“, rief Oswin.
 
-"Dann schreib schlechter", keuchte Taron.
+„Dann schreib schlechter“, keuchte Taron.
 
-"Ich versuche es mit ueberleben."
+„Ich versuche es mit überleben.“
 
 Brokk schlug einem Schatten die Beine weg. Die Gestalt fiel nicht. Sie erinnerte sich nur daran, dass sie keine Beine brauchte, und zog sich wieder aufrecht.
 
-Der Erzaehler sagte: "Gebundene Befehle. Kein Wille. Kein Schmerz."
+Der Erzähler sagte: „Gebundene Befehle. Kein Wille. Kein Schmerz.“
 
-"Wie haelt man sie auf?"
+„Wie hält man sie auf?“
 
-"Man beendet den Befehl."
+„Man beendet den Befehl.“
 
-"Das klingt nach etwas, das man wissen muss, bevor man stirbt."
+„Das klingt nach etwas, das man wissen muss, bevor man stirbt.“
 
-"Viele nuetzliche Dinge gehoeren in diese Kategorie."
+„Viele nützliche Dinge gehören in diese Kategorie.“
 
-"Ich protestiere", murmelte er.
+„Ich protestiere“, murmelte er.
 
-"Spaeter", rief Elva.
+„Später“, rief Elva.
 
-Taron griff nach dem Dolch. Seine Hand zitterte. Das war vernuenftig von ihr. Eine Hand, die in dieser Lage nicht zitterte, hatte die Lage nicht verstanden.
+Taron griff nach dem Dolch. Seine Hand zitterte. Das war vernünftig von ihr. Eine Hand, die in dieser Lage nicht zitterte, hatte die Lage nicht verstanden.
 
-Elva stand nicht hinter ihm. Das fiel ihm auf, weil er sie dort gesucht hatte. Sie war bei Merlan, zog ihn aus der Reichweite eines Schattenarms und drueckte ihm gleichzeitig seine eigene Tasche an die Brust.
+Elva stand nicht hinter ihm. Das fiel ihm auf, weil er sie dort gesucht hatte. Sie war bei Merlan, zog ihn aus der Reichweite eines Schattenarms und drückte ihm gleichzeitig seine eigene Tasche an die Brust.
 
-"Kannst du laufen?"
+„Kannst du laufen?“
 
-"Theoretisch ja."
+„Theoretisch ja.“
 
-"Praktisch?"
+„Praktisch?“
 
-"Unwissenschaftlich unsicher."
+„Unwissenschaftlich unsicher.“
 
-"Dann kriech."
+„Dann kriech.“
 
-Merlan kroch. Nicht wuerdig, aber zielfuehrend.
+Merlan kroch. Nicht würdig, aber zielführend.
 
 Taron wollte zu ihnen, doch der Boden zwischen ihm und Elva wurde schwarz. Linien stiegen daraus auf wie Ranken, nur ohne den Anstand, pflanzlich zu sein.
 
-Der andere stand vor dem Eidstein und trug Rugars Koerper wie einen Mantel.
+Der andere stand vor dem Eidstein und trug Rugars Körper wie einen Mantel.
 
-"Falkenried", sagte er. "Du bist leer genug."
+„Falkenried“, sagte er. „Du bist leer genug.“
 
-"Ich nehme das persoenlich."
+„Ich nehme das persönlich.“
 
-"Gut."
+„Gut.“
 
-Schwarze Linien schossen ueber den Boden. Taron sprang zurueck, zu langsam. Etwas packte sein Bein, zog ihn nieder und kroch kalt durch seine Haut. Der Menschenschluessel flammte auf.
+Schwarze Linien schossen über den Boden. Taron sprang zurück, zu langsam. Etwas packte sein Bein, zog ihn nieder und kroch kalt durch seine Haut. Der Menschenschlüssel flammte auf.
 
-Es fuehlte sich nicht an wie eine Hand. Eher wie ein Gedanke, der beschlossen hatte, Koerper seien verhandelbar. Die Kaelte kroch durch Tarons Wade, Knie, Bauch, bis zu seiner Brust. Der Menschenschluessel brannte dagegen an, aber nicht stark genug. Taron sah seine Finger auf dem Stein und wusste fuer einen schrecklichen Moment nicht, ob er ihnen den Befehl zum Bewegen noch selbst gab.
+Es fühlte sich nicht an wie eine Hand. Eher wie ein Gedanke, der beschlossen hatte, Körper seien verhandelbar. Die Kälte kroch durch Tarons Wade, Knie, Bauch, bis zu seiner Brust. Der Menschenschlüssel brannte dagegen an, aber nicht stark genug. Taron sah seine Finger auf dem Stein und wusste für einen schrecklichen Moment nicht, ob er ihnen den Befehl zum Bewegen noch selbst gab.
 
-"Taron!", rief Elva.
+„Taron!“, rief Elva.
 
 Er wollte antworten.
 
-Sein Mund oeffnete sich nicht.
+Sein Mund öffnete sich nicht.
 
-Der andere laechelte mit Rugars Gesicht.
+Der andere lächelte mit Rugars Gesicht.
 
-Der Erzaehler schrie in seinem Kopf.
+Der Erzähler schrie in seinem Kopf.
 
 Nicht vor Schmerz.
 
 Vor Verbot.
 
-Taron sah die Kammer verschwimmen. Elva rief seinen Namen. Oswin war entwaffnet; sein Schwert schlitterte ueber den Stein. Brokk schlug einen Schatten zurueck, aber der Eid hinderte ihn daran, Rugar zu treffen. Merlan versuchte aufzustehen und scheiterte an mehreren wissenschaftlich bedauerlichen Rippen.
+Taron sah die Kammer verschwimmen. Elva rief seinen Namen. Oswin war entwaffnet; sein Schwert schlitterte über den Stein. Brokk schlug einen Schatten zurück, aber der Eid hinderte ihn daran, Rugar zu treffen. Merlan versuchte aufzustehen und scheiterte an mehreren wissenschaftlich bedauerlichen Rippen.
 
-Der Erzaehler kaempfte in ihm. Taron hatte nie darueber nachgedacht, wie eine Stimme kaempfte. Ohne Arme. Ohne Klinge. Ohne Koerper, den man zwischen Gefahr und Freund stellen konnte. Jetzt spuerte er es: als Druck gegen Druck, als Satz gegen Befehl, als Erinnerung gegen eine Ordnung, die ihn in eine brauchbare Form pressen wollte.
+Der Erzähler kämpfte in ihm. Taron hatte nie darüber nachgedacht, wie eine Stimme kämpfte. Ohne Arme. Ohne Klinge. Ohne Körper, den man zwischen Gefahr und Freund stellen konnte. Jetzt spürte er es: als Druck gegen Druck, als Satz gegen Befehl, als Erinnerung gegen eine Ordnung, die ihn in eine brauchbare Form pressen wollte.
 
 Du bist leer genug, hatte der andere gesagt.
 
 Taron war nicht leer.
 
-Er war voll von Angst, Hunger, Wut, Elvas Hand an seinem Aermel, Martas Suppe, Oswins Zahlen, Brokks verlorenen Hallen, Merlans Fussnoten, Arvens kurzer Schrift und einer Stimme, die frueher Sterne beleidigt hatte, damit ein Kind im Stall weniger Angst bekam.
+Er war voll von Angst, Hunger, Wut, Elvas Hand an seinem Ärmel, Martas Suppe, Oswins Zahlen, Brokks verlorenen Hallen, Merlans Fußnoten, Arvens kurzer Schrift und einer Stimme, die früher Sterne beleidigt hatte, damit ein Kind im Stall weniger Angst bekam.
 
 Es war kein heroischer Inhalt.
 
@@ -88,27 +88,27 @@ Aber es war seiner.
 
 Der andere beugte sich zu Taron.
 
-"Schutz ohne Wahl", sagte er, "ist Frieden."
+„Schutz ohne Wahl“, sagte er, „ist Frieden.“
 
-Taron schmeckte Blut. "Das klingt nach etwas, das ein sehr schlechter Priester aufschreibt."
+Taron schmeckte Blut. „Das klingt nach etwas, das ein sehr schlechter Priester aufschreibt.“
 
 Der andere legte Rugars Hand auf Tarons Stirn.
 
-Der Erzaehler wurde still.
+Der Erzähler wurde still.
 
 Nicht falsch. Nicht gebunden. Nicht abwesend.
 
 Still wie eine Entscheidung.
 
-"Nein", sagte er.
+„Nein“, sagte er.
 
-In diesem Nein lagen Jahre. Das Horn. Das Verschwinden. Arven in einer Tuer, die Taron nicht kannte. Der Dungeon. Jeder halb ausgesprochene Warnsatz. Jede spitze Bemerkung, die ueber eine Angst gelegt worden war wie ein schlecht gefalteter Mantel.
+In diesem Nein lagen Jahre. Das Horn. Das Verschwinden. Arven in einer Tür, die Taron nicht kannte. Der Dungeon. Jeder halb ausgesprochene Warnsatz. Jede spitze Bemerkung, die über eine Angst gelegt worden war wie ein schlecht gefalteter Mantel.
 
-Der Eid in der Kammer drueckte dagegen.
+Der Eid in der Kammer drückte dagegen.
 
-Taron spuerte, wie etwas in der Stimme riss.
+Taron spürte, wie etwas in der Stimme riss.
 
-Der Erzaehler sagte nicht: Ich darf nicht.
+Der Erzähler sagte nicht: Ich darf nicht.
 
 Er sagte nicht: Es ist zu teuer.
 
@@ -118,219 +118,219 @@ Zum ersten Mal kam das Wort nicht in Tarons Kopf.
 
 Es kam aus Tarons Mund.
 
-Seine Hand hob sich, aber es war nicht seine Bewegung. Luft zog sich in der Kammer zusammen. Jedes Licht wurde weiss. Jedes Geraeusch fiel weg, bis nur noch ein Ton blieb: der Atem eines Wesens, das zu lange nur Stimme gewesen war.
+Seine Hand hob sich, aber es war nicht seine Bewegung. Luft zog sich in der Kammer zusammen. Jedes Licht wurde weiß. Jedes Geräusch fiel weg, bis nur noch ein Ton blieb: der Atem eines Wesens, das zu lange nur Stimme gewesen war.
 
 Taron stand auf.
 
 Oder etwas stand mit ihm.
 
-Der Erzaehler sprach durch ihn, und jedes Wort klang wie ein Urteil, das keine Lautstaerke brauchte.
+Der Erzähler sprach durch ihn, und jedes Wort klang wie ein Urteil, das keine Lautstärke brauchte.
 
-"Du schuetzt nichts. Du besitzt."
+„Du schützt nichts. Du besitzt.“
 
-Der andere hob Rugars Hand. Schwarze Linien rasten ueber den Boden, aber sie erreichten Taron nicht mehr. Um ihn stand kein Kreis, keine Mauer, kein glaenzender Schild. Nur eine Grenze. Sie war unsichtbar und absolut.
+Der andere hob Rugars Hand. Schwarze Linien rasten über den Boden, aber sie erreichten Taron nicht mehr. Um ihn stand kein Kreis, keine Mauer, kein glänzender Schild. Nur eine Grenze. Sie war unsichtbar und absolut.
 
 Oswin sank auf ein Knie und starrte ihn an.
 
-Brokk fluesterte ein Wort auf Zwergisch, das Taron nicht verstand und der Erzaehler nicht uebersetzte.
+Brokk flüsterte ein Wort auf Zwergisch, das Taron nicht verstand und der Erzähler nicht übersetzte.
 
 Elva weinte nicht. Sie sah Taron an, als suche sie in seinem Gesicht die Stelle, an der er noch da war.
 
 Er wollte ihr sagen, dass er da war.
 
-Sein Mund gehoerte ihm gerade nicht.
+Sein Mund gehörte ihm gerade nicht.
 
-Der andere wich zum ersten Mal zurueck.
+Der andere wich zum ersten Mal zurück.
 
-Die Schattenkaempfer drehten sich. Zu spaet.
+Die Schattenkämpfer drehten sich. Zu spät.
 
-Tarons Hand oeffnete sich.
+Tarons Hand öffnete sich.
 
 Die Luft wurde still.
 
 Dann fiel alles, was nicht leben sollte.
 
-Kein Blutregen. Kein glaenzender Sturm. Nur ein einziger, furchtbarer Augenblick, in dem die gebundenen Gestalten ihre Befehle verloren und mit ihnen die Form. Sie brachen zusammen wie Asche, die sich zu lange fuer Ruestung gehalten hatte.
+Kein Blutregen. Kein glänzender Sturm. Nur ein einziger, furchtbarer Augenblick, in dem die gebundenen Gestalten ihre Befehle verloren und mit ihnen die Form. Sie brachen zusammen wie Asche, die sich zu lange für Rüstung gehalten hatte.
 
 Der andere schrie.
 
 Rugar fiel auf die Knie.
 
-Taron fiel ebenfalls, aber der Erzaehler hielt ihn noch einen Atemzug. Durch Tarons Augen sah er die Kammer mit einer Schaerfe, die weh tat: Brokk am Boden, Elva mit blassem Gesicht, Oswin auf einem Knie, Merlan unter seinen Papieren, Rugar zwischen fremdem Willen und eigenem Koerper.
+Taron fiel ebenfalls, aber der Erzähler hielt ihn noch einen Atemzug. Durch Tarons Augen sah er die Kammer mit einer Schärfe, die weh tat: Brokk am Boden, Elva mit blassem Gesicht, Oswin auf einem Knie, Merlan unter seinen Papieren, Rugar zwischen fremdem Willen und eigenem Körper.
 
 Dann war Taron wieder allein in sich.
 
-Er stuerzte nach vorn und fing sich mit beiden Haenden ab.
+Er stürzte nach vorn und fing sich mit beiden Händen ab.
 
 Alles tat weh.
 
-Nicht nur sein Koerper. Auch der Raum in seinem Kopf, in dem der Erzaehler sonst sass und die Welt schlecht benahm. Dort war nun etwas ausgebrannt. Nicht fort. Aber kleiner. Weiter weg und gleichzeitig schmerzhafter nah.
+Nicht nur sein Körper. Auch der Raum in seinem Kopf, in dem der Erzähler sonst saß und die Welt schlecht benahm. Dort war nun etwas ausgebrannt. Nicht fort. Aber kleiner. Weiter weg und gleichzeitig schmerzhafter nah.
 
-Elva legte ihre Hand an Tarons Gesicht. "Sieh mich an."
+Elva legte ihre Hand an Tarons Gesicht. „Sieh mich an.“
 
-"Ich sehe dich."
+„Ich sehe dich.“
 
-"Du klingst wie du."
+„Du klingst wie du.“
 
-"Beleidigend oder beruhigend?"
+„Beleidigend oder beruhigend?“
 
-"Beides."
+„Beides.“
 
-Er schaffte ein kurzes Nicken. Dann kam die Wut, spaet und heiss, weil sie endlich Platz fand.
+Er schaffte ein kurzes Nicken. Dann kam die Wut, spät und heiß, weil sie endlich Platz fand.
 
-Der Erzaehler atmete in seinem Kopf, leise, gebrochen.
+Der Erzähler atmete in seinem Kopf, leise, gebrochen.
 
-"Was", sagte Taron, "war das?"
+„Was“, sagte Taron, „war das?“
 
 Keine Antwort.
 
-"Was war das?"
+„Was war das?“
 
-"Schutz", sagte der Erzaehler.
+„Schutz“, sagte der Erzähler.
 
-Taron lachte. Es klang haesslich. "Schutz."
+Taron lachte. Es klang hässlich. „Schutz.“
 
-Elva kroch zu ihm. "Taron, du blutest."
+Elva kroch zu ihm. „Taron, du blutest.“
 
-"Im Dungeon", sagte Taron. "An Abendriss. In Graumark. Bei jedem einzelnen Mal, als jemand fast gestorben ist. Da haettest du das gekonnt?"
+„Im Dungeon“, sagte Taron. „An Abendriss. In Graumark. Bei jedem einzelnen Mal, als jemand fast gestorben ist. Da hättest du das gekonnt?“
 
-Der Erzaehler schwieg.
+Der Erzähler schwieg.
 
-"Sag nicht, du durftest nicht."
+„Sag nicht, du durftest nicht.“
 
-"Ich durfte nicht."
+„Ich durfte nicht.“
 
 Taron schlug mit der Faust auf den Stein. Schmerz fuhr durch seinen Arm. Gut. Etwas Einfaches.
 
-"Dann haettest du es trotzdem tun sollen."
+„Dann hättest du es trotzdem tun sollen.“
 
-Der Erzaehler antwortete nicht sofort. Als er sprach, war seine Stimme nicht die kuehle Maercheninstanz, nicht der spitze Richter, nicht der laestige Begleiter.
+Der Erzähler antwortete nicht sofort. Als er sprach, war seine Stimme nicht die kühle Märcheninstanz, nicht der spitze Richter, nicht der lästige Begleiter.
 
 Sie war fast die Stimme aus dem Stall.
 
-"Jedes Mal, wenn ich so schuetzte, wurde weniger von mir gebunden. Und mehr von mir frei. Das ist nicht immer Rettung."
+„Jedes Mal, wenn ich so schützte, wurde weniger von mir gebunden. Und mehr von mir frei. Das ist nicht immer Rettung.“
 
-"Du hast fuer mich entschieden", sagte Taron.
+„Du hast für mich entschieden“, sagte Taron.
 
-"Ja."
+„Ja.“
 
-"Wie er."
+„Wie er.“
 
-Der Erzaehler schwieg.
+Der Erzähler schwieg.
 
-Taron bereute den Satz nicht. Noch nicht. Vielleicht spaeter. Vielleicht war er unfair. Aber Wahrheit und Fairness liefen in dieser Kammer nicht mehr sauber nebeneinander.
+Taron bereute den Satz nicht. Noch nicht. Vielleicht später. Vielleicht war er unfair. Aber Wahrheit und Fairness liefen in dieser Kammer nicht mehr sauber nebeneinander.
 
-"Ich versuchte, nicht wie er zu werden", sagte der Erzaehler.
+„Ich versuchte, nicht wie er zu werden“, sagte der Erzähler.
 
-"Das reicht nicht."
+„Das reicht nicht.“
 
-"Nein."
+„Nein.“
 
-Das Nein war kaum zu hoeren.
+Das Nein war kaum zu hören.
 
 Merlan hatte sich wieder aufgesetzt. Blut lief aus seiner Nase auf seine Lippe. Er wischte es weg und sah Taron mit einer Mischung aus Schrecken und Erkenntnis an.
 
-"Direkter Schutz loest Bindung", sagte er.
+„Direkter Schutz löst Bindung“, sagte er.
 
-"Graufinger", sagte Oswin. "Jetzt nicht."
+„Graufinger“, sagte Oswin. „Jetzt nicht.“
 
-"Gerade jetzt. Wenn er sich zu sehr loest, kann er koerperlich werden. Oder brechen. Oder beides."
+„Gerade jetzt. Wenn er sich zu sehr löst, kann er körperlich werden. Oder brechen. Oder beides.“
 
-Der andere lachte durch Rugar. "Hoert auf den Schreiber. Er riecht den Rand."
+Der andere lachte durch Rugar. „Hört auf den Schreiber. Er riecht den Rand.“
 
-Taron wollte wuetend bleiben. Es war nicht schwer. Aber unter der Wut lag ploetzlich ein anderer Schrecken.
+Taron wollte wütend bleiben. Es war nicht schwer. Aber unter der Wut lag plötzlich ein anderer Schrecken.
 
-"Du koenntest werden wie er."
+„Du könntest werden wie er.“
 
-"Ja."
+„Ja.“
 
-Der andere lachte durch Rugar, schwach, aber nicht besiegt. "Endlich ehrlich."
+Der andere lachte durch Rugar, schwach, aber nicht besiegt. „Endlich ehrlich.“
 
-Die drei Schluessel drehten sich im Eidenschloss.
+Die drei Schlüssel drehten sich im Eidenschloss.
 
-Rugars Koerper bog sich zurueck. Aus seinem Mund kam ein dunkler Atem, der kein Atem war.
+Rugars Körper bog sich zurück. Aus seinem Mund kam ein dunkler Atem, der kein Atem war.
 
-Brokk streckte die Hand aus. "Rugar!"
+Brokk streckte die Hand aus. „Rugar!“
 
-Der Erzaehler fluesterte: "Zu spaet."
+Der Erzähler flüsterte: „Zu spät.“
 
 Die Kammer riss auf.
 
-Der Riss ging nicht durch Stein allein. Er ging durch Klang, durch Luft, durch Tarons Gleichgewicht. Fuer einen Augenblick sah er hinter dem Eidstein keinen Raum, sondern Entfernung: schwarze Weite, alte Ketten, leere Zeugenplaetze, und darin etwas, das jahrelang gelernt hatte, Geduld mit Hunger zu verwechseln.
+Der Riss ging nicht durch Stein allein. Er ging durch Klang, durch Luft, durch Tarons Gleichgewicht. Für einen Augenblick sah er hinter dem Eidstein keinen Raum, sondern Entfernung: schwarze Weite, alte Ketten, leere Zeugenplätze, und darin etwas, das jahrelang gelernt hatte, Geduld mit Hunger zu verwechseln.
 
 Der andere zog an Rugar.
 
-Nicht grob. Fast zart. Gerade dadurch war es entsetzlich. Rugars Koerper bog sich, als muesse er Platz machen fuer etwas, das nie in ihn gepasst hatte. Brokk kroch auf ihn zu, aber der Eid hielt ihn zurueck wie eine unsichtbare Hand an der Kehle.
+Nicht grob. Fast zart. Gerade dadurch war es entsetzlich. Rugars Körper bog sich, als müsse er Platz machen für etwas, das nie in ihn gepasst hatte. Brokk kroch auf ihn zu, aber der Eid hielt ihn zurück wie eine unsichtbare Hand an der Kehle.
 
-"Rugar!", bruellte er.
+„Rugar!“, brüllte er.
 
-Rugars Augen oeffneten sich.
+Rugars Augen öffneten sich.
 
-Fuer einen Moment waren sie seine.
+Für einen Moment waren sie seine.
 
-"Brokk", fluesterte er.
+„Brokk“, flüsterte er.
 
-Dann riss der Daemon weiter.
+Dann riss der Dämon weiter.
 
 Taron wollte aufstehen. Elva hielt ihn fest, nicht um ihn aufzuhalten, sondern damit er nicht wieder fiel.
 
-"Kannst du noch etwas tun?", fragte sie.
+„Kannst du noch etwas tun?“, fragte sie.
 
-Der Erzaehler antwortete in ihm, bevor Taron es konnte.
+Der Erzähler antwortete in ihm, bevor Taron es konnte.
 
-"Nein."
+„Nein.“
 
 Das Wort war nicht feige. Nur leer.
 
-Taron sah zum Eidstein, zu den drei Schluesseln, zu dem offenen Riss. Vielleicht war dies der Preis: Man konnte jemanden retten und trotzdem die Tuer oeffnen, vor der man ihn retten wollte.
+Taron sah zum Eidstein, zu den drei Schlüsseln, zu dem offenen Riss. Vielleicht war dies der Preis: Man konnte jemanden retten und trotzdem die Tür öffnen, vor der man ihn retten wollte.
 
 Der andere trat in die Welt.
 
 Und der andere trat heraus.
 
-Der Erzaehler wurde danach so leise, dass Taron ihn fast fuer fort hielt.
+Der Erzähler wurde danach so leise, dass Taron ihn fast für fort hielt.
 
-"Bleib", dachte Taron, bevor er entscheiden konnte, ob er das Recht dazu hatte.
+„Bleib“, dachte Taron, bevor er entscheiden konnte, ob er das Recht dazu hatte.
 
 Keine Antwort.
 
-"Das war kein Befehl."
+„Das war kein Befehl.“
 
 Immer noch nichts.
 
-Dann, sehr fern: "Gut."
+Dann, sehr fern: „Gut.“
 
-Taron wusste nicht, ob es gut war, dass der Erzaehler blieb. Er wusste nur, dass er in diesem Augenblick den Verlust nicht auch noch tragen konnte. Das war keine edle Erkenntnis. Sie war ehrlich, und ehrlich musste vorerst reichen.
+Taron wusste nicht, ob es gut war, dass der Erzähler blieb. Er wusste nur, dass er in diesem Augenblick den Verlust nicht auch noch tragen konnte. Das war keine edle Erkenntnis. Sie war ehrlich, und ehrlich musste vorerst reichen.
 
-Elva half ihm auf die Knie. "Kannst du stehen?"
+Elva half ihm auf die Knie. „Kannst du stehen?“
 
-"Schlecht."
+„Schlecht.“
 
-"Das ist besser als nein."
+„Das ist besser als nein.“
 
-Oswin hob sein Schwert auf und stellte sich wieder zwischen Taron und den Riss. Brokk kniete bei Rugar, aber sein Blick folgte dem Daemon, der Form gewann. Merlan suchte nach seiner Brille, fand stattdessen einen Zettel und steckte ihn ein, weil Gelehrte sogar im Weltuntergang Beute machten.
+Oswin hob sein Schwert auf und stellte sich wieder zwischen Taron und den Riss. Brokk kniete bei Rugar, aber sein Blick folgte dem Dämon, der Form gewann. Merlan suchte nach seiner Brille, fand stattdessen einen Zettel und steckte ihn ein, weil Gelehrte sogar im Weltuntergang Beute machten.
 
-"Was jetzt?", fragte Elva.
+„Was jetzt?“, fragte Elva.
 
-Taron sah den freien Daemon.
+Taron sah den freien Dämon.
 
-"Jetzt", sagte er, "wird alles missverstanden."
+„Jetzt“, sagte er, „wird alles missverstanden.“
 
 Er behielt recht.
 
-Von oben kamen Schritte. Viele. Zwerge zuerst, Menschen dahinter, beide Seiten zu spaet und zu frueh zugleich. Der Rauch des freien Daemons hing noch in der Kammer, und jeder, der eintrat, sah genau das, wovor er sich am meisten fuerchtete: einen gefallenen Koenig, fremde Waffen, die Schluessel ausserhalb jeder Ordnung.
+Von oben kamen Schritte. Viele. Zwerge zuerst, Menschen dahinter, beide Seiten zu spät und zu früh zugleich. Der Rauch des freien Dämons hing noch in der Kammer, und jeder, der eintrat, sah genau das, wovor er sich am meisten fürchtete: einen gefallenen König, fremde Waffen, die Schlüssel außerhalb jeder Ordnung.
 
-Taron wollte aufstehen und erklaeren.
+Taron wollte aufstehen und erklären.
 
-Sein Koerper lehnte den Vorschlag ab.
+Sein Körper lehnte den Vorschlag ab.
 
-Elva stellte sich vor ihn. Oswin hob das Schwert. Brokk hielt Rugars Kopf auf seinem Knie und sah aus, als wuerde er jeden erschlagen, der die falsche Schlussfolgerung zu schnell zog.
+Elva stellte sich vor ihn. Oswin hob das Schwert. Brokk hielt Rugars Kopf auf seinem Knie und sah aus, als würde er jeden erschlagen, der die falsche Schlussfolgerung zu schnell zog.
 
-Der Erzaehler fluesterte: "Atme."
+Der Erzähler flüsterte: „Atme.“
 
-"Das ist dein Rat?"
+„Das ist dein Rat?“
 
-"Mein bester im Moment."
+„Mein bester im Moment.“
 
 Taron atmete.
 
@@ -344,41 +344,41 @@ Er sah Rugar.
 
 Und verstand falsch.
 
-Taron sah es in Vargas Augen entstehen. Nicht Dummheit. Nicht einmal Hass zuerst. Schmerz. Ein Koenig am Boden, Brokk neben Menschen, Schluessel in einer Kammer, die nach Verrat roch. Der andere hatte nicht mehr viel tun muessen. Er hatte nur genug Wirklichkeit zurueckgelassen, damit jeder die schlimmste Lesart selbst baute.
+Taron sah es in Vargas Augen entstehen. Nicht Dummheit. Nicht einmal Hass zuerst. Schmerz. Ein König am Boden, Brokk neben Menschen, Schlüssel in einer Kammer, die nach Verrat roch. Der andere hatte nicht mehr viel tun müssen. Er hatte nur genug Wirklichkeit zurückgelassen, damit jeder die schlimmste Lesart selbst baute.
 
-"Varga", keuchte Taron.
+„Varga“, keuchte Taron.
 
-Der Zwerg hoerte seinen Namen nicht. Oder er hoerte ihn und fand darin keinen Grund, langsamer wuetend zu werden.
+Der Zwerg hörte seinen Namen nicht. Oder er hörte ihn und fand darin keinen Grund, langsamer wütend zu werden.
 
 Oswin stellte sich vor Taron.
 
-"Jetzt waere eine Erklaerung gut", sagte Taron.
+„Jetzt wäre eine Erklärung gut“, sagte Taron.
 
-"Dann such eine kurze."
+„Dann such eine kurze.“
 
 Taron versuchte es.
 
-"Rugar lebt!"
+„Rugar lebt!“
 
-Varga sah auf den Koenig am Boden. "Noch."
+Varga sah auf den König am Boden. „Noch.“
 
-"Der Daemon ist frei!"
+„Der Dämon ist frei!“
 
-"Ich sehe nur Menschen."
+„Ich sehe nur Menschen.“
 
-Das war das Problem in vier Worten. Der andere hatte keinen neuen Hass erschaffen muessen. Er hatte nur dafuer gesorgt, dass jeder Blick an der falschen Stelle haengen blieb.
+Das war das Problem in vier Worten. Der andere hatte keinen neuen Hass erschaffen müssen. Er hatte nur dafür gesorgt, dass jeder Blick an der falschen Stelle hängen blieb.
 
-Ein menschlicher Soldat draengte hinter Varga in die Kammer und rief: "Die Zwerge sind unten!" Ein Zwerg hinter ihm rief: "Sie haben den Koenig!" Beide sagten die Wahrheit. Beide machten sie dadurch fast unbrauchbar.
+Ein menschlicher Soldat drängte hinter Varga in die Kammer und rief: „Die Zwerge sind unten!“ Ein Zwerg hinter ihm rief: „Sie haben den König!“ Beide sagten die Wahrheit. Beide machten sie dadurch fast unbrauchbar.
 
-Oswin stellte sich breiter hin. "Wer jetzt schlaegt, trifft zuerst mich."
+Oswin stellte sich breiter hin. „Wer jetzt schlägt, trifft zuerst mich.“
 
-"Das laesst sich einrichten", sagte Varga.
+„Das lässt sich einrichten“, sagte Varga.
 
-Brokk hob den Kopf. "Varga, bei der tiefen Halle, sieh mich an."
+Brokk hob den Kopf. „Varga, bei der tiefen Halle, sieh mich an.“
 
 Der Name der Halle tat etwas. Nicht genug. Aber Vargas Blick zuckte zu Brokk.
 
-"Du kennst meine Hand", sagte Brokk. "Du kennst meine Zahl. Du kennst meinen Eid. Wenn ich Rugar toeten wollte, haette ich ihn nicht auf meinen Knien."
+„Du kennst meine Hand“, sagte Brokk. „Du kennst meine Zahl. Du kennst meinen Eid. Wenn ich Rugar töten wollte, hätte ich ihn nicht auf meinen Knien.“
 
 Varga atmete hart. Seine Axt blieb oben.
 
@@ -388,27 +388,27 @@ Nur ein Zucken.
 
 Aber alle sahen es.
 
-Fuer einen Atemzug haette die Wahrheit gewinnen koennen.
+Für einen Atemzug hätte die Wahrheit gewinnen können.
 
-Dann brach von oben ein neuer Schrei herein, und mit ihm kamen weitere Soldaten. Einer stiess, weil er gestossen wurde. Ein Zwerg blockte. Der Block traf einen Menschen am Kopf. Oswin riss den Mann zurueck, Varga schlug nach Oswin, Brokk fing Vargas Axt mit dem Stab.
+Dann brach von oben ein neuer Schrei herein, und mit ihm kamen weitere Soldaten. Einer stieß, weil er gestoßen wurde. Ein Zwerg blockte. Der Block traf einen Menschen am Kopf. Oswin riss den Mann zurück, Varga schlug nach Oswin, Brokk fing Vargas Axt mit dem Stab.
 
 Der Atemzug war vorbei.
 
 Die Kammer wurde wieder Kampf.
 
-Taron lag am Boden und hasste nicht die Leute, die zuschlugen. Das waere einfacher gewesen. Er hasste die Geschwindigkeit, mit der Angst jede bessere Moeglichkeit auffrass.
+Taron lag am Boden und hasste nicht die Leute, die zuschlugen. Das wäre einfacher gewesen. Er hasste die Geschwindigkeit, mit der Angst jede bessere Möglichkeit auffraß.
 
-Der Erzaehler fluesterte: "Das ist sein eigentliches Werk."
+Der Erzähler flüsterte: „Das ist sein eigentliches Werk.“
 
-"Der Daemon?"
+„Der Dämon?“
 
-"Nein. Der Teil, den er in euch nicht erfinden musste."
+„Nein. Der Teil, den er in euch nicht erfinden musste.“
 
 Taron wollte schreien.
 
-Nicht aus Mut. Aus Frust. Mut war eine viel zu saubere Beschreibung fuer einen Menschen, der auf dem Boden lag, halb taub vom eigenen Kopf und umgeben von Leuten, die aus vollkommen nachvollziehbaren Gruenden gerade das Falsche taten. Frust passte besser. Frust hatte Dreck unter den Naegeln.
+Nicht aus Mut. Aus Frust. Mut war eine viel zu saubere Beschreibung für einen Menschen, der auf dem Boden lag, halb taub vom eigenen Kopf und umgeben von Leuten, die aus vollkommen nachvollziehbaren Gründen gerade das Falsche taten. Frust passte besser. Frust hatte Dreck unter den Nägeln.
 
-"Aufhoeren!", rief er.
+„Aufhören!“, rief er.
 
 Ein Mensch schlug nach einem Zwerg.
 
@@ -418,53 +418,53 @@ Varga schlug nach Brokk.
 
 Also hatte der Befehl hervorragend funktioniert, sofern das Ziel gewesen war, die Luft zu bewegen.
 
-Elva kniete neben Taron und drueckte ihm die Schulter nach unten, weil er versuchte aufzustehen und sein Koerper diese Idee fuer eine Beleidigung hielt.
+Elva kniete neben Taron und drückte ihm die Schulter nach unten, weil er versuchte aufzustehen und sein Körper diese Idee für eine Beleidigung hielt.
 
-"Bleib unten."
+„Bleib unten.“
 
-"Ich kann nicht unten bleiben."
+„Ich kann nicht unten bleiben.“
 
-"Du kannst sehr gut unten bleiben. Du liegst bereits."
+„Du kannst sehr gut unten bleiben. Du liegst bereits.“
 
-"Das ist keine Leistung."
+„Das ist keine Leistung.“
 
-"Heute nehmen wir, was da ist."
+„Heute nehmen wir, was da ist.“
 
-Der Erzaehler sagte kaum hoerbar: "Ich mag sie."
+Der Erzähler sagte kaum hörbar: „Ich mag sie.“
 
-"Ich sage es ihr, wenn wir ueberleben."
+„Ich sage es ihr, wenn wir überleben.“
 
-"Dann formuliere vorsichtig. Sie klingt bewaffnet."
+„Dann formuliere vorsichtig. Sie klingt bewaffnet.“
 
 Taron lachte einmal, und der Schmerz in seinen Rippen beendete das Experiment.
 
 Brokk hielt Vargas Axt mit dem Stab. Holz splitterte. Die eiserne Hand des Zwergenhauptmanns schloss sich um den Schaft und hielt ihn fest.
 
-"Sieh ihn an!", bruellte Brokk. "Sieh deinen Koenig an!"
+„Sieh ihn an!“, brüllte Brokk. „Sieh deinen König an!“
 
 Varga zog. Brokk hielt.
 
-"Ich sehe ihn", sagte Varga. "Ich sehe, was du zugelassen hast."
+„Ich sehe ihn“, sagte Varga. „Ich sehe, was du zugelassen hast.“
 
-Brokks Gesicht wurde hart. "Dann siehst du endlich mich."
+Brokks Gesicht wurde hart. „Dann siehst du endlich mich.“
 
 Der Satz traf Varga. Nicht genug, um die Axt zu senken. Aber genug, um seinen Griff einen Herzschlag lang falsch werden zu lassen.
 
 Oswin nutzte den Herzschlag, trat seitlich ein und schlug Varga nicht mit der Klinge, sondern mit dem Knauf gegen den Unterarm. Die Axt fiel nicht. Aber sie sank.
 
-"Rugar lebt", sagte Oswin.
+„Rugar lebt“, sagte Oswin.
 
-"Menschenwort", fauchte Varga.
+„Menschenwort“, fauchte Varga.
 
-"Dann nimm seins." Oswin deutete mit dem Schwert auf Brokk. "Oder glaubst du nur Zwergen, solange sie dir zustimmen?"
+„Dann nimm seins.“ Oswin deutete mit dem Schwert auf Brokk. „Oder glaubst du nur Zwergen, solange sie dir zustimmen?“
 
-Varga sah ihn an, und fuer einen Moment glaubte Taron, der Zwerg werde Oswin einfach deshalb erschlagen, weil der Satz zu gut sass.
+Varga sah ihn an, und für einen Moment glaubte Taron, der Zwerg werde Oswin einfach deshalb erschlagen, weil der Satz zu gut saß.
 
 Dann bewegte sich Rugar wieder.
 
-Nicht nur ein Zucken diesmal. Seine Hand krampfte sich in Brokks Mantel. Brokk erstarrte. Varga sah es. Alle in der Naehe sahen es. Der freie Daemon, der eben noch wie dunkler Rauch an der Luft hing, drehte langsam den Kopf.
+Nicht nur ein Zucken diesmal. Seine Hand krampfte sich in Brokks Mantel. Brokk erstarrte. Varga sah es. Alle in der Nähe sahen es. Der freie Dämon, der eben noch wie dunkler Rauch an der Luft hing, drehte langsam den Kopf.
 
-"Brokk", fluesterte Rugar.
+„Brokk“, flüsterte Rugar.
 
 Das Wort war fast nichts.
 
@@ -472,171 +472,171 @@ Aber fast nichts war in diesem Raum mehr Wahrheit, als die meisten Reden boten.
 
 Varga machte einen Schritt vor.
 
-Da stuerzte ein menschlicher Soldat durch den Rauch, sah Varga ueber Brokk und Rugar stehen und stiess mit dem Speer zu. Er traf Vargas Schulterplatte. Kein tiefer Stich, aber genug, um den Augenblick zu zerbrechen.
+Da stürzte ein menschlicher Soldat durch den Rauch, sah Varga über Brokk und Rugar stehen und stieß mit dem Speer zu. Er traf Vargas Schulterplatte. Kein tiefer Stich, aber genug, um den Augenblick zu zerbrechen.
 
-Varga bruellte.
+Varga brüllte.
 
 Brokks Gesicht wurde leer vor Zorn.
 
-Oswin warf den Soldaten zurueck. "Idiot!"
+Oswin warf den Soldaten zurück. „Idiot!“
 
-"Er wollte den Koenig toeten!"
+„Er wollte den König töten!“
 
-"Er wollte hoeren!"
+„Er wollte hören!“
 
-Der Soldat verstand den Unterschied nicht schnell genug. Das war die eigentliche Grausamkeit dieses Tages: Viele Leute waren nicht boese, nur zu langsam fuer Wahrheit.
+Der Soldat verstand den Unterschied nicht schnell genug. Das war die eigentliche Grausamkeit dieses Tages: Viele Leute waren nicht böse, nur zu langsam für Wahrheit.
 
-Der freie Daemon hob die Hand.
+Der freie Dämon hob die Hand.
 
-Niemand sah ihn richtig. Taron schon. Vielleicht, weil sein eigener Erzaehler halb aus ihm herausgebrannt war. Vielleicht, weil er inzwischen eine ungesunde Begabung fuer Dinge entwickelt hatte, die andere lieber falsch sahen.
+Niemand sah ihn richtig. Taron schon. Vielleicht, weil sein eigener Erzähler halb aus ihm herausgebrannt war. Vielleicht, weil er inzwischen eine ungesunde Begabung für Dinge entwickelt hatte, die andere lieber falsch sahen.
 
-Die Hand des Daemons zeigte nicht auf Rugar.
+Die Hand des Dämons zeigte nicht auf Rugar.
 
-Sie zeigte auf die Tuer.
+Sie zeigte auf die Tür.
 
-Oben im Hof antworteten Stimmen. Menschen. Zwerge. Befehle, die einander suchten und dabei nur neue Schuld fanden. Der Daemon musste nichts mehr sprechen. Er dirigierte mit kleinen Bewegungen, wie ein Kapellmeister, dessen Orchester aus schlechten Schlussfolgerungen bestand.
+Oben im Hof antworteten Stimmen. Menschen. Zwerge. Befehle, die einander suchten und dabei nur neue Schuld fanden. Der Dämon musste nichts mehr sprechen. Er dirigierte mit kleinen Bewegungen, wie ein Kapellmeister, dessen Orchester aus schlechten Schlussfolgerungen bestand.
 
-"Er geht", sagte Taron.
+„Er geht“, sagte Taron.
 
-Elva sah in die Richtung seines Blicks. Ihre Augen fanden nichts und dann doch etwas: den Rauch, der sich gegen den Luftzug bewegte, die Stelle, an der niemand hinsah, die Kaelte am Rand der Kammer.
+Elva sah in die Richtung seines Blicks. Ihre Augen fanden nichts und dann doch etwas: den Rauch, der sich gegen den Luftzug bewegte, die Stelle, an der niemand hinsah, die Kälte am Rand der Kammer.
 
-"Kannst du ihn halten?"
+„Kannst du ihn halten?“
 
 Taron fragte in sich hinein.
 
-Der Erzaehler antwortete nach einer zu langen Pause: "Nein."
+Der Erzähler antwortete nach einer zu langen Pause: „Nein.“
 
-Das Nein war nicht ausweichend. Es war leer. Die Leere war schlimmer als jede Luege.
+Das Nein war nicht ausweichend. Es war leer. Die Leere war schlimmer als jede Lüge.
 
-"Dann wer?"
+„Dann wer?“
 
-"Niemand hier."
+„Niemand hier.“
 
-Taron biss die Zaehne zusammen. "Ein sehr schlechter Name in dieser Lage."
+Taron biss die Zähne zusammen. „Ein sehr schlechter Name in dieser Lage.“
 
-Der Erzaehler machte kein Geraeusch. Taron spuerte dennoch, dass die Spitze angekommen war.
+Der Erzähler machte kein Geräusch. Taron spürte dennoch, dass die Spitze angekommen war.
 
-Merlan kroch auf allen vieren zu den Schluesseln. Er sah aus wie ein Mann, der entschieden hatte, dass Wuerde ein Luxusgut sei. In einer Hand hielt er seine Brille, in der anderen ein Stueck Kohle. Er zog eine Linie auf den Stein, von der Rille des Schutzschluessels zur offenen Stelle am Eidstein.
+Merlan kroch auf allen vieren zu den Schlüsseln. Er sah aus wie ein Mann, der entschieden hatte, dass Würde ein Luxusgut sei. In einer Hand hielt er seine Brille, in der anderen ein Stück Kohle. Er zog eine Linie auf den Stein, von der Rille des Schutzschlüssels zur offenen Stelle am Eidstein.
 
-"Was tust du?", rief Elva.
+„Was tust du?“, rief Elva.
 
-"Ich notiere den Verlauf."
+„Ich notiere den Verlauf.“
 
-"Jetzt?"
+„Jetzt?“
 
-"Wenn ich sterbe, soll wenigstens jemand wissen, woran."
+„Wenn ich sterbe, soll wenigstens jemand wissen, woran.“
 
-Der Erzaehler sagte schwach: "Fussnoten als Testament. Es gibt schlechtere Religionen."
+Der Erzähler sagte schwach: „Fußnoten als Testament. Es gibt schlechtere Religionen.“
 
-Der Daemon sah zu Merlan.
+Der Dämon sah zu Merlan.
 
 Merlan bemerkte es und wurde sehr still.
 
-"Nicht bewegen", sagte Taron.
+„Nicht bewegen“, sagte Taron.
 
-"Ich plante gerade eine wissenschaftliche Statue."
+„Ich plante gerade eine wissenschaftliche Statue.“
 
-Der Daemon laechelte. Dann wandte er sich ab. Merlan war ihm nicht wichtig genug. Das rettete Merlan und beleidigte ihn vermutlich bis in die Knochen.
+Der Dämon lächelte. Dann wandte er sich ab. Merlan war ihm nicht wichtig genug. Das rettete Merlan und beleidigte ihn vermutlich bis in die Knochen.
 
-Brokk hatte Rugar an sich gezogen. Varga stand vor ihnen, verletzt, verwirrt und noch immer bewaffnet. Oswin hielt den menschlichen Soldaten am Kragen, der inzwischen begriff, dass er vielleicht gerade den falschen Frieden erstochen haette.
+Brokk hatte Rugar an sich gezogen. Varga stand vor ihnen, verletzt, verwirrt und noch immer bewaffnet. Oswin hielt den menschlichen Soldaten am Kragen, der inzwischen begriff, dass er vielleicht gerade den falschen Frieden erstochen hätte.
 
-"Name", keuchte Taron.
+„Name“, keuchte Taron.
 
-Elva beugte sich zu ihm. "Was?"
+Elva beugte sich zu ihm. „Was?“
 
-"Namen. Er nimmt Deutung. Namen holen zurueck."
+„Namen. Er nimmt Deutung. Namen holen zurück.“
 
-Sie verstand schneller, als er erklaeren konnte. "Varga!"
+Sie verstand schneller, als er erklären konnte. „Varga!“
 
 Der Zwerg sah sie nicht an.
 
-"Varga Steinsohn!"
+„Varga Steinsohn!“
 
 Diesmal zuckte sein Blick.
 
-Brokk atmete aus. "Steinsohn?"
+Brokk atmete aus. „Steinsohn?“
 
-"Ich habe geraten", sagte Elva.
+„Ich habe geraten“, sagte Elva.
 
-"Sein Vater hiess nicht Stein."
+„Sein Vater hieß nicht Stein.“
 
-"Es hat trotzdem funktioniert."
+„Es hat trotzdem funktioniert.“
 
-Varga knurrte, aber die Axt sank noch eine Handbreit. "Eisenhand."
+Varga knurrte, aber die Axt sank noch eine Handbreit. „Eisenhand.“
 
-"Ja", sagte Brokk. "Ich."
+„Ja“, sagte Brokk. „Ich.“
 
 Nicht Hauptmann. Nicht Verräter. Nicht Brokks Titel. Ich.
 
 Rugar atmete wieder.
 
-Der Daemon blieb an der Schwelle stehen. Er sah zurueck, und diesmal schien er Taron wirklich zu sehen. Nicht den Schluessel. Nicht den falschen Helden. Den Menschen mit der angeschlagenen Stimme in sich.
+Der Dämon blieb an der Schwelle stehen. Er sah zurück, und diesmal schien er Taron wirklich zu sehen. Nicht den Schlüssel. Nicht den falschen Helden. Den Menschen mit der angeschlagenen Stimme in sich.
 
-"Du wirst lernen", sagte der Daemon.
+„Du wirst lernen“, sagte der Dämon.
 
-"Hoffentlich nicht von dir."
+„Hoffentlich nicht von dir.“
 
-"Von ihm." Der Daemon laechelte. "Er kennt meine Angst besser, als er zugibt."
+„Von ihm.“ Der Dämon lächelte. „Er kennt meine Angst besser, als er zugibt.“
 
-Der Erzaehler wurde so kalt, dass Taron ihn kaum noch spuerte.
+Der Erzähler wurde so kalt, dass Taron ihn kaum noch spürte.
 
-"Was meint er?"
+„Was meint er?“
 
-"Spaeter."
+„Später.“
 
-"Ich beginne, dieses Wort strafrechtlich pruefen zu wollen."
+„Ich beginne, dieses Wort strafrechtlich prüfen zu wollen.“
 
-"Spaeter", sagte der Erzaehler noch einmal, und diesmal klang es nicht wie Ausweichen, sondern wie Blutverlust.
+„Später“, sagte der Erzähler noch einmal, und diesmal klang es nicht wie Ausweichen, sondern wie Blutverlust.
 
-Der Daemon trat durch die Schwelle.
+Der Dämon trat durch die Schwelle.
 
-Keine Explosion. Kein Triumph. Nur ein Verlust an Druck, als habe jemand eine schwere Tuer geoeffnet und die falsche Luft hineingelassen.
+Keine Explosion. Kein Triumph. Nur ein Verlust an Druck, als habe jemand eine schwere Tür geöffnet und die falsche Luft hineingelassen.
 
 Taron versuchte aufzustehen. Elva half ihm, obwohl sie ihn dabei beschimpfte.
 
-"Du kannst nicht hinterher."
+„Du kannst nicht hinterher.“
 
-"Ich weiss."
+„Ich weiß.“
 
-"Dein Gesicht weiss es nicht."
+„Dein Gesicht weiß es nicht.“
 
-"Mein Gesicht bekommt weiterhin keine Befehlsgewalt."
+„Mein Gesicht bekommt weiterhin keine Befehlsgewalt.“
 
-Sie legte seinen Arm ueber ihre Schulter. "Dann sag es deinen Beinen."
+Sie legte seinen Arm über ihre Schulter. „Dann sag es deinen Beinen.“
 
-Seine Beine hatten eigene juristische Einwaende. Sie wurden ueberstimmt.
+Seine Beine hatten eigene juristische Einwände. Sie wurden überstimmt.
 
-Oswin liess den Soldaten los und packte stattdessen dessen Speer. "Du gehst nach oben und rufst, dass Rugar lebt."
+Oswin ließ den Soldaten los und packte stattdessen dessen Speer. „Du gehst nach oben und rufst, dass Rugar lebt.“
 
 Der Soldat starrte ihn an.
 
-"Jetzt."
+„Jetzt.“
 
-"Wer befiehlt das?"
+„Wer befiehlt das?“
 
-Oswin sah ihn an. "Ein Mann, der gerade entschieden hat, dich nicht fuer Dummheit sterben zu lassen. Nutze die Verwirrung."
+Oswin sah ihn an. „Ein Mann, der gerade entschieden hat, dich nicht für Dummheit sterben zu lassen. Nutze die Verwirrung.“
 
 Der Soldat rannte.
 
-Brokk hob Rugar mit Vargas Hilfe an. Die beiden Zwerge beruehrten einander nicht mehr als noetig. Aber sie halfen am selben Koerper. In diesem Augenblick war das mehr Politik, als jeder Vertrag haette leisten koennen.
+Brokk hob Rugar mit Vargas Hilfe an. Die beiden Zwerge berührten einander nicht mehr als nötig. Aber sie halfen am selben Körper. In diesem Augenblick war das mehr Politik, als jeder Vertrag hätte leisten können.
 
-Merlan sammelte die Schluessel ein und gab sie nicht einem Koenig, sondern Elva. Sie nahm sie wortlos und band den Beutel so fest zu, als koenne Knotenarbeit alte Maechte beeindrucken.
+Merlan sammelte die Schlüssel ein und gab sie nicht einem König, sondern Elva. Sie nahm sie wortlos und band den Beutel so fest zu, als könne Knotenarbeit alte Mächte beeindrucken.
 
-"Was jetzt?", fragte sie.
+„Was jetzt?“, fragte sie.
 
 Taron sah zur Treppe, aus der Rauch und Stimmen kamen.
 
-"Jetzt muessen wir verhindern, dass die Wahrheit oben wieder stirbt."
+„Jetzt müssen wir verhindern, dass die Wahrheit oben wieder stirbt.“
 
-Der Erzaehler sagte: "Eine Aufgabe, die in der Geschichte selten unterbesetzt ist."
+Der Erzähler sagte: „Eine Aufgabe, die in der Geschichte selten unterbesetzt ist.“
 
-"Kannst du helfen?"
+„Kannst du helfen?“
 
 Eine Pause.
 
-"Wenig."
+„Wenig.“
 
-"Dann wenig."
+„Dann wenig.“
 
 Sie gingen zur Treppe.
 
@@ -644,4 +644,4 @@ Hinter ihnen blieb der Eidstein offen, verletzt, leise klingend. Vor ihnen warte
 
 Taron hielt sich an Elva fest und dachte, dass Wahrheit vielleicht kein Licht war.
 
-Vielleicht war sie eher Rauch: laestig, unordentlich, schlecht fuer die Augen, aber manchmal genau dicht genug, um den naechsten Schlag zu verhindern.
+Vielleicht war sie eher Rauch: lästig, unordentlich, schlecht für die Augen, aber manchmal genau dicht genug, um den nächsten Schlag zu verhindern.
