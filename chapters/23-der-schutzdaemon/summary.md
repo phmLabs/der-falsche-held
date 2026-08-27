@@ -1,4 +1,10 @@
-- Merlan erklaert aus Randnotizen und Schluesselzeichen, dass Tarons Stimme ein gebundener Schutzdaemon sein duerfte.
-- Schutzdaemonen sollten Eidtraeger schuetzen, nicht beherrschen.
-- Taron erkennt, dass sein Freund aus der Kindheit wirklich war.
-- Der Erzaehler bestaetigt nur so viel, wie sein Eid erlaubt.
+- Merlan erklaert beim Gehen Schutzdaemonen: gebunden an Auftraege, nicht an Gefuehl. Drei Fragen: Schutz wovor, wofuer, um welchen Preis. Die dritte darf kein Wesen allein beantworten, weil der Preis immer von jemand anderem bezahlt wird.
+- Oswin kennt "Schuetze den Eid selbst" aus Befehlen: Man bekommt nie den Befehl, ein Dorf zu verbrennen, nur den, eine Linie zu halten.
+- Der Erzaehler nennt seinen ersten Auftrag (den Traeger des Menschenschluessels bewahren) und erklaert, warum er mit einem Kind im Stall redete: Das Dach hatte ein Loch, und niemand kam.
+- Dorf mit vier bewohnten Haeusern; ein Alter schnitzt Falken mit gesenktem Kopf. Die Hueterzeichen kommen wieder heraus.
+- Marta hat dem Kind im Stall geglaubt: zwei Schalen, eine mit Tuch abgedeckt.
+- Taron findet Arvens Zettel in der Mantelfalte. Elva erkennt den Stallbogen im R: dieselbe Hand, mit der man sie Rueben zaehlen liess.
+- Am Feuer: Was der andere ist. Ein Schutzdaemon, der Schutz ohne Zustimmung fuer wirksamer hielt; gebannt von mueden Leuten, vergessen. Vergessen ist fuer solche Wesen ein Raum ohne Licht. Der Erzaehler hat seine zehn Jahre mit dem Gedanken an Martas Linsensuppe ueberstanden. Namen ziehen an; "Niemand" ist eine Stelle, die niemand rufen kann. Merlan: Der andere braucht die drei Schluessel und eine Schlacht.
+- Traum von Arven, dem Messer und dem Erzaehler, der recht gibt und trotzdem aufhaelt.
+- Elva: "Wenn du etwas tust, das nicht zu deinem Gesicht passt, sage ich es. Laut."
+- Der Bote Niko: Die Zwerge marschieren, Rugar fuehrt sie selbst, vier Banner, also die unteren Hallen. Aufbruch nach Waldkirch. Rauch im Westen: Bauern brennen Felder ab. "Dann muessen wir leiser werden?" "Nein. Genauer."

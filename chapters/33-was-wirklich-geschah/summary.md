@@ -1,4 +1,0 @@
-- Der andere Daemon wird frei und verlaesst Rugar.
-- Rugar bricht bewusstlos zusammen.
-- Die Zwerge glauben, die Menschen haetten ihren Koenig getoetet.
-- Die Wahrheit ueber den Krieg vor zehn Jahren blitzt auf, geht aber im neuen Kampf unter.

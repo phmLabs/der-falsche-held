@@ -1,0 +1,12 @@
+- Rugar bricht zusammen und lebt. Der andere gewinnt Form und hebt die Riegel des Eidenschlosses aus den Angeln. Der Erzaehler bleibt, sehr fern: "Gut."
+- Von oben: "Der Koenig ist gefallen!" Varga kommt und versteht falsch. Der andere musste nichts erfinden, nur genug Wirklichkeit zuruecklassen.
+- Vision: Riedwacht, Waldkirch, Karndorn. Keine der Luegen war ganz falsch; die dritte Hand hat jede Wahrheit so gedreht, dass sie schneidet.
+- Brokk haelt Vargas Axt: "Dann siehst du endlich mich." Rugar fluestert "Brokk". Ein Soldat sticht in den Augenblick.
+- Der Daemon dirigiert die Schlacht oben mit kleinen Bewegungen und geht durch den Riss: "Dein Hueter wird dich nicht halten. Er liebt dich inzwischen." Merlan notiert den Verlauf mit Kohle.
+- Elva ruft "Varga Steinsohn" und trifft, obwohl sie geraten hat. Der Name holt zurueck.
+- Die Kammer wird Kampf. Taron greift nach der Rauchkugel. Ganz. Natuerlich ganz.
+- Die Kugel zerbricht nicht auf Absicht, sondern auf Bäckerkraft ("Dann sei ein grober Baecker!"). Sie baut Druck auf. Im Rauch verlieren Titel ihre Wirkung.
+- Zaehlung der Geretteten laeuft durch: eins, zwei in der Kammer, drei und vier (der mit der Stufe), fuenf und sechs am Tor, sieben bis neun im Hof, zehn als Rugar hustet, elf der Bogenschuetze.
+- Marta am Brunnen: "Wir haben nicht genug Wasser fuer niemanden. Deshalb wird jetzt nicht zweimal gefragt." Der Erzaehler sagt nur "Suppe".
+- Taron laeutet die Handglocke. Der Hunger liegt im Schatten und kommt nicht, weil niemand ihn gerufen hat. Varga bricht nicht an den Zeichen auf seinem Koenig, sondern an der offenen Hand auf Elvas Handflaeche.
+- Elva wirft die Glocke gegen die Zinne, der Bogenschuetze senkt den Bogen. Rugar oeffnet die Augen, trinkt aus Martas Becher, beruehrt den Hammer und nimmt ihn nicht.

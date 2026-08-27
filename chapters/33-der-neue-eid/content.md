@@ -690,17 +690,17 @@ In der Nacht wurden die Toten aufgebahrt. Nicht zusammen. Noch nicht. Aber im se
 
 Oswin stand lange bei den Zwergentoten. Brokk stand lange bei den Menschentoten. Keiner sagte dem anderen, was er dort zu suchen hatte.
 
-Schließlich kam Oswin zurück und sagte: „Acht.“
+Schließlich kam Oswin zurück und sagte: „Elf.“
 
 Brokk sah ihn an.
 
 „Gerettete“, sagte Oswin.
 
-Brokk nickte. „Neun. Der Bogenschütze auf der Mauer.“
+Brokk nickte. „Zwölf. Die mit dem Ohr.“
 
-„Den hat Taron gezählt.“
+„Die hat Marta gezählt.“
 
-„Dann zehn.“
+„Dann dreizehn.“
 
 Taron, der eigentlich nur Wasser holen wollte, blieb stehen. „Ich bin nicht sicher, ob ich in eure Listen gehören will.“
 

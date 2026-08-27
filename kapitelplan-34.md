@@ -95,10 +95,15 @@ Eidstein unter Waldkirch erwacht. Merlan reist mit.
 Albrecht und Malchior ist sein Leiden „tragbar“. Sie ist nicht wegen des Helden
 gekommen, sondern wegen Taron.
 
-**23. Der Schutzdämon.** Merlan erklärt, wie Schutzdämonen gebunden werden. In
-der Innenfalte seines Mantels findet Taron Arven Falkenrieds Zettel: *Trau der
-Stimme. Er war mein Freund.*
-
+**23. Der Schutzdämon.** Merlan erklärt beim Gehen, wie Schutzdämonen gebunden
+werden und warum die dritte Frage – Schutz um welchen Preis – niemand allein
+beantworten darf. In der Innenfalte seines Mantels findet Taron Arven
+Falkenrieds Zettel: *Trau der Stimme. Er war mein Freund.* Am Feuer erklärt der
+Erzähler den anderen: ein Schutzdämon, der Schutz ohne Zustimmung für wirksamer
+hielt, gebannt und vergessen; die zehn Jahre nach dem Horn hat er selbst mit dem
+Gedanken an Martas Suppe überstanden. Traum von Arven und dem Messer. Am Morgen
+bringt der Bote Niko die Nachricht: Die Zwerge marschieren, Rugar führt sie
+selbst.
 **24. Der Schwur ohne Schlüssel.** Abendriss aus Nerals Sicht, elf Tage nach dem
 Diebstahl. Die Nische hat sich wieder geschlossen. Neral gibt zu, dass er Taron
 den Weg verraten hat, und Ulhart legt den Schwur so aus, dass er gehalten wurde:
@@ -109,53 +114,48 @@ Masken waren Schutz für Familien, bevor sie Würde und dann Drohung wurden. Kes
 bringt eine Warnung nach Waldkirch; ein Priester schreibt sie sorgfältig auf, und
 drei Tage später liegt kein Eintrag vor. Danach warten sie auf ein Zeichen.
 
-**25. Der andere.** Der Erzähler gesteht, dass er Arven gegen dessen Willen
-aufgehalten hat. Ein Bote meldet: Die Zwerge marschieren, Rugar führt sie selbst.
-
 ## Teil 3 – Waldkirch
 
-**26. Rückkehr nach Waldkirch.** Eine Burg voller Hunger, Angst und roter
+**25. Rückkehr nach Waldkirch.** Eine Burg voller Hunger, Angst und roter
 Stoffstreifen. Elva sagt Albrecht ins Gesicht, was sie gehört hat. Dann bläst
 das Horn.
 
-**27. Der Krieg beginnt.** Rugar spricht vor der Mauer und nennt echte Not, um
+**26. Der Krieg beginnt.** Rugar spricht vor der Mauer und nennt echte Not, um
 eine falsche Lösung zu verkaufen. Ein Pfeil fliegt, niemand weiß von welcher
 Seite.
 
-**28. Die falsche Schlacht.** Im Hof zählen Oswin und Brokk zum ersten Mal
+**27. Die falsche Schlacht.** Im Hof zählen Oswin und Brokk zum ersten Mal
 Gerettete statt Tote. Taron benutzt die Rauchkugel wieder nicht – diesmal, weil
 Oswin es verbietet. Die drei Schlüssel öffnen das Tor in die Tiefe.
 
-**29. Unter der Burg.** Der Hunger von Waldkirch ist kein Monster, sondern ein
+**28. Unter der Burg.** Der Hunger von Waldkirch ist kein Monster, sondern ein
 Wächter ohne Nachfolger. An der Wand stehen die Namen derer, die den Eid
 tatsächlich gehalten haben. Er gibt den Weg frei.
 
-**30. Der Eidstein.** Die Kammer mit den zwölf Zeugenplätzen, aus denen die
+**29. Der Eidstein.** Die Kammer mit den zwölf Zeugenplätzen, aus denen die
 Namen herausgeschnitten wurden. Rugar zieht die drei Schlüssel an sich. Brokk
 setzt zum Eid an.
 
-**31. Nicht für eine Seite.** Brokk scheitert, weil er für Karndorn spricht.
+**30. Nicht für eine Seite.** Brokk scheitert, weil er für Karndorn spricht.
 Taron spricht für niemanden – und sagt Nein. Der andere schickt die
 Schattenwächter.
 
-**32. Der Erzähler tritt vor.** Der Erzähler bricht sein Schweigen und übernimmt
+**31. Der Erzähler tritt vor.** Der Erzähler bricht sein Schweigen und übernimmt
 Taron. Alle Gebundenen im Raum fallen. Taron ist nicht dankbar, sondern wütend.
 Der Dämon bekommt einen Körper.
 
-**33. Was wirklich geschah.** Rugar fällt, Varga versteht falsch, und Taron sieht,
+**32. Was wirklich geschah.** Rugar fällt, Varga versteht falsch, und Taron sieht,
 wie die dritte Hand jede Wahrheit so gedreht hat, dass sie schneidet. Der Dämon
-geht frei durch den Riss.
-
-**34. Stille auf dem Schlachtfeld.** Taron zerbricht endlich die Rauchkugel. Im
-Rauch verlieren Titel ihre Wirkung. Sie bringen Rugar in den Hof, wo er die
-Augen aufschlägt.
-
-**35. Der neue Eid.** Rugar erwacht ohne fremde Stimme und widerspricht seinem
+geht frei durch den Riss. Taron zerbricht endlich die Rauchkugel. Im Rauch
+verlieren Titel ihre Wirkung, Marta entscheidet die Wasserfrage im Hof, und Varga
+bricht an der offenen Hand auf Elvas Handfläche. Sie bringen Rugar in den Hof,
+wo er die Augen aufschlägt.
+**33. Der neue Eid.** Rugar erwacht ohne fremde Stimme und widerspricht seinem
 eigenen Befehl. Waffen sinken, weil Namen gerufen werden statt Ränge. Der Hunger
 bekommt Brot und einen Namen. Neral kommt aus Abendriss und findet alles zu spät
 vor. Die Glocke bleibt stumm.
 
-**36. Natürlich war das geplant.** Taron erfährt, warum der Erzähler ihn nicht
+**34. Natürlich war das geplant.** Taron erfährt, warum der Erzähler ihn nicht
 warnen durfte. Der Erzähler will frei sein und bleiben, beides zugleich. Taron
 vertagt die Entscheidung, sagt Elva nicht, was er sagen wollte, und geht
 Suppe essen. Der andere Dämon ist irgendwo im Osten.

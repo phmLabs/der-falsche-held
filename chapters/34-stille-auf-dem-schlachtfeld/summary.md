@@ -1,4 +1,0 @@
-- Der Kampf wird wild, weil beide Seiten das Schlimmste glauben.
-- Taron zerbricht endlich Merlans Rauchkugel und rettet sich vor den Zwergen.
-- Oswin und Brokk halten gemeinsam eine Flanke.
-- Sie zaehlen Gerettete statt nur Tote und merken, dass eine neue Liste begonnen hat.

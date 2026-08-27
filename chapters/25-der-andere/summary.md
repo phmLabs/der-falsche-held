@@ -1,4 +1,0 @@
-- Die Gruppe erkennt, dass Rugar ebenfalls eine Stimme hat.
-- Dieser andere Schutzdaemon schuetzt nicht mehr, sondern kontrolliert und lenkt.
-- Er wurde einst hinter dem Eidenschloss gebannt und nutzt Risse, um Menschen und Zwerge gegeneinander zu fuehren.
-- Der Erzaehler erkennt die Gefahr, darf sie aber nur indirekt benennen.
