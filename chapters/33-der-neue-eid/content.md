@@ -374,43 +374,7 @@ Elva wiederholte den Namen nicht lauter. Sie stellte ihn nur in die Luft, vorsic
 
 Der Hunger gab einen Laut von sich, der beinahe Weinen war und beinahe Steinbruch. Einige Menschen wichen zurück. Einige Zwerge auch. Niemand lachte.
 
-Rugar sah zum Tor. „Was ist das?“
-
-Merlan antwortete leise: „Ein alter Fehler, der noch Dienst tut.“
-
-Taron dachte an Waldkirchs Hunger, an Karndorns Hunger, an alle Reiche, die ihre Not in Monster verwandelten und dann so taten, als sei Töten eine Lösung.
-
-Rugar sah ihn lange an.
-
-„Ich ließ dich Monster nennen“, sagte er.
-
-Niemand wusste, ob er zum Hunger sprach, zu Brokk, zu Waldkirch oder zu sich selbst. Vielleicht zu allen.
-
-Der Hunger senkte den Kopf.
-
-Albrecht trat neben ihn.
-
-„Wir haben ihn ohne Namen gehalten“, sagte Albrecht.
-
-„Und wir haben nach einem Recht ohne Namen gesucht“, sagte Rugar.
-
-Brokk kniete vor Rugar. „Der alte Eid kann nicht von einer Seite erneuert werden.“
-
-Rugar nickte langsam.
-
-Albrecht sagte: „Und nicht von zwei Königen, die einander gerade noch töteten.“
-
-„Nein“, sagte Taron.
-
-Alle sahen ihn an.
-
-Er war es leid, wenn das passierte.
-
-„Aber vielleicht von Leuten, die endlich wissen, dass sie es nicht allein dürfen.“
-
-Taron stand zwischen Rauch, Namen und sinkenden Waffen und merkte, dass die Stille nicht kam, weil alle auf einmal gut geworden waren. Sie kam, weil genug Leute für einen Atemzug die Hand des anderen als Hand sahen, nicht als Teil einer Seite.
-
-Das war kleiner als Erlösung. Es war auch seltener.
+Dann senkte der Hunger den Kopf auf die Vorderarme, und seine Zeichen wurden ruhig.
 
 Der neue Eid wurde an diesem Tag nicht vollendet.
 
@@ -497,8 +461,6 @@ Der Zwerg dachte nach.
 „Das hilft der Feder wenig.“
 
 Der Zwerg nahm ihm die Feder ab und schrieb selbst. Danach gab er sie zurück, ohne Danke zu sagen. Taron nahm das als Fortschritt. Danke war ein großes Wort, und beide Seiten hatten heute schon genug große Wörter missbraucht.
-
-Das war unromantisch und deshalb glaubwürdig. Zwerge trugen menschliche Verwundete in die Halle, weil sie stärker waren und weil Verwundete schwer blieben, egal auf welcher Seite sie gefallen waren. Menschen holten Wasser für Zwerge, erst widerwillig, dann schneller, als klar wurde, dass Durst keine politischen Vorlieben hatte. Oswin stellte zwei junge Ritter ab, die Waffen einzusammeln, und Brokk stellte zwei Zwerge daneben, damit niemand aus Sammlung Plünderung machte.
 
 Merlan schrieb Namen auf.
 
@@ -714,10 +676,6 @@ Manchmal war nichts genau genug.
 
 Über ihnen blieb die Glocke stumm. Nicht verboten. Nur wartend.
 
-Dieses Warten war neu.
-
-Früher hatte Stille in Waldkirch bedeutet, dass etwas im Keller lauerte oder jemand im Saal eine Wahrheit verschwieg. Jetzt bedeutete sie: noch nicht. Nicht aus Angst. Aus Entscheidung.
-
 Taron stand unter dem Turm und sah hinauf.
 
 „Irgendwann“, sagte Elva neben ihm.
@@ -771,8 +729,6 @@ Rugar senkte den Blick. „Ich habe Befehle gegeben.“
 Rugar sah ihn an. „Das macht es nicht leichter.“
 
 „Soll es auch nicht.“
-
-Zwischen den beiden stand eine Freundschaft, die nicht heil war, aber auch nicht tot. Taron dachte, dass manche Dinge nach einem Krieg nicht repariert wurden. Sie wurden getragen, und vielleicht wurde man dabei so stark, dass man eines Tages nicht mehr darunter zusammenbrach.
 
 Albrecht trat näher an die Schwelle. Der Hunger hob den Kopf. Alle Wächter spannten sich. Elva legte eine Hand an ihr Messer. Marta war nicht dabei, und Taron fand das unfair, weil dieser Augenblick eindeutig eine Person mit Suppenkelle gebraucht hätte.
 

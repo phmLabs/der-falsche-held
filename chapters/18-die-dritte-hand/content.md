@@ -140,7 +140,6 @@ Pause.
 
 Taron gab das nicht weiter. Er wusste nicht, wie man es übersetzte, ohne dass Brokk die Axt hob.
 
-
 Die Botschaft war nicht vollständig. Vielleicht war sie nie vollständig gewesen. Vielleicht hatte Vollständigkeit an solchen Orten als Einladung zur Dummheit gegolten. Aber genug blieb: Menschen und Zwerge hatten das Schloss gemeinsam errichtet. Nicht für einen Sieg. Für eine Fessel. Nicht gegen ein Volk. Gegen etwas, das Schutz versprach und Herrschaft meinte.
 
 „Ein Wesen“, sagte Brokk.
@@ -199,7 +198,6 @@ Der Erzähler brauchte lange.
 
 „Weil er einem alten Wesen Trost anbietet und dabei keine seiner Bedingungen zurücknimmt. So etwas tun sonst nur Leute, die recht haben.“
 
-
 Brokk hob den Schutzschlüssel nicht auf. Er legte den Zwergenschlüssel neben den Menschenschlüssel, den Taron aus seinem Hemd zog, und wartete.
 
 „Zusammen?“, fragte Taron.
@@ -215,37 +213,6 @@ Taron sagte: „Er meint: noch nicht.“
 Der Erzähler antwortete nicht.
 
 Brokk nahm den Zwergenschlüssel wieder an sich. Taron den Menschenschlüssel. Elva wickelte den Schutzschlüssel in ein Stück Stoff, ohne ihn direkt zu berühren. Das Metall bewegte sich nicht, aber Taron hatte den Eindruck, dass etwas im Boden erleichtert ausatmete.
-
-„Wie ist er?“, fragte Taron, als sie schon gingen.
-
-Elva brauchte eine Weile. „Kalt.“
-
-„Nur kalt?“
-
-„Nein.“ Sie sah auf das Bündel unter ihrem Mantel. „Der Menschenschlüssel wird warm, wenn du in seiner Nähe etwas tust. Ich habe es dreimal gesehen. Dieser hier macht das Gegenteil. Er wird kälter, je näher etwas kommt.“
-
-„Das klingt nach einer Warnung.“
-
-„Es klingt nach einem Türsteher.“
-
-Sie ging drei Schritte weiter. „Und einmal, kurz, war er warm.“
-
-„Wann?“
-
-„Als Brokk seinen daneben legte.“
-
-Taron sah nach vorn zu Brokk, der mit gesenktem Kopf ging und aussah wie ein Mann, der zwei Gedanken gleichzeitig trug und beide für schlecht hielt.
-
-„Sag ihm das nicht“, sagte Taron.
-
-„Warum nicht?“
-
-„Weil er dann hofft.“
-
-Elva zog den Mantel enger. „Das dürfte er.“
-
-„Ja“, sagte Taron. „Nur nicht heute Abend.“
-
 
 Aus dem Nebel kam Vargas Hornruf.
 
@@ -309,7 +276,6 @@ Taron sah in die Senke.
 
 Brokk stand auf und wischte sich die Hand am Mantel ab. „Es ist die Arbeit von jemandem, der plant, wiederzukommen.“
 
-
 Oswin war sofort neben ihr. „Von Varga?“
 
 „Nein. Älter. Aber nicht sehr alt.“
@@ -350,7 +316,6 @@ Brokk nickte. „Alles, was Rugar seit Riedwacht befohlen hat, hat er im Namen v
 
 „Ich weiß“, sagte Brokk. „Deshalb ist es keine zwergische Krankheit.“
 
-
 Der Erzähler wurde so still, dass Taron ihn fast verlor.
 
 Elva sah zu Taron. „Das ist genau das, was die andere Stimme bricht.“
@@ -384,7 +349,6 @@ Taron sah zu ihm auf.
 „Und wer streicht?“
 
 „Der, der ihn hineingeschrieben hat.“
-
 
 Der Menschenschlüssel wurde schwer.
 
@@ -507,7 +471,6 @@ Sie legte Zweige, bis der Boden steinig wurde. Dann ging sie den Rest des Weges,
 Broda sagte nichts dazu.
 
 Ihr Gesicht sagte hinreichend viel.
-
 
 Am Rand der Senke blieb Brokk noch einmal stehen. Er legte die Hand nicht auf den Zwergenschlüssel, sondern daneben, als müsse selbst er lernen, dass Besitz hier die falsche Geste war.
 

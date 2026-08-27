@@ -82,16 +82,6 @@ Merlan ließ die drei Kreise stehen. „Das ist die einzige der drei, die kein W
 
 „Weil der Preis immer von jemand anderem bezahlt wird.“ Merlan hielt die Kreide hoch. „Wenn ich dich vor einem Sturz bewahre, indem ich dir das Bein brechen lasse, habe ich dich geschützt. Wenn ich dich vor einer Entscheidung bewahre, indem ich sie selbst treffe, habe ich dich ebenfalls geschützt. Das Zweite fällt niemandem auf, weil man es nicht sieht.“
 
-Taron ging eine Weile schweigend.
-
-„Merlan.“
-
-„Ja?“
-
-„Ich hätte gern, dass du diesen Satz an einem anderen Tag sagst.“
-
-„Es gibt keine anderen Tage mehr“, sagte Merlan freundlich. „Nur diesen und die davor.“
-
 Taron sah auf die Kreidekreise. „Und meiner?“
 
 „Das“, sagte Merlan, „weiß vermutlich nur er.“

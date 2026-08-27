@@ -26,9 +26,7 @@ Marta hatte ihm vorher Suppe gegeben und gesagt, wer Kraft zum Deuten habe, habe
 
 Der andere Dämon war fort.
 
-Das war kein Sieg. Es war eine Richtung, in die später jemand sehr ungern würde gehen müssen.
-
-Niemand wusste, wohin er gegangen war. Der Erzähler sagte es nicht, und diesmal fragte Taron nicht sofort. Nicht aus Vertrauen. Aus Erschöpfung. Außerdem hatte er gelernt, dass manche Antworten erst dann nützlich wurden, wenn man genug Brot gegessen hatte, um sie nicht nur als neuen Grund zur Panik zu benutzen.
+Niemand wusste, wohin. Der Erzähler sagte es nicht, und Taron fragte nicht, weil er dafür noch nicht genug Brot gegessen hatte.
 
 Trotzdem spürte er etwas am Rand der Welt. Eine dünne Kante. Als habe jemand eine Tür offen gelassen, weit draußen, hinter Bergen, Hallen, alten Grenzen.
 
@@ -492,8 +490,6 @@ Es war nur da.
 
 Und für den Augenblick blieb es.
 
-Später, sehr viel später, würden sie vermutlich Karten ausbreiten und Pfeile darauf zeichnen. Der andere Dämon war frei. Irgendwo würde ein alter Eid dünner werden, eine Grenze falsch klingen, ein König zu gut beraten werden. Menschen und Zwerge würden wieder streiten, diesmal vielleicht nebeneinander statt immer nur gegeneinander. Vielleicht würde Taron mitgehen. Wahrscheinlich würde man ihn fragen. Noch wahrscheinlicher würde man versuchen, es wie einen Befehl klingen zu lassen.
-
 Aber an diesem Abend blieb er auf der Mauer sitzen, mit Elva neben sich, Martas Suppe im Hof, Oswins und Brokks leisen Zahlen am Tor und einer Stimme im Kopf, die nicht frei war und nicht fort.
 
 Das war kein ordentliches Ende.
@@ -547,8 +543,6 @@ Taron stand auf. Seine Beine schmerzten. Sein Kopf auch. Die Welt ebenfalls, ver
 „Ausgezeichnet“, sagte der Erzähler. „Dann war ja wirklich alles geplant.“
 
 Taron ging die Treppe hinunter und ließ die Antwort offen.
-
-Das war vermutlich die ehrlichste Art, diese Geschichte für den Moment zu beenden: nicht mit einer Antwort, sondern mit jemandem, der trotzdem weiterging.
 
 Unten wartete Suppe.
 

@@ -140,7 +140,6 @@ Oswin sagte hinter ihnen: „Das kenne ich in menschlicher Fassung.“
 
 „Erzähl sie nicht“, sagte Brokk. „Ich habe heute genug.“
 
-
 „Niemand verteidigt gerade Abschriften“, sagte Taron.
 
 „Ich verteidige mich grundsätzlich früh.“
@@ -194,19 +193,6 @@ Taron merkte es, weil er inzwischen auf solche Kleinigkeiten achtete. Früher h�
 Taron sah auf die drei Linien, die den Kreis nicht erreichten. „Das ist keine Zahl.“
 
 „Nein“, sagte der Erzähler. „Es ist eine Richtung.“
-
-Dann sprach er weiter, ohne dass Taron nachfragte, was so selten war, dass Taron unwillkürlich stehen blieb.
-
-„Solche Stellen wurden nicht als Denkmal gebaut. Sie waren Arbeitsplätze. Hier hat jemand gesessen, mit kalten Füßen, und einen Eid festgehalten, damit später nachweisbar ist, dass er gesprochen wurde. Es gab dafür Handwerk, Werkzeug und schlechte Bezahlung.“
-
-„Das klingt fast liebevoll.“
-
-„Ich mochte die Leute, die das gemacht haben. Sie waren nicht wichtig, sie wussten es, und sie haben es trotzdem sauber gemacht.“
-
-„Was ist mit ihnen passiert?“
-
-„Sie sind alt geworden und gestorben, und niemand hat sie ersetzt, weil in der Zwischenzeit alle beschlossen hatten, Eide seien etwas, das Könige aussprechen.“
-
 
 Taron sah zur Wand. „Drei Schlüssel?“
 
@@ -518,7 +504,6 @@ Brokk sah lange auf die Wand. „Vier?“
 
 Der Erzähler sagte nichts, und Taron merkte, dass das inzwischen die genaueste Bestätigung war, die er bekam.
 
-
 „Dort.“
 
 „Noch ein Loch?“, fragte Taron.
@@ -603,7 +588,6 @@ Broda stand noch einen Atemzug. Dann steckte sie die Axt weg, was schlimmer auss
 
 Sie sagte auf dem ganzen weiteren Weg kein Wort. Viel später, in einem Hof voller Rauch, würde Taron sehen, wie sie einen verletzten Menschen aus dem Gedränge zog, und begreifen, dass sie in diesem Gang angefangen hatte.
 
-
 Elva kroch zuerst durch die Öffnung. Sie passte besser hindurch als Oswin, was niemand erwähnte, weil Oswin ein Schwert hatte und eine verletzte Würde mehr Platz brauchte als seine Schultern.
 
 Taron folgte ihr.
@@ -647,7 +631,6 @@ Elva rief von vorn: „Zehn Schritte.“
 „Ich lebe.“
 
 „Weiter.“
-
 
 „Weiter“, sagte Oswin hinter ihm.
 

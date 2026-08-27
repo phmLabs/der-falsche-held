@@ -46,7 +46,6 @@ Dann sagte er etwas auf Zwergisch, kurz und beiläufig, und Broda hob den Kopf.
 
 „Es ist eine Aufgabe“, sagte Broda. „Bei uns gibt man keine Aufgabe an jemanden, den man am nächsten Morgen erschlagen will. Das gilt als unordentlich.“
 
-
 Taron sah ihn an. „Das ist jetzt schon das zweite Mal, dass du einem Zwerg recht gibst.“
 
 „Ich führe keine Liste.“
@@ -113,7 +112,6 @@ Taron sah zu der Stelle im Dunkeln, an der Brokk saß.
 
 Der Erzähler sagte nichts dazu, was Taron als Zustimmung nahm und dann, kurz vor dem Einschlafen, als etwas Unangenehmeres.
 
-
 Oswin stand etwas abseits.
 
 Brokk ebenfalls.
@@ -171,7 +169,6 @@ Taron sah zu ihr. „Was war deine?“
 Senn sagte: „Ich lache innerlich.“
 
 „Das ist nicht dasselbe, Senn.“
-
 
 „Und du weißt es?“, fragte Taron.
 
@@ -288,7 +285,6 @@ Es blieb eine Weile still.
 Brokk brummte etwas, das keine Übersetzung brauchte.
 
 Taron merkte, dass die beiden gerade zum ersten Mal über einen Toten gesprochen hatten, den keiner von ihnen mitzählen musste, und dass das offenbar leichter war.
-
 
 Brokk nahm einen Schluck aus seiner Eisenflasche. „Dann gab es wenigstens einen ehrlichen Bericht.“
 
@@ -418,7 +414,6 @@ Brokk sah ihn an.
 
 „Ich habe zwölf Jahre Befehle bekommen.“
 
-
 Der Erzähler zog sich in Tarons Kopf zurück wie jemand, der einen bekannten Abgrund wiedererkannte.
 
 „Frag ihn etwas für mich“, sagte die Stimme.
@@ -452,7 +447,6 @@ Taron saß sehr still.
 „Ich meine, es ist einer wie ich. Das ist schlimmer, weil es genauer ist.“
 
 Taron sah zu Brokk, der auf seinen Stab starrte, und dann in die Dunkelheit links von sich, wo niemand stand und wo, so weit Taron das beurteilen konnte, seit sieben Jahren im Stall angefangen niemand gestanden hatte.
-
 
 „Später sagte der König, die Menschen würden den Schlüssel erneut stehlen. Dann sagte er, der Menschenschlüssel müsse her. Dann der Schutzschlüssel. Dann sagte er, die Schlüssel brächten Freiheit.“
 
@@ -523,39 +517,6 @@ Senn zog eine gefaltete Hautkarte aus seinem Mantel. Sie war kleiner als eine me
 Senn sah ihn an. „Das soll dich am Leben halten.“
 
 „Dann erkenne ich ihre Schönheit sofort.“
-
-Senn hielt die Karte trotzdem so, dass Taron mitsehen konnte, was Taron als das freundlichste deutete, was ein Zwerg mit einer Karte tun konnte.
-
-„Die Striche sind Gänge?“, fragte er.
-
-„Die Striche sind Gänge, die halten.“
-
-„Und die gestrichelten?“
-
-„Gänge, die gehalten haben.“
-
-Taron sah auf die Karte. Es gab beunruhigend viele gestrichelte Striche.
-
-„Und die Punkte?“
-
-„Wasser.“ Senn tippte auf zwei nebeneinander. „Ein Punkt: Wasser, wenn du gräbst. Zwei Punkte: Wasser, ob du willst oder nicht.“
-
-„Und die kleinen Kerben am Rand?“
-
-Senn zögerte.
-
-„Namen“, sagte er dann. „Wer die Karte weitergegeben hat.“
-
-Taron zählte. Es waren elf.
-
-„Und die zwölfte machst du?“
-
-„Wenn ich sie weitergebe.“
-
-„Und wenn nicht?“
-
-Senn faltete die Karte zusammen. „Dann hat sie elf, und der Nächste weiß, dass einer nichts mehr gemeldet hat.“
-
 
 Brokk deutete auf eine Kerbe. „Hier sind wir. Varga geht zur Wachgrube. Von dort kann er die breite Spur nehmen oder die alte. Er wird die breite nehmen, weil er glaubt, ich will Zeit gewinnen.“
 

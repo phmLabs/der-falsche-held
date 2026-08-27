@@ -114,7 +114,6 @@ Brokk hob den Kopf.
 
 „Das“, sagte er nach einer Weile, „ist tatsächlich etwas.“
 
-
 „Und der Schutzschlüssel?“, fragte Elva.
 
 Merlan sah auf die eingewickelte Form. „Der gefährlichste. Er spricht nicht für Menschen oder Zwerge. Er spricht für die Bindung selbst. Er kann bewahren, aber auch festhalten. Er kann lösen, aber auch freisetzen.“
@@ -271,7 +270,6 @@ Merlan nahm die Brille ab und putzte sie am Ärmel, was bei ihm bedeutete, dass 
 
 „Dann“, sagte er, „ist er der ehrlichste Beteiligte in dieser Angelegenheit, und ich zähle mich mit.“
 
-
 Merlan legte eine zweite Reihe Blätter aus. Einige waren aus Ellingen, andere aus seinem eigenen Bestand. Er ordnete sie nicht nach Alter, sondern nach Widerspruch, was für Taron wie eine sehr gelehrte Form von Unordnung aussah.
 
 „Hier steht, Lösung sei Gnade. Hier steht, Lösung sei Strafe. Hier steht, Lösung sei nur mit Zustimmung des Wirts erlaubt. Und hier“, er tippte auf ein verbranntes Randstück, „steht vermutlich, dass Zustimmung entbehrlich sei, wenn der Schutz selbst Gefahr wird.“
@@ -315,39 +313,6 @@ Der Erzähler sagte: „Ich begrüße diesen Beitrag der Küche. Er fasst die La
 Merlan nahm den Topf vom Feuer. Niemand lachte, aber Taron merkte, dass alle wieder atmeten.
 
 In dieser Nacht schliefen sie nicht viel. Merlan schrieb, Brokk zeichnete Eidzeichen aus Erinnerung nach, Elva ordnete Ansels Abschriften, und Oswin stand am Fenster. Taron saß vor den drei Schalen und spürte, dass die Schlüssel einander kannten.
-
-Gegen zwei nahm Oswin die Wache am Fenster nicht mehr ernst, weil er einschlief, und niemand weckte ihn, was in dieser Gruppe die höchste erreichbare Form von Zuneigung war.
-
-Elva legte ihm irgendwann eine Decke über die Schultern und ging danach so schnell weg, dass sie nicht dabeistehen musste.
-
-„Er wird beleidigt sein“, sagte Taron.
-
-„Er wird tun, als hätte er es bemerkt.“
-
-„Und?“
-
-„Dann lasse ich ihn.“
-
-Sie setzte sich zu Taron an den Tisch und sah in die Kreidelücke nach Süden.
-
-„Warum lässt Merlan die offen?“
-
-„Damit der Kreis keine Einladung ist.“
-
-„Das ist eine Erklärung für Kreise“, sagte Elva. „Nicht für Merlan.“
-
-Taron sah zu dem Gelehrten hinüber, der über einem Blatt saß und mit der Feder in der Luft wartete, als könne ein Satz noch abbiegen.
-
-„Er weiß es auch nicht“, sagte Taron. „Er lässt die Lücke, weil er die Regel gelernt hat, und er hält sich an Regeln, die er nicht versteht, weil sie älter sind als er.“
-
-„Ist das gut?“
-
-„Ich habe heute zwei Leute getroffen, die es besser wussten“, sagte Taron. „Der eine ist ein Priester und der andere ein Dämon.“
-
-Elva sah eine Weile auf die Lücke.
-
-„Dann bleibt sie offen“, sagte sie.
-
 
 Kurz nach Mitternacht begann die kleine Handglocke aus Ellingen in Tarons Beutel zu zittern.
 
@@ -422,7 +387,6 @@ Der Erzähler antwortete nicht.
 „Nah dran?“
 
 „Sehr.“
-
 
 Gegen Morgen sagte Merlan: „Ihr müsst nach Waldkirch.“
 

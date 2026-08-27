@@ -386,18 +386,6 @@ Der zweite Tag brachte mehr vom ersten, nur länger. Der Weg blieb schmal, die H
 
 Gegen Mittag hielten sie am Rand eines Baches, der unter mannshohem Schilf hindurchlief. Sie tranken, ließen die Pferde trinken und führten sie danach auf die andere Seite der Bäume, weg vom offenen Ufer, damit man sie vom Weg aus nicht sofort sah.
 
-„Geschichten“, sagte Oswin wieder, als sie weiterritten. „Erzähl mir eine, die nicht von Ziegen ist.“
-
-Taron zählte innerlich bis fünf, dann bis sieben. „Es gibt eine Kapelle in Waldkirch“, begann er. „Die ist klein. Es zieht durch sie durch, egal, ob die Tür zu ist. Einmal habe ich nach der Morgenarbeit drinnen geschlafen, weil es der einzige Ort war, an dem niemand mich gesucht hat. Bruder Malchior hat mich gefunden. Er hat sich neben mich gesetzt und einen Psalm gelesen, der davon handelte, dass Gott die Vögel nicht vergisst. Dann hat er mich am Ohr genommen und zum Stall zurückgebracht, und ich habe den ganzen Tag nur an die Vögel gedacht und daran, wie gut sie es haben, dass keiner sie zum Heu schickt.“
-
-„Und?“
-
-„Er hat mir später gesagt, ich sei zu leicht zu finden, wenn ich versuche, unsichtbar zu sein. Und dass das für die meisten Menschen gelte.“
-
-Oswin nickte. „Er hat nicht ganz Unrecht.“
-
-Als der Nachmittag tiefer wurde, erzählte Oswin, ohne dass Taron gefragt hatte. „Ich war dreizehn, als ich Hohenklamm zum ersten Mal verließ“, sagte er. „Ich dachte, die Welt sei größer und würde dadurch netter. Sie war nur größer. Ich habe gelernt, dass das eine mit dem anderen nichts zu tun hat. Ich bin zu einem Ritter gekommen, der aussah, als hätten Gebirge beschlossen, laufen zu lernen. Er hat mir beigebracht, keine Abdrücke zu hinterlassen, wenn ich sie nicht will. Und hinzusehen, wenn etwas Schlimmes passiert. Nicht weil es edel ist. Weil Wegsehen Leute tötet.“
-
 Gegen Abend wurde das Licht wieder flach.
 
 Die Hügel vor ihnen warfen lange Schatten über den Weg. Erst waren es nur Flecken, dann Linien, dann Balken, die wie Gitter aussahen. Taron bemerkte die Ruinen zuerst nicht.
@@ -446,33 +434,13 @@ Die Dämmerung fiel nicht; sie kroch. Erst legte sie ein Grau über die Steine, 
 
 „Kein Feuer.“ Oswins Stimme war nicht hart. Sie war fest.
 
-Sie banden die Pferde an zwei Haselstämmen fest, lösten die Sättel, ließen die Tiere trinken und fressen. Taron legte die Decken so, dass sie den Boden nicht berührten, den Oswin zuvor mit einem Ast gesäubert hatte. Es war Routine, die aus anderen Nächten in andere Rollen übersetzte, ohne zu fragen, ob sie dafür bestimmt war.
-
-„Wachen?“ fragte Taron.
-
-„Ich zuerst“, sagte Oswin. „Dann du. Wenn etwas Ungewöhnliches geschieht, weckst du mich.“
-
-„Was zählt als ungewöhnlich?“
-
-„Alles, was nicht Wind, eigene Angst oder Pferd ist.“
-
 Sie aßen im Halbdunkel. Brot, das seine besten Tage hinter sich hatte. Ein letztes Stück Käse, das Oswin mit der Klinge sauber teilte, als habe die Gerechtigkeit davon abgehangen. Taron kaute und starrte in die Richtung, in der er den Turm wusste, auch wenn die Böschung ihn verbarg.
 
 „Was, wenn hinter einer Tür wirklich der Schlüssel liegt?“, fragte er, mehr zu sich, als zu Oswin.
 
 „Dann machst du sie auf“, sagte Oswin. „Und wieder zu.“
 
-Der Erzähler sagte: „Du hast auch eine Kugel, die dich vom Antworten befreit. Das ist mehr, als die meisten Menschen behaupten können, die den Schlüssel gesucht haben.“
-
-„Wenn ich sie werfe, kann ich sie nicht mehr werfen“, murmelte Taron.
-
-„So funktionieren die meisten Entscheidungen.“
-
-Taron nickte düster. Er war müde.
-
 Sie legten sich, nachdem Oswin die Umgebung einmal umkreist hatte. Er blieb dabei manchmal stehen, hob den Kopf, wie ein Hund, der etwas in der Luft suchte, das nur für ihn da war, und kam wieder so leise zurück, als sei der Wald empfindlich.
-
-Taron drehte das kleine Lederpäckchen mit der Rauchkugel noch einmal zwischen den Fingern. Schleier der entschlossenen Entfernung. Es fühlte sich an wie ein Versprechen an die Beine. Er steckte es wieder weg und schob die Hand unter den Kopf.
 
 „Du bist sehr leise heute“, flüsterte er.
 

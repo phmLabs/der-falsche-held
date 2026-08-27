@@ -140,8 +140,6 @@ Varga sah auf den König am Boden. „Noch.“
 
 Das war das Problem in vier Worten. Der andere hatte keinen neuen Hass erschaffen müssen. Er hatte nur dafür gesorgt, dass jeder Blick an der falschen Stelle hängen blieb.
 
-Das war sein letztes Geschenk: nicht Unsichtbarkeit, sondern Deutung. Jeder Blick glitt von ihm ab und fand stattdessen den Feind, den er ohnehin erwartet hatte.
-
 Ein menschlicher Soldat drängte hinter Varga in die Kammer und rief: „Die Zwerge sind unten!“ Ein Zwerg hinter ihm rief: „Sie haben den König!“ Beide sagten die Wahrheit. Beide machten sie dadurch fast unbrauchbar.
 
 Oswin stellte sich breiter hin. „Wer jetzt schlägt, trifft zuerst mich.“
@@ -170,17 +168,13 @@ Der Atemzug war vorbei.
 
 Die Kammer wurde wieder Kampf.
 
-Taron lag am Boden und hasste nicht die Leute, die zuschlugen. Das wäre einfacher gewesen. Er hasste die Geschwindigkeit, mit der Angst jede bessere Möglichkeit auffraß.
+Taron hasste nicht die Leute, die zuschlugen. Er hasste die Geschwindigkeit, mit der Angst jede bessere Möglichkeit auffraß.
 
 Der Erzähler flüsterte: „Das ist sein eigentliches Werk.“
 
 „Der Dämon?“
 
 „Nein. Der Teil, den er in euch nicht erfinden musste.“
-
-Taron wollte schreien.
-
-Nicht aus Mut. Aus Frust. Mut war eine viel zu saubere Beschreibung für einen Menschen, der auf dem Boden lag, halb taub vom eigenen Kopf und umgeben von Leuten, die aus vollkommen nachvollziehbaren Gründen gerade das Falsche taten. Frust passte besser. Frust hatte Dreck unter den Nägeln.
 
 „Aufhören!“, rief er.
 
@@ -258,7 +252,7 @@ Oswin warf den Soldaten zurück. „Idiot!“
 
 „Er wollte hören!“
 
-Der Soldat verstand den Unterschied nicht schnell genug. Das war die eigentliche Grausamkeit dieses Tages: Viele Leute waren nicht böse, nur zu langsam für Wahrheit.
+Der Soldat verstand den Unterschied nicht schnell genug.
 
 Der freie Dämon hob die Hand.
 
@@ -639,8 +633,6 @@ Er ließ lockerer. Das war schwieriger, als es hätte sein sollen. Der Rauch nah
 Dieses Später klang nicht wie Aufschub. Es klang wie ein Versprechen, dass es eins geben sollte.
 
 Taron hielt sich daran fest, während der Rauch dichter wurde und die Welt für einen Moment nur noch aus Hand, Husten und Richtung bestand.
-
-Mehr Orientierung hatte an diesem Tag ohnehin niemand verdient.
 
 Im Rauch verloren Titel zuerst ihre Wirkung.
 
