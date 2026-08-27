@@ -179,6 +179,31 @@ Ansel legte ihre Nadel hin.
 
 „Nein“, sagte sie. „Das ist das Traurige daran. Es hat die Stadt gerettet, nicht den Eid.“
 
+„Warum tut Ihr das?“, fragte Taron.
+
+Ansel sah ihn an, als habe sie mit der Frage gerechnet und trotzdem gehofft, sie käme nicht.
+
+„Weil ich es kann.“
+
+„Das ist keine Antwort.“
+
+„Es ist die einzige, die stimmt.“ Sie nahm die Nadel wieder auf. „Ich war neunundzwanzig Jahre Schreiberin dieser Stadt. Ich habe Verträge abgeschrieben, Erbteilungen, Streit über Zäune, den Hafergroschen, zwei Hexenanklagen, die zum Glück im Papier stecken blieben. Es ist ein Beruf, in dem man nichts entscheidet und alles liest.“
+
+„Und dann kam Rugar.“
+
+„Dann kam Rugar, und man brachte mir eine Liste, auf der stehen sollte, wo Bronze liegt.“ Ansel zog den Faden durch. „Ich habe sie geschrieben. Vollständig. Ich habe nur zuerst nachgesehen, was in meinem eigenen Bestand steht.“
+
+„Ihr habt Euch selbst weggelassen.“
+
+„Ich habe mich zuerst gelesen.“ Sie sah kurz auf. „Das ist der Unterschied, und junge Leute halten ihn immer für Feigheit.“
+
+Elva sagte: „Ich nicht.“
+
+Ansel sah sie an, länger als alle anderen an diesem Abend.
+
+„Nein“, sagte sie. „Du nicht.“
+
+
 
 Sie nahm eine kleine Handglocke aus einer Schublade. Oswin trat sofort zur Tür. Brokk hob warnend die Hand.
 
@@ -350,6 +375,19 @@ Sie gab Taron die Handglocke.
 Taron nahm sie, als könnte sie beißen. „Was soll ich damit?“
 
 „Klingen, wenn Stille lügt.“
+
+„Und wenn sie die Wahrheit sagt?“
+
+Ansel sah ihn an. „Dann hört ihr es an derselben Glocke. Sie unterscheidet das nicht. Ihr müsst das unterscheiden.“
+
+„Das ist eine sehr unbequeme Übergabe.“
+
+„Ja.“ Sie drückte ihm die Hand zu, damit er die Glocke nicht wieder hinlegen konnte. „Ich habe sie neunzehn Jahre nicht geläutet. Heute zweimal. Beim ersten Mal, weil es nötig war. Beim zweiten Mal, weil ich wissen wollte, ob ich mich getäuscht hatte.“
+
+„Und?“
+
+„Ich hatte mich nicht getäuscht. Das ist schlimmer.“
+
 
 „Das ist eine sehr alte-Frau-Antwort.“
 

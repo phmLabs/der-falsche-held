@@ -28,6 +28,27 @@ Broda biss ein Stück Pilz ab. „Bei schlechten Lagen fragt man hinterher. Wenn
 
 Oswin hob kurz den Blick. „Sie hat recht.“
 
+Etwas später, ohne dass jemand darum bat, tat Oswin das Erste, was ihn und Brokk auf dieselbe Seite stellte: Er ging zu den Pferden und stellte sich so hin, dass Sternfall und Kummer den Hang nicht mehr sahen.
+
+Brokk beobachtete es.
+
+„Warum?“, fragte er.
+
+„Pferde sehen, was wir nicht hören.“ Oswin strich Sternfall über den Hals. „Wenn sie den Kopf heben, wisst ihr es zwei Atemzüge früher. Wenn sie den Hang ansehen können, heben sie ihn wegen jedes Fuchses.“
+
+Brokk sah ihn eine Weile an.
+
+Dann sagte er etwas auf Zwergisch, kurz und beiläufig, und Broda hob den Kopf.
+
+„Was war das?“, fragte Taron.
+
+„Er hat gesagt, der Mensch soll die Pferde machen“, sagte Broda.
+
+„Ist das gut?“
+
+„Es ist eine Aufgabe“, sagte Broda. „Bei uns gibt man keine Aufgabe an jemanden, den man am nächsten Morgen erschlagen will. Das gilt als unordentlich.“
+
+
 Taron sah ihn an. „Das ist jetzt schon das zweite Mal, dass du einem Zwerg recht gibst.“
 
 „Ich führe keine Liste.“
@@ -67,6 +88,35 @@ Der Erzähler sagte: „Eine unterschätzte Grundlage vieler Bündnisse.“
 Brokk saß auf einem Stein am Rand des Lagers. Über ihm standen Fichten, dahinter begann der Hang. Seine Zwerge ruhten in kurzen Abständen, jeder mit Blick auf einen anderen Teil der Dunkelheit. Sie wirkten nicht wie Leute, die fliehen. Eher wie Leute, die gelernt hatten, dass selbst Verrat ordentlich ausgeführt werden konnte.
 
 Taron saß mit dem Rücken an Kummers Sattel und versuchte, nicht einzuschlafen. Elva hatte sich in seinen Mantel gewickelt, weil ihrer noch feucht war. Sie hatte ihn nicht gefragt. Taron hatte nicht widersprochen. Das fühlte sich beunruhigend erwachsen an.
+
+Nach einer Weile sagte sie, ohne die Augen zu öffnen: „Du sitzt schief.“
+
+„Ich sitze so, dass ich den Hang sehe.“
+
+„Du siehst den Hang nicht. Du siehst die Stelle, an der Brokk sitzt.“
+
+Taron sagte nichts, weil sie recht hatte und weil er noch nicht wusste, warum.
+
+„Ich weiß nicht, ob wir bei ihm sicher sind“, sagte er schließlich.
+
+„Nein.“
+
+„Das war beruhigend gemeint gewesen.“
+
+„Dann hättest du es anders fragen müssen.“ Elva zog den Mantel höher. „Ich weiß auch nicht, ob wir bei ihm sicher sind. Ich weiß, dass er seine Leute vorher gefragt hat, ob sie mitkommen.“
+
+„Ist das viel?“
+
+„Albrecht hat dich nicht gefragt“, sagte Elva. „Malchior hat dich nicht gefragt. Der Erzähler hat dich zehn Jahre nicht gefragt. Brokk hat vier Zwerge gefragt, deren Halle er dafür verliert.“
+
+Taron sah zu der Stelle im Dunkeln, an der Brokk saß.
+
+„Das ist eine sehr niedrige Grenze für Vertrauen.“
+
+„Ja“, sagte Elva. „Ich habe sie hier gefunden. Ich hätte sie lieber woanders gefunden.“
+
+Der Erzähler sagte nichts dazu, was Taron als Zustimmung nahm und dann, kurz vor dem Einschlafen, als etwas Unangenehmeres.
+
 
 Oswin stand etwas abseits.
 
@@ -477,6 +527,39 @@ Senn zog eine gefaltete Hautkarte aus seinem Mantel. Sie war kleiner als eine me
 Senn sah ihn an. „Das soll dich am Leben halten.“
 
 „Dann erkenne ich ihre Schönheit sofort.“
+
+Senn hielt die Karte trotzdem so, dass Taron mitsehen konnte, was Taron als das freundlichste deutete, was ein Zwerg mit einer Karte tun konnte.
+
+„Die Striche sind Gänge?“, fragte er.
+
+„Die Striche sind Gänge, die halten.“
+
+„Und die gestrichelten?“
+
+„Gänge, die gehalten haben.“
+
+Taron sah auf die Karte. Es gab beunruhigend viele gestrichelte Striche.
+
+„Und die Punkte?“
+
+„Wasser.“ Senn tippte auf zwei nebeneinander. „Ein Punkt: Wasser, wenn du gräbst. Zwei Punkte: Wasser, ob du willst oder nicht.“
+
+„Und die kleinen Kerben am Rand?“
+
+Senn zögerte.
+
+„Namen“, sagte er dann. „Wer die Karte weitergegeben hat.“
+
+Taron zählte. Es waren elf.
+
+„Und die zwölfte machst du?“
+
+„Wenn ich sie weitergebe.“
+
+„Und wenn nicht?“
+
+Senn faltete die Karte zusammen. „Dann hat sie elf, und der Nächste weiß, dass einer nichts mehr gemeldet hat.“
+
 
 Brokk deutete auf eine Kerbe. „Hier sind wir. Varga geht zur Wachgrube. Von dort kann er die breite Spur nehmen oder die alte. Er wird die breite nehmen, weil er glaubt, ich will Zeit gewinnen.“
 

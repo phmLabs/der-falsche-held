@@ -164,7 +164,9 @@ Elva ließ es nicht liegen. „Und heute?“
 
 Brokk sah zum Hang. „Heute steht er näher am König.“
 
-Brokk antwortete nicht, obwohl seine Leute ihn ansahen.
+Oben sprach Varga weiter. Was er sagte, übersetzte Brokk nicht, obwohl seine Leute ihn ansahen und Broda zweimal den Kopf drehte.
+
+Taron lernte an diesem Nachmittag, dass es zwei Arten gab, in denen Brokk nichts sagte. Die eine hieß, es ist unwichtig. Die andere hieß, ich suche noch die Fassung, in der es niemanden umbringt.
 
 „Was sagen sie?“, flüsterte Elva.
 
@@ -729,6 +731,41 @@ Elvas Blick wurde schärfer. „Nicht nur wenig.“
 „Der König nimmt Vorräte für den Hunger“, sagte sie. „Das klingt anders, macht aber dieselben Teller leer.“
 
 Brokk brummte. „Dann arbeitet die Zeit gegen euch.“
+
+„Wie lange hält eine Burg?“, fragte Taron.
+
+Brokk und Oswin antworteten gleichzeitig und nannten verschiedene Zahlen.
+
+„Sechs Wochen“, sagte Oswin.
+
+„Elf Tage“, sagte Brokk.
+
+Beide sahen einander an.
+
+„Waldkirch hat einen Brunnen“, sagte Oswin. „Steinmauern, zwei Tore, Vorräte für den Winter.“
+
+„Waldkirch hat Vorräte für einen Winter ohne Belagerung“, sagte Brokk. „Das ist eine andere Zahl. In einer Belagerung isst die Mauer mit. Jeder Mann auf der Mauer isst doppelt, weil er nichts tut außer frieren.“
+
+Oswin schwieg einen Moment. „Elf Tage.“
+
+„Vielleicht dreizehn“, sagte Brokk. „Wenn jemand in der Küche rechnen kann.“
+
+Elva sagte: „Jemand kann.“
+
+Brokk sah sie an.
+
+„Marta Grubenlicht“, sagte Elva. „Sie hat im letzten Winter aus Vorräten für neun Wochen dreizehn gemacht, und niemand hat es gemerkt, weil sie nie erklärt hat, wie.“
+
+„Wie?“
+
+„Sie hat die Suppe dünner gemacht und das Brot dicker.“ Elva kaute an ihrem harten Stück. „Dünne Suppe merkt man abends. Dickes Brot merkt man morgens. Morgens sind Leute dankbarer.“
+
+Brokk brummte etwas, das bei ihm Anerkennung war.
+
+„Dann hält Waldkirch dreizehn Tage“, sagte Taron.
+
+„Waldkirch hält dreizehn Tage“, sagte Brokk, „wenn niemand darin beschließt, dass Mut satt macht.“
+
 
 „Die Zeit arbeitet seit Tagen gegen uns“, sagte Taron. „Ich beginne zu vermuten, sie wurde bezahlt.“
 

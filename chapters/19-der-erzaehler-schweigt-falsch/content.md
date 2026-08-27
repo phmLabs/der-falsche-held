@@ -250,6 +250,33 @@ Oswin sah nach Norden. „Es funktioniert gut. Ein Mensch fragt in einem Dorf na
 
 Taron gab ihnen Brot. Nicht viel. Sie hatten selbst kaum genug. Aber Elva schnitt es so, dass es nach mehr aussah, und das war eine Kunst, die keine Prophezeiung je angemessen lobte.
 
+Bevor sie gingen, tat Elva noch etwas, das Taron nicht verstand, bis es zu spät war, es zu verhindern.
+
+Sie fragte die Frauen nach dem Weg.
+
+Nicht weil sie ihn brauchte. Brokk kannte den Weg besser als jede Karte. Aber die Frauen erklärten ihn ausführlich, mit Streit über eine Abzweigung und einem längeren Einschub über einen Bach, der seit zwei Jahren woanders lief, und dabei richteten sie sich auf und wurden lauter, und der alte Mann legte irgendwann das Messer weg, weil er beide Hände zum Zeigen brauchte.
+
+Als sie fertig waren, bedankte sich Elva, als habe sie etwas Wertvolles bekommen.
+
+„Sie kannten den Weg gar nicht richtig“, sagte Taron später.
+
+„Nein.“
+
+„Warum dann?“
+
+„Weil man Leuten, denen alles genommen wurde, nichts geben kann, ohne es ihnen zu nehmen“, sagte Elva. „Außer man fragt sie etwas.“
+
+Der Erzähler schwieg dazu so lange, dass Taron misstrauisch wurde.
+
+„Was?“
+
+„Ich überlege, ob ich das gewusst habe.“
+
+„Und?“
+
+„Ich habe es gewusst und nie benutzt“, sagte der Erzähler. „Das ist die unangenehmere von zwei Möglichkeiten.“
+
+
 Als sie weitergingen, sagte Oswin nichts.
 
 Nach einer Weile fragte Taron: „War es falsch?“
@@ -450,6 +477,27 @@ Oswin sah zur Straße. „Wir müssen weiter.“
 Taron gab der Frau die Scheibe zurück. „Behaltet sie.“
 
 „Ich habe sie lange genug behalten.“ Sie drückte sie ihm in die Hand. „Jetzt ist sie nur noch schwer.“
+
+„Was war es früher?“, fragte Taron.
+
+Die alte Frau überlegte, und man sah, dass sie dabei nicht in der Erinnerung suchte, sondern in der Reihenfolge.
+
+„Erst war es ein Andenken“, sagte sie. „Dann ein Geheimnis. Dann eine Sache, die man nicht zeigen darf. Dann etwas, das ich für meinen Sohn aufbewahrte. Dann hatte ich keinen Sohn mehr.“
+
+Taron fand keinen Satz, der nicht schlechter gewesen wäre als Schweigen.
+
+„Und dann?“
+
+„Dann war es schwer.“
+
+Der Mann am Karren griff nach den Griffen und wartete, ohne zu drängen.
+
+„Wenn sie Euch nützt“, sagte die Frau, „sagt niemandem, von wem sie ist. Ich möchte nicht in einem Lied vorkommen.“
+
+„Ich verspreche es.“
+
+„Gut. Junge Leute halten ihre Versprechen selten, aber sie halten sie länger, wenn sie klein sind.“
+
 
 Der Erzähler sagte sehr leise: „Nimm sie.“
 

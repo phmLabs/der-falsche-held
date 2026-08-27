@@ -132,6 +132,53 @@ Taron konnte nicht anders. Er lachte einmal, kurz, atemlos. Dann sah er, wie Han
 
 Malchior sah sie beleidigt an. Ein Bolzen schlug in den Wagen neben ihm. Er entschied sich für eine beweglichere Form von Würde.
 
+Auf dem Weg zum Wagen blieb er neben Taron stehen, was niemand von ihm erwartet hatte.
+
+„Falkenried.“
+
+„Bruder Malchior.“
+
+Der Priester hielt die Abschrift noch in der Hand. Sie war nass. Der Weinfleck war größer geworden, weil Regen und Blut sich um alte Lücken nicht kümmerten.
+
+„Es steht darin“, sagte Malchior.
+
+„Was?“
+
+„Dass dein Schritt das Schicksal stolpern lässt.“ Er sah über den Hof. „Ich habe es dreißig Jahre gelesen. Ich habe es richtig gelesen.“
+
+Taron sah ihn an und stellte fest, dass er keine Wut fühlte, was ihn mehr erschreckte als Wut.
+
+„Ihr habt es richtig gelesen“, sagte er. „Und dann habt Ihr daneben geschrieben, was es bedeutet.“
+
+Malchior blinzelte. „So arbeitet Deutung.“
+
+„Ihr habt daneben geschrieben, mein Leiden sei tragbar.“
+
+Der Priester wurde sehr still. Um sie herum schrien Leute.
+
+„Das war nicht als Grausamkeit gemeint“, sagte er.
+
+„Ich weiß“, sagte Taron. „Das ist das Problem.“
+
+Ein Bolzen schlug in den Wagen. Malchior duckte sich, und weil er dabei die Abschrift schützte statt seinen Kopf, sah Taron für einen Moment, dass der Mann tatsächlich glaubte, das Papier sei das Wichtigere in diesem Hof.
+
+„Geht in den Keller“, sagte Taron.
+
+„Ich muss hier-“
+
+„Ihr müsst am Leben bleiben, damit ich Euch später vorwerfen kann, was Ihr getan habt. Sonst wird eine Geschichte daraus, und Geschichten sind nachsichtiger als ich.“
+
+Malchior ging.
+
+Elva sah ihm nach. „Das war fast grausam.“
+
+„Ich habe es geübt.“
+
+„Bei wem?“
+
+„Bei mir.“
+
+
 Merlan hielt seine Kiste mit Phiolen an die Brust gepresst. „Wenn die zerbricht, wird es unangenehm.“
 
 „Unangenehm wie Rauch?“, fragte Taron.
@@ -245,6 +292,21 @@ Oswin blockte einen Schlag. „Sechs!“
 „Das Kind zählt doppelt“, rief Taron, ohne zu wissen, warum.
 
 „Nein!“, riefen Oswin und Brokk gleichzeitig.
+
+Später, als sie schon fast am Tor waren, sah Taron Hanno noch einmal.
+
+Der Knecht stand nicht mehr mit dem Speer. Er hatte ihn abgestellt oder verloren, was in diesem Hof dasselbe war, und schleppte stattdessen einen verletzten Zwerg am Arm zu der Mauerecke, in der Marta ihre Eimer hatte.
+
+Der Zwerg schimpfte die ganze Zeit.
+
+Hanno antwortete nicht, weil er ihn nicht verstand.
+
+„Zählt das?“, fragte Taron.
+
+Oswin sah kurz hin.
+
+„Das zählt bei ihm“, sagte er. „Nicht bei mir.“
+
 
 Am Ende erreichten sie das Tor zu den unteren Gängen.
 

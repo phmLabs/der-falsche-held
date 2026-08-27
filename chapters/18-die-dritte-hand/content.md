@@ -216,6 +216,37 @@ Der Erzähler antwortete nicht.
 
 Brokk nahm den Zwergenschlüssel wieder an sich. Taron den Menschenschlüssel. Elva wickelte den Schutzschlüssel in ein Stück Stoff, ohne ihn direkt zu berühren. Das Metall bewegte sich nicht, aber Taron hatte den Eindruck, dass etwas im Boden erleichtert ausatmete.
 
+„Wie ist er?“, fragte Taron, als sie schon gingen.
+
+Elva brauchte eine Weile. „Kalt.“
+
+„Nur kalt?“
+
+„Nein.“ Sie sah auf das Bündel unter ihrem Mantel. „Der Menschenschlüssel wird warm, wenn du in seiner Nähe etwas tust. Ich habe es dreimal gesehen. Dieser hier macht das Gegenteil. Er wird kälter, je näher etwas kommt.“
+
+„Das klingt nach einer Warnung.“
+
+„Es klingt nach einem Türsteher.“
+
+Sie ging drei Schritte weiter. „Und einmal, kurz, war er warm.“
+
+„Wann?“
+
+„Als Brokk seinen daneben legte.“
+
+Taron sah nach vorn zu Brokk, der mit gesenktem Kopf ging und aussah wie ein Mann, der zwei Gedanken gleichzeitig trug und beide für schlecht hielt.
+
+„Sag ihm das nicht“, sagte Taron.
+
+„Warum nicht?“
+
+„Weil er dann hofft.“
+
+Elva zog den Mantel enger. „Das dürfte er.“
+
+„Ja“, sagte Taron. „Nur nicht heute Abend.“
+
+
 Aus dem Nebel kam Vargas Hornruf.
 
 Brokk sah nach Norden. „Wir gehen nach Ellingen.“
@@ -251,6 +282,33 @@ Bevor sie gingen, zwang Brokk sie noch einmal in die Hocke. Nicht aus Andacht. A
 Das war schwer zu bestreiten. Taron trat zurück und sah genauer hin. Die Rinne war an vier Stellen offen, aber jede Öffnung zeigte in eine andere Richtung. Norden, Osten, Westen, Süden. Zwischen den Öffnungen lagen kleine Zeichen, so flach, dass man sie nur sah, wenn man schon wusste, dass wichtigere Dinge gern unter Dreck lagen.
 
 Elva kniete am südlichen Einschnitt. „Hier ist frische Erde.“
+
+Sie beugte sich weiter vor, ohne die Rinne zu berühren.
+
+„Nicht ausgehoben“, sagte sie. „Aufgefüllt.“
+
+Oswin sah es sich an. „Woran erkennst du das?“
+
+„Das Gras liegt drin.“ Elva zeigte, ohne zu deuten. „Wenn man gräbt, kommt Erde nach oben und Gras nach oben. Wenn man verschließt, drückt man Gras mit hinein.“
+
+Brokk kam dazu und hockte sich hin. Er brauchte länger als Elva, was ihn nicht zu freuen schien.
+
+„Sie hat recht“, sagte er.
+
+„Jemand wollte, dass es aussieht wie unberührt“, sagte Oswin.
+
+„Jemand wollte, dass es aussieht wie geschlossen“, sagte Brokk. „Das ist nicht dasselbe. Unberührt heißt: hier war nichts. Geschlossen heißt: hier ist etwas, und es ist erledigt.“
+
+Taron sah in die Senke.
+
+„Er hat aufgeräumt“, sagte er.
+
+„Ja.“
+
+„Das ist schlimmer als zerstören.“
+
+Brokk stand auf und wischte sich die Hand am Mantel ab. „Es ist die Arbeit von jemandem, der plant, wiederzukommen.“
+
 
 Oswin war sofort neben ihr. „Von Varga?“
 
@@ -421,6 +479,35 @@ Brokk sagte: „Jetzt gehen wir.“
 Sie kamen nicht schnell voran. Eidgrund ließ sie erst gehen, als hätte der Ort selbst beschlossen, jeden Schritt noch einmal zu prüfen. Zweimal rutschte Taron auf nassem Gras aus, einmal fing Brokk ihn am Kragen, und einmal packte Elva ihn so fest am Arm, dass er verstand, warum Küchenmesser nicht ihre einzige Waffe waren.
 
 Hinter ihnen blieb Varga im Nebel. Man sah ihn nicht, aber seine Anwesenheit ordnete die Geräusche. Ein Ruf links. Ein Zweig rechts. Dann lange nichts. Oswin sagte, gute Verfolger machten aus Stille ein Werkzeug. Taron fand, das sei eine unangenehm schöne Beschreibung für Leute, die ihm nach dem Leben trachteten.
+
+Broda ging vor und tat etwas, das Taron erst nach einer Weile verstand.
+
+Sie brach keine Zweige. Sie legte welche hin. Alle zwanzig, dreißig Schritte, immer knapp neben ihrer eigenen Spur, immer so, wie ein eiliger Mensch sie zertreten hätte. Dazu drückte sie einmal einen Absatz tief in den Lehm und setzte den nächsten Schritt zu weit.
+
+„Was machst du?“, flüsterte Taron.
+
+„Ich schreibe.“
+
+„Was?“
+
+„Dass wir zu vier sind, dass einer verletzt ist und dass wir nach Süden hasten.“
+
+Taron sah zurück auf die Zeichen, die sie hinterließ, und sie sahen aus wie Panik.
+
+„Und wohin gehen wir wirklich?“
+
+„Nach Norden, sobald der Boden hart wird.“ Broda legte den nächsten Zweig. „Varga liest gut. Deshalb funktioniert es.“
+
+„Ist das nicht gefährlich? Wenn er merkt-“
+
+„Dann weiß er, dass wir jemanden dabeihaben, der schreiben kann“, sagte Broda. „Er weiß es schon. Er hat nur noch nicht entschieden, wer.“
+
+Sie legte Zweige, bis der Boden steinig wurde. Dann ging sie den Rest des Weges, ohne etwas zu berühren, und Taron gab sich sehr viel Mühe, dasselbe zu tun, und trat nach hundert Schritten in eine Pfütze.
+
+Broda sagte nichts dazu.
+
+Ihr Gesicht sagte hinreichend viel.
+
 
 Am Rand der Senke blieb Brokk noch einmal stehen. Er legte die Hand nicht auf den Zwergenschlüssel, sondern daneben, als müsse selbst er lernen, dass Besitz hier die falsche Geste war.
 

@@ -357,6 +357,25 @@ Merlan bemerkte es und wurde sehr still.
 
 Der Dämon lächelte. Dann wandte er sich ab. Merlan war ihm nicht wichtig genug. Das rettete Merlan und beleidigte ihn vermutlich bis in die Knochen.
 
+Merlan zog die Linie trotzdem weiter.
+
+Taron sah zu und begriff nach einer Weile, dass es nicht Trotz war und nicht einmal Mut. Merlan hatte im Leben eine einzige Fähigkeit erworben, und die Kammer nahm sie ihm nicht weg. Alle anderen im Raum konnten schlagen, halten, ziehen oder rufen. Merlan konnte feststellen, was geschehen war.
+
+„Schreib auch das auf“, sagte Taron.
+
+„Was?“
+
+„Dass er dich angesehen hat und nicht wichtig genug fand.“
+
+Merlan hielt inne. „Warum das?“
+
+„Weil das die einzige Stelle ist, an der er sich geirrt hat.“
+
+Merlan sagte nichts. Aber er schrieb es auf, sehr klein, an den Rand.
+
+Später fand Taron dieses Blatt. Die Linie war unordentlich, die Handschrift war schlecht, weil der Boden gezittert hatte, und am Rand stand in vier Wörtern eine Behauptung, die kein Archiv Waldkirchs jemals bestätigen würde.
+
+
 Brokk hatte Rugar an sich gezogen. Varga stand vor ihnen, verletzt, verwirrt und noch immer bewaffnet. Oswin hielt den menschlichen Soldaten am Kragen, der inzwischen begriff, dass er vielleicht gerade den falschen Frieden erstochen hätte.
 
 „Name“, keuchte Taron.

@@ -20,9 +20,57 @@ Sie sagten beide nichts weiter. Der Satz reichte, und er war schwer genug.
 
 „Ein Zeichen kluger Mäuse“, sagte der Erzähler.
 
+Elva stellte die drei Rüben auf die Bank und sah sie an, wie ein Hauptmann eine zu kleine Truppe ansieht.
+
+„Fünf Leute“, sagte sie.
+
+„Und ein Pferd, das behauptet, es sei sechs“, sagte Taron.
+
+„Kummer bekommt nichts von den Rüben.“
+
+„Sag ihm das selbst.“
+
+Sie schnitt sie trotzdem. Nicht in fünf Teile, sondern in sehr viele kleine, und dann verteilte sie sie in fünf Schalen so, dass jede Schale voll aussah. Es war weniger als vorher, sah nach mehr aus und dauerte länger beim Essen, was laut Elva der eigentliche Trick war.
+
+„Das habe ich in Waldkirch gelernt“, sagte sie. „Zuerst dachte ich, es sei Betrug.“
+
+„Und jetzt?“
+
+„Jetzt weiß ich, dass Leute, die langsamer essen, weniger streiten.“
+
+Brokk nahm seine Schale und sah lange hinein.
+
+„In Karndorn nennen wir das die dünne Ordnung“, sagte er. „Wenn sie kommt, hat jemand oben schon vor Monaten falsch gerechnet.“
+
+
 Taron saß auf einer Bank und hielt den Pergamentstreifen seines Vorfahren in der Hand. Trau der Stimme. Er war mein Freund.
 
 Die Bank stand in der alten Wachstube. In die Tischplatte waren Namen geritzt: Grenzer, Fuhrleute, ein paar derbe Wörter, die Taron mit Interesse und Elva mit hochgezogener Braue las. Zwischen all dem fand sich wieder der kleine Vogelkopf. Diesmal war er mit Absicht versteckt, in den Winkel eines Buchstabens gesetzt.
+
+Taron las die Namen, weil es ihn von wichtigeren Dingen abhielt.
+
+Es waren keine berühmten Namen. Marek. Hild. Tobbe der Jüngere. Ein Otten mit drei Strichen daneben, vermutlich für drei Aufenthalte. Ein Name war zweimal eingeritzt, einmal ungeschickt und einmal gerade, als habe derselbe Mann Jahre später bessere Hände gehabt.
+
+„Das ist die einzige Liste in diesem Reich, die niemand gefälscht hat“, sagte Merlan hinter ihm.
+
+Taron sah auf. „Es ist ein Tisch.“
+
+„Es ist ein Verzeichnis von Leuten, die hier gewesen sind, geschrieben von den Leuten selbst, ohne Amt, ohne Zweck und ohne Nutzen für irgendjemanden.“ Merlan strich mit dem Daumen über den zweimal geschnittenen Namen. „Ich habe Archive gesehen, die weniger wahr waren.“
+
+Elva sah ebenfalls hin. „Steht mein Name irgendwo?“
+
+„Nein.“
+
+„Dann schneide ich ihn hinein.“
+
+Merlan machte keinen Einwand, was Taron mehr überraschte als alles andere an diesem Abend. Elva nahm ihr Messer und ritzte vier Buchstaben in eine freie Stelle, langsam, ohne Verzierung.
+
+„Fertig“, sagte sie.
+
+„Warum?“, fragte Taron.
+
+„Damit jemand, der später hier sitzt, weiß, dass hier jemand gesessen hat, der nicht in den Berichten steht.“
+
 
 „Arven war hier auch“, sagte Taron.
 
@@ -192,6 +240,29 @@ Merlan schrieb so schnell, dass seine Feder kratzte.
 „Keine Namen?“, fragte Taron.
 
 „Namen ziehen an.“
+
+Merlan hob den Kopf. „Das ist keine Metapher, oder?“
+
+„Nein.“
+
+„Erklärt das.“
+
+Der Erzähler brauchte eine Weile, und Taron merkte, dass er suchte, wie man einer Wandtafel eine Farbe erklärt.
+
+„Ein Name ist die kürzeste Fassung eines Eides“, sagte er. „Er behauptet, dass etwas dasselbe bleibt, obwohl es sich ändert. Deshalb halten Namen Dinge fest, die sonst auseinanderfallen, und deshalb hören alte Bindungen darauf, wenn sie gerufen werden.“
+
+Merlan schrieb schnell. „Und wenn niemand ruft?“
+
+„Dann wird aus einem Namen eine Rolle. Aus einer Rolle eine Funktion. Aus einer Funktion eine Stelle.“ Die Stimme wurde leiser. „Stellen sind bequem. Man kann sie neu besetzen.“
+
+Elva sah auf. „Deshalb heißt er Niemand.“
+
+„Ja.“
+
+„Das ist kein Name.“
+
+„Nein“, sagte der Erzähler. „Es ist eine Stelle, die er selbst geschaffen hat, damit niemand sie rufen kann.“
+
 
 Brokk nickte langsam. „Darum entfernten sie sie.“
 

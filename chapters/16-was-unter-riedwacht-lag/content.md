@@ -622,6 +622,41 @@ Das Wasser wurde tiefer.
 
 Zuerst bis zu den Knöcheln, dann bis zur Wade. Die Kälte zog durch Stiefel und Hosen und machte jeden Schritt schwerer. Über ihnen hörten sie dumpf Rufe, dann wieder nichts. Einmal rieselte Staub aus einer Fuge. Taron blieb stehen, weil er keine Lust hatte, unter einer Geschichte begraben zu werden, die älter war als seine Ausreden.
 
+Nach einer Weile hörte er auf, die Kälte zu spüren, und das war die schlechte Nachricht.
+
+Elva merkte es zuerst.
+
+„Sag etwas“, sagte sie nach vorn.
+
+„Was denn?“
+
+„Irgendetwas. Alle zehn Schritte.“
+
+„Warum?“
+
+„Weil ich dann höre, wenn du langsamer wirst.“
+
+Also redete Taron. Er redete Unsinn, weil ihm nichts anderes einfiel: über Kummers Charakterfehler, über Malchiors Art, drei Wörter für ein Wort zu benutzen, über die Frage, ob man einen Zwergenschlüssel als Türöffner für eine Vorratskammer missbrauchen dürfe, wenn man wirklich Hunger habe.
+
+„Man darf nicht“, sagte Brokk von hinten.
+
+„Ich habe es hypothetisch gefragt.“
+
+„Ich habe hypothetisch geantwortet.“
+
+Der Erzähler sagte: „Das war ein Scherz. Von einem Zwerg. Im Wasser. Ich notiere den Tag.“
+
+„Du notierst nichts.“
+
+„Ich behalte. Das ist billiger und schlechter.“
+
+Elva rief von vorn: „Zehn Schritte.“
+
+„Ich lebe.“
+
+„Weiter.“
+
+
 „Weiter“, sagte Oswin hinter ihm.
 
 „Ich überlege gerade, ob Stehenbleiben eine unterschätzte Überlebenskunst ist.“

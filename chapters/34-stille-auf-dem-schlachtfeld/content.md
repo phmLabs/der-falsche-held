@@ -252,6 +252,9 @@ Elva sah Marta. Nicht wirklich, denn Marta war oben im Hof und fluchte vermutlic
 
 „Später besser liegen“, sagte Elva.
 
+Der Mann lag besser. Es half ihm vermutlich nicht viel, aber er lag besser, und Elva sah nicht zurück, weil Zurücksehen im Rauch nichts brachte außer Husten.
+
+
 Merlan sah Schrift. Das war nicht überraschend. Er sah sie aber nicht auf Pergament, sondern auf Menschen. Namen, Rollen, Lücken, falsche Titel. Er begann, sie laut zu sortieren, was einige Panische beruhigte und andere verwirrte. Beides war besser als Zuschlagen.
 
 „Lebend!“, rief Merlan, als er über einen Zwerg stolperte.
@@ -558,3 +561,28 @@ Varga starrte von einem zum anderen, als sei er in eine Schlacht geraten, in der
 Dann hustete Rugar ein zweites Mal.
 
 Diesmal öffnete er die Augen.
+
+Sie waren nicht klar. Sie waren auch nicht fremd. Sie waren die Augen eines alten Mannes, der aus einer Ohnmacht kommt und zuerst nichts anderes leisten kann als Anwesenheit.
+
+Er sah den Himmel. Dann eine Mauer. Dann Brokk.
+
+Sein Mund bewegte sich, ohne Ton.
+
+Marta hielt ihm einen Becher hin, bevor irgendwer eine Entscheidung darüber traf, ob man dem Zwergenkönig Wasser gab.
+
+Rugar trank zwei Schlucke. Beim dritten hustete er wieder.
+
+„Langsam“, sagte Marta.
+
+Sie sagte es in demselben Ton, in dem sie es zu jedem gesagt hätte, und das war vermutlich der Grund, warum es funktionierte.
+
+Varga stand drei Schritte entfernt und rührte sich nicht. Er hatte die Axt gesenkt, aber noch nicht abgelegt, und Taron sah, dass er auf etwas wartete. Nicht auf einen Befehl. Auf ein Wort, an dem er hätte erkennen können, wer da lag.
+
+Rugar sagte es nicht.
+
+Er sah nur Brokk an, sehr lange, und dann bewegte er die Hand ein Stück über den Boden, bis sie den Griff seines Hammers berührte, der neben ihm lag.
+
+Er nahm ihn nicht.
+
+Brokk atmete aus, als habe er zwanzig Jahre darauf gewartet.
+

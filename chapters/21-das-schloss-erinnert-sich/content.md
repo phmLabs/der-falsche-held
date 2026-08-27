@@ -304,6 +304,39 @@ Merlan nahm den Topf vom Feuer. Niemand lachte, aber Taron merkte, dass alle wie
 
 In dieser Nacht schliefen sie nicht viel. Merlan schrieb, Brokk zeichnete Eidzeichen aus Erinnerung nach, Elva ordnete Ansels Abschriften, und Oswin stand am Fenster. Taron saß vor den drei Schalen und spürte, dass die Schlüssel einander kannten.
 
+Gegen zwei nahm Oswin die Wache am Fenster nicht mehr ernst, weil er einschlief, und niemand weckte ihn, was in dieser Gruppe die höchste erreichbare Form von Zuneigung war.
+
+Elva legte ihm irgendwann eine Decke über die Schultern und ging danach so schnell weg, dass sie nicht dabeistehen musste.
+
+„Er wird beleidigt sein“, sagte Taron.
+
+„Er wird tun, als hätte er es bemerkt.“
+
+„Und?“
+
+„Dann lasse ich ihn.“
+
+Sie setzte sich zu Taron an den Tisch und sah in die Kreidelücke nach Süden.
+
+„Warum lässt Merlan die offen?“
+
+„Damit der Kreis keine Einladung ist.“
+
+„Das ist eine Erklärung für Kreise“, sagte Elva. „Nicht für Merlan.“
+
+Taron sah zu dem Gelehrten hinüber, der über einem Blatt saß und mit der Feder in der Luft wartete, als könne ein Satz noch abbiegen.
+
+„Er weiß es auch nicht“, sagte Taron. „Er lässt die Lücke, weil er die Regel gelernt hat, und er hält sich an Regeln, die er nicht versteht, weil sie älter sind als er.“
+
+„Ist das gut?“
+
+„Ich habe heute zwei Leute getroffen, die es besser wussten“, sagte Taron. „Der eine ist ein Priester und der andere ein Dämon.“
+
+Elva sah eine Weile auf die Lücke.
+
+„Dann bleibt sie offen“, sagte sie.
+
+
 Kurz nach Mitternacht begann die kleine Handglocke aus Ellingen in Tarons Beutel zu zittern.
 
 Sie gab keinen Ton von sich. Nur ein feines Beben, das durch Leder und Stoff bis in den Tisch wanderte. Merlan hob sofort den Kopf. Er sah nicht aus wie ein Mann, der geweckt wurde. Er sah aus wie ein Mann, der gehofft hatte, ein Problem warte bis zum Morgen, und nun persönlich enttäuscht wurde.

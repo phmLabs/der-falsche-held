@@ -116,6 +116,27 @@ Sie gingen nicht sofort weiter. Das war nicht geplant. Aber Pläne hatten in den
 
 Am Rand des Weges stand eine verfallene Bildsäule. Ein alter Heiliger ohne Nase hielt ein Buch, aus dem Regen eine Ecke gebrochen hatte. Darunter lagen abgelegte Dinge: ein Stück Schnur, zwei Eicheln, ein verkohlter Löffel. Kleine Bitten von Leuten, die nichts Größeres entbehren konnten.
 
+Taron sah die Sachen länger an, als er wollte.
+
+Er hatte solche Sockel sein ganzes Leben gesehen und immer angenommen, dort werde etwas geopfert. Jetzt fiel ihm auf, dass niemand etwas opferte, was er noch brauchte, und dass genau das die Auskunft war. Ein Stück Schnur hieß: Ich habe Schnur. Ein verkohlter Löffel hieß: Ich habe nichts, was noch funktioniert.
+
+Er tastete in seinen Taschen. Er hatte einen Menschenschlüssel, eine Rauchkugel, eine Handglocke, ein Pergament von einem Vorfahren und drei Fusseln.
+
+Nichts davon durfte er hierlassen.
+
+„Du suchst etwas zum Ablegen“, sagte Elva.
+
+„Ich stelle fest, dass ich nur Dinge besitze, die anderen Leuten gehören.“
+
+Elva zog einen Knopf von ihrem Ärmel. Es war ein Holzknopf, abgegriffen, mit einem Riss.
+
+„Der ist von der Küchenschürze“, sagte sie und legte ihn auf den Sockel. „Ich brauche ihn nicht mehr. Ich trage die Schürze nicht mehr.“
+
+„Ist das nicht schade?“
+
+„Nein“, sagte Elva. „Das ist der Punkt.“
+
+
 Elva setzte sich auf den niedrigen Sockel. „Als ich das in der Küche hörte, wollte ich zuerst nur weg.“
 
 „Von Waldkirch?“
@@ -238,6 +259,27 @@ Taron senkte den Löffel. „Das kommt darauf an, welche Geschichte Ihr gehört 
 „Dann nein.“
 
 Der Bauer kaute lange auf dieser Antwort. „Gut. Helden essen viel.“
+
+Er hieß Wendt und hatte zwei Söhne, von denen einer in Waldkirch als Bogenschütze eingezogen war und einer im letzten Winter gestorben war, und er erzählte beides in derselben Tonlage, weil er es zu oft erzählt hatte.
+
+„Wenn die Zwerge kommen“, sagte Oswin, „bleibt Ihr nicht hier.“
+
+„Wohin?“
+
+„Nach Osten.“
+
+„Da ist mein Land nicht.“
+
+„Da ist auch kein Krieg.“
+
+Wendt schöpfte sich Suppe nach. „Ich habe im letzten Krieg vier Wochen in einem Wald gesessen. Als ich zurückkam, stand mein Haus, und in meinem Bett schlief ein Fremder, und er hatte mehr Recht als ich, weil er zuerst da war und ich nichts Schriftliches hatte.“
+
+„Und dann?“
+
+„Dann haben wir uns geeinigt.“ Wendt kaute. „Er ist der, der im Winter gestorben ist.“
+
+Niemand sagte etwas dazu. Elva stand auf und stellte den Topf noch einmal aufs Feuer, obwohl er nicht kalt war.
+
 
 Taron wusste nicht, ob er beleidigt worden war. Der Erzähler begann zu sprechen, überlegte es sich aber offenbar anders. Das war eine bemerkenswerte Entwicklung, die Taron misstrauisch machte.
 
