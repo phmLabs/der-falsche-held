@@ -1,6 +1,6 @@
 König Rugar erwachte im Rauch.
 
-Das war kein würdiger Vorgang. Er hustete, würgte, schlug blind um sich und traf Merlan am Knie. Merlan nahm es mit der Fassung eines Mannes hin, der seit Jahren von alten Texten misshandelt wurde und nun nur eine neue Qüllengattung kennenlernte.
+Das war kein würdiger Vorgang. Er würgte, schlug blind um sich und traf Merlan am Knie.
 
 „Rugar“, sagte Brokk.
 
@@ -41,6 +41,18 @@ Dann Waldkirch.
 Niemand antwortete.
 
 Es gab Fragen, bei denen Schweigen keine Feigheit war, sondern ein Anfang.
+
+„Wer befiehlt?“, fragte Rugar.
+
+Varga antwortete automatisch: „Ihr, Majestät.“
+
+Rugar senkte den Kopf. Der Satz tat ihm weh. Man sah es.
+
+„Nein“, sagte er. „Vor einem Atemzug befahl jemand durch mich. Und ihr gehorchtet.“
+
+Varga wurde blass.
+
+Brokk sagte leise: „Wir alle gehorchten irgendwem.“
 
 Varga wollte antworten. Man sah es ihm an. In seinem Gesicht standen Anklage, Treue, Scham und der verzweifelte Wunsch, jemand möglichst schnell zum Schuldigen zu erklären, damit der Boden wieder fest wurde.
 
@@ -170,6 +182,112 @@ Albrecht hob die Hand.
 
 Nicht alle gehorchten sofort. Aber genug. Und genug war manchmal der schmale Steg, über den eine ganze Zukunft musste.
 
+Natürlich stockte es. Wer erwartete, dass Jahrhunderte aus Angst, Stolz, schlechten Abschriften, leeren Speichern und Totenlisten in einer einzigen schönen Bewegung die Waffen niederlegten, hatte vermutlich nie versucht, eine Familie zum gemeinsamen Abendessen zu bewegen.
+
+Ein Zwerg in der dritten Reihe hielt die Axt oben. Nicht aus Trotz allein. Seine Augen waren auf einen Menschen gerichtet, der ihm vor wenigen Atemzügen den Bruder vom Bein gezogen hatte. Der Bruder lag nun hinter ihm und atmete vielleicht. Vielleicht nicht. Der Mensch hielt wiederum den Speer oben, weil sein Vetter an der Mauer gefallen war und weil er gelernt hatte, dass ein Zwerg mit Axt keine Pause war, sondern eine kommende Wunde.
+
+Rugar sah sie beide.
+
+Albrecht auch.
+
+Taron sah, wie die beiden Könige begriffen, dass ein Befehl nach unten leichter war als Vertrauen zurück nach oben. Befehle sanken wie Steine. Vertrauen musste getragen werden.
+
+„Name“, sagte Rugar.
+
+Varga blinzelte. „Majestät?“
+
+Rugar zeigte auf den Zwerg mit der erhobenen Axt. „Sein Name.“
+
+Varga sah verwirrt, dann wütend, dann beschämt aus. „Kell. Sohn der Marn.“
+
+Rugar nickte langsam. „Kell, Sohn der Marn. Waffe nieder.“
+
+Der Zwerg zitterte. „Mein Bruder...“
+
+„Atmet“, rief Merlan vom Boden her, ohne aufzusehen. „Wahrscheinlich. Sicherer, wenn niemand ihn zur Bestätigung tritt.“
+
+Elva war schon bei dem verletzten Zwerg. Sie drückte ein Tuch auf seine Seite und sah zu Kell. „Er atmet. Wenn du weiter die Axt hebst, kann ich ihm schlechter helfen.“
+
+Kell senkte die Axt nicht sofort. Aber er sah zu seinem Bruder.
+
+Das reichte, damit der Mensch mit dem Speer unsicher wurde.
+
+Albrecht trat vor. Kein Glanz, keine Krone sichtbar unter Ruß und Rauch. Nur ein Mann, der zu spät lernte und noch immer Macht hatte.
+
+„Dein Name“, sagte er zu dem Menschen.
+
+Der Soldat schluckte. „Hanno, Majestät.“
+
+Taron erkannte ihn. Der Mann der Ziegenfrau. Der mit dem Bock, der am Banner gekaut hatte. Waldkirch war klein genug, dass selbst historische Augenblicke von Leuten bevölkert wurden, die man beim Vornamen kannte und deren Ziegen schlechte Manieren hatten.
+
+„Hanno“, sagte Albrecht. „Speer nieder.“
+
+Hanno sah zu Taron. Aus irgendeinem Grund zu Taron.
+
+Taron hob die Hände. „Ich habe heute keinerlei gute Autorität vorzuweisen.“
+
+„Sag trotzdem was“, sagte Elva.
+
+„Warum ich?“
+
+„Weil er dich ansieht.“
+
+Das war unfair, aber schwer zu widerlegen.
+
+Taron sah Hanno an. Dann Kell. „Wenn ihr beide jetzt senkt, seid ihr nicht die Ersten, die nachgeben. Ihr seid die Ersten, die jemandem Arbeit übrig lassen.“
+
+Hanno runzelte die Stirn. „Was?“
+
+„Heilen. Zählen. Wasser tragen. Sich später noch richtig beschweren. Alles Dinge, die schwerer werden, wenn ihr euch gegenseitig umbringt.“
+
+Der Erzähler sagte schwach: „Eine Rede wie ein schlecht geschliffener Löffel. Nicht schön, aber sie erreicht Suppe.“
+
+Hanno senkte den Speer.
+
+Kell senkte die Axt.
+
+Kein Lied hätte diesen Augenblick genommen. Zu viele Leute husteten. Elva hatte Blut am Ärmel. Merlan lag halb unter einer Bank und notierte wahrscheinlich innerlich, dass Namen wirkungsvoller waren als abstrakte Befehle. Aber im Hof senkten zwei weitere Waffen.
+
+Und diesmal sahen es alle.
+
+Albrecht drehte sich zu seinen Leuten. „Namen weitergeben. Wer die Waffe noch hält, wird beim Namen gerufen.“
+
+Greve, der irgendwo am Tor lehnte und aussah, als habe sein Bein eine eigene politische Meinung entwickelt, rief: „Ihr habt den König gehört.“
+
+„Welchen?“, rief jemand.
+
+Eine sehr berechtigte Frage.
+
+Albrecht sah zu Rugar.
+
+Rugar sah zurück.
+
+Für einen gefährlichen Atemzug hätte jeder der beiden die alte Ordnung wieder aufheben können. Mein Befehl. Meine Leute. Meine Deutung. Stattdessen sagte Rugar: „Beide.“
+
+Albrecht nickte.
+
+„Beide“, wiederholte Greve, als schmecke das Wort nach etwas, das er nicht bestellt hatte.
+
+Varga hob die Stimme auf Zwergisch. Brokk setzte auf Menschensprache nach. Oswin übersetzte nicht genau, sondern brauchbar, was wahrscheinlich die höchste Kunst des Übersetzens war.
+
+Namen wanderten durch den Hof.
+
+Nicht alle stimmten. Ein Waldkircher rief einen Zwerg „du da mit dem kaputten Helm“, worauf der Zwerg antwortete, sein Helm sei nicht kaputt, sondern historisch belastet. Der Waldkircher sagte dann „historisch belasteter Helm“, und beide wirkten damit unzufrieden, aber lebendig.
+
+Eine junge Zwergin senkte ihr Messer erst, als Marta aus dem Rauch trat und sagte: „Du mit der Schnittwunde am Ohr, entweder du lässt mich da dran oder ich nähe es dir später an die falsche Stelle.“
+
+Die Zwergin senkte das Messer.
+
+„Wie heißt du?“, fragte Marta.
+
+„Rina.“
+
+„Gut, Rina. Hinsetzen.“
+
+Rina setzte sich.
+
+Taron sah dem zu und dachte, dass Könige vielleicht nützlich waren, aber Marta an diesem Tag schneller regierte.
+
 Der Hunger von Waldkirch erschien im Tor zum Dungeon.
 
 Menschen schrien. Zwerge griffen wieder nach Waffen. Taron hob beide Hände.
@@ -194,11 +312,45 @@ Aber seine leuchtenden Zeichen wurden ruhiger.
 
 Elva sah zu Taron. Taron nickte kaum merklich. Manche Eide begannen offenbar mit sehr kleinen Mahlzeiten.
 
-Rugar sah ihn an. „Was ist das?“
+Merlan sah es und richtete sich so hastig auf, dass er sofort wieder bereute, einen Körper zu besitzen.
+
+„Namen“, sagte er.
+
+„Das haben wir bemerkt“, sagte Taron.
+
+„Nein. Der Wächter reagiert auf Namen. Nicht auf Titel. Nicht auf Befehle.“
+
+Elva sah zum Hunger. „Mara.“
+
+Der alte Wächter hob den Kopf.
+
+Alle in ihrer Nähe verstummten.
+
+Elva wiederholte den Namen nicht lauter. Sie stellte ihn nur in die Luft, vorsichtig, wie man eine Schale an eine Bettkante stellte.
+
+„Mara“, sagte sie. „Die den Hunger band.“
+
+Der Hunger gab einen Laut von sich, der beinahe Weinen war und beinahe Steinbruch. Einige Menschen wichen zurück. Einige Zwerge auch. Niemand lachte.
+
+Rugar sah zum Tor. „Was ist das?“
 
 Merlan antwortete leise: „Ein alter Fehler, der noch Dienst tut.“
 
 Taron dachte an Waldkirchs Hunger, an Karndorns Hunger, an alle Reiche, die ihre Not in Monster verwandelten und dann so taten, als sei Töten eine Lösung.
+
+Rugar sah ihn lange an.
+
+„Ich ließ dich Monster nennen“, sagte er.
+
+Niemand wusste, ob er zum Hunger sprach, zu Brokk, zu Waldkirch oder zu sich selbst. Vielleicht zu allen.
+
+Der Hunger senkte den Kopf.
+
+Albrecht trat neben ihn.
+
+„Wir haben ihn ohne Namen gehalten“, sagte Albrecht.
+
+„Und wir haben nach einem Recht ohne Namen gesucht“, sagte Rugar.
 
 Brokk kniete vor Rugar. „Der alte Eid kann nicht von einer Seite erneuert werden.“
 
@@ -213,6 +365,16 @@ Alle sahen ihn an.
 Er war es leid, wenn das passierte.
 
 „Aber vielleicht von Leuten, die endlich wissen, dass sie es nicht allein dürfen.“
+
+Taron stand zwischen Rauch, Namen und sinkenden Waffen und merkte, dass die Stille nicht kam, weil alle auf einmal gut geworden waren. Sie kam, weil genug Leute für einen Atemzug die Hand des anderen als Hand sahen, nicht als Teil einer Seite.
+
+Das war kleiner als Erlösung.
+
+Es war auch seltener.
+
+Und für einen Atemzug wagte niemand, diesen kleinen Anfang zu erschrecken.
+
+Danach mussten sie ihn mit beiden Händen festhalten.
 
 Der neue Eid wurde an diesem Tag nicht vollendet.
 
