@@ -300,6 +300,4 @@ Taron legte sich hin.
 
 Zum ersten Mal seit Tagen war er nicht allein mit der Stimme.
 
-Es machte alles komplizierter.
-
-Und ein wenig leichter.
+Es machte alles ein wenig leichter.
