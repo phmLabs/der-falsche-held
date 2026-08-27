@@ -1,4 +1,8 @@
 - Der andere Daemon will Taron uebernehmen und sperrt die Gruppe in der Kammer ein.
-- Taron wird schwer verletzt, Oswin entwaffnet, Brokk vom Eid gebunden.
-- Der Erzaehler uebernimmt Taron mit einem gewaltigen Schutzzauber und toetet alle feindlichen Wesen im Raum.
-- Taron ist wuetend, weil diese Macht frueher gebraucht worden waere, und erkennt zugleich den Preis.
+- Taron wird schwer verletzt, Oswin entwaffnet, Brokk vom Eid gebunden: Er kommt bis auf vier Schritte an Rugar heran und kann nicht zuschlagen.
+- Der Erzaehler uebernimmt Taron mit einem gewaltigen Schutzzauber und toetet alle gebundenen Wesen im Raum. Taron bleibt dabei wach und spuert, dass der Erzaehler ihn vorsichtig benutzt, aber ohne ihn.
+- Mit den gebundenen Gestalten faellt auch Brokks Eid: Er haengt an nichts mehr, und Brokk begreift, dass alle Eide im Raum an derselben Stelle festgemacht waren.
+- Merlan macht den Preis explizit: Direkter Schutz loest Bindung. Der Erzaehler wird stark, wenn er hilft, und weniger gehalten. Jede frueher erbetene Hilfe waere ein Stueck Loesung gewesen.
+- Der Erzaehler verliert Kleinigkeiten: Er sagt Oswins Zahl falsch (vierundachtzig statt sechsundachtzig) und hat Tarons ersten Satz aus dem Stall bis auf eine Ziege verloren.
+- Oswin zaehlt neun Haeufchen Asche und weiss nicht, in welche Spalte sie gehoeren.
+- Taron ist wuetend, weil diese Macht frueher gebraucht worden waere, und erkennt zugleich den Preis. Elvas Frage, ob der Erzaehler gehen will, stellt er nicht.
