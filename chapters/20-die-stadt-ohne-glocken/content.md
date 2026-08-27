@@ -32,6 +32,19 @@ Die Frau schimpfte nicht.
 
 Sie zog den Schuh aus und ging barfuß weiter.
 
+Taron sah ihr nach, bis sie um eine Ecke war.
+
+Auf dem halben Weg dorthin bückte sich ein Mann, hob etwas auf und legte es ihr in den Korb. Er tat es, ohne stehen zu bleiben, und keiner von beiden sah den anderen an. Taron konnte nicht erkennen, was es war. Er nahm an, es war der zweite Schuh.
+
+„Das ist die ganze Stadt“, sagte Elva leise.
+
+„Was?“
+
+„Sie helfen sich, ohne dass man es beweisen kann.“
+
+Der Erzähler sagte: „Das nennt man üblicherweise eine Kultur. Sie entsteht schnell und geht langsam.“
+
+
 Brokk sah weg.
 
 „Kennst du sie?“, fragte Taron.
@@ -148,6 +161,25 @@ Rugars Männer nahmen den Topf.
 
 Danach lernte Ellingen Stille.
 
+Ansel erzählte auch, was danach kam, weil das der Teil war, den niemand aufschrieb.
+
+Die Hebamme starb im zweiten Winter. Nicht an der fehlenden Glocke; sie starb an einem Fieber, das mit Ordnung nichts zu tun hatte. Aber in dem Jahr davor waren zwei Kinder gestorben, die vielleicht nicht hätten sterben müssen, und die Stadt sprach darüber nicht, weil Sprechen bedeutet hätte, jemanden zu benennen.
+
+Der Lehrer brachte den Kindern bei, auf den Schatten des Hallenturms zu sehen. Im Sommer ging das. Im Winter kamen sie zu früh oder gar nicht, und im dritten Winter kam der Lehrer nicht mehr.
+
+Und die Leute erfanden Ersatz. Sie klopften. Nicht auf Metall, sondern mit dem Knöchel auf Holz, zwei kurz, einmal lang, und jeder in Ellingen wusste, was das bedeutete, und keiner konnte sagen, wer es beschlossen hatte.
+
+„Klopfen ist erlaubt?“, fragte Taron.
+
+„Klopfen ist kein Klang“, sagte Ansel. „Es ist ein Geräusch. Geräusche kann man nicht verbieten, ohne Häuser zu verbieten.“
+
+„Und die Zeichen? Weckt das auch welche?“
+
+Ansel legte ihre Nadel hin.
+
+„Nein“, sagte sie. „Das ist das Traurige daran. Es hat die Stadt gerettet, nicht den Eid.“
+
+
 Sie nahm eine kleine Handglocke aus einer Schublade. Oswin trat sofort zur Tür. Brokk hob warnend die Hand.
 
 Ansel läutete einmal.
@@ -173,6 +205,35 @@ Die Schritte gingen vorbei.
 Niemand atmete sofort aus.
 
 Ansel wandte sich wieder dem Tisch zu. „Das ist der Grund. Jeder Klang, der aus Absicht kommt, bringt die alten Linien näher an die Oberfläche. Glocken sind nicht magisch. Sie sind genau.“
+
+„Zeig mir die vierte“, sagte Taron.
+
+Ansel läutete nicht noch einmal. Sie legte zwei Finger auf die Tischplatte, dorthin, wo die Linien gewesen waren.
+
+„Die drei sind eingeschnitten“, sagte sie. „Ich kann sie fühlen, wenn ich weiß, wo sie liegen. Das ist alte Arbeit, sauber gemacht. Die vierte ist nicht eingeschnitten.“
+
+„Was ist sie dann?“
+
+„Ein Sprung.“
+
+Taron legte auch die Hand hin. Er fühlte nichts, was ihn nicht überraschte, und dann fühlte er es doch: eine winzige Unebenheit, quer zu den anderen, wie wenn Holz an einer Stelle nachgibt, die keine Faser erklärt.
+
+„Wer macht so einen Sprung?“
+
+„Niemand macht ihn“, sagte Ansel. „Er entsteht, wenn man von der falschen Seite drückt.“
+
+Brokk hatte lange nichts gesagt. Jetzt sagte er: „Sechs Jahre.“
+
+Ansel sah ihn an.
+
+„Vor sechs Jahren kam Rugar hierher und nahm die Glocken“, sagte Brokk. „Vier Jahre davor war Riedwacht. Wenn dazwischen etwas gedrückt hat, hatte es Zeit.“
+
+„Ja.“
+
+„Warum hat es niemand gemerkt?“
+
+„Es hat jemand gemerkt“, sagte Ansel und tippte auf ihre Regale. „Und aufgeschrieben. Aufschreiben ist nicht dasselbe wie merken. Das haben wir in diesem Beruf noch nicht gelöst.“
+
 
 Merlan wäre glücklich gewesen, diesen Satz zu hören. Taron beschloss, ihn später falsch wiederzugeben, damit Merlan wenigstens Arbeit hatte.
 
@@ -216,6 +277,41 @@ Elva hob eine Augenbraue.
 
 „Ich meine, vermutlich ja, aber ich wollte es der Form halber versuchen.“
 
+Taron sah die Liste noch einmal an. Die Namen waren klein und dicht geschrieben, und je weiter unten sie standen, desto weniger wurden sie.
+
+„Warum hört sie auf?“
+
+„Weil es aufgehört hat.“
+
+„Warum?“
+
+Ansel strich über die durchgestrichenen Zeilen. „Ein Eidsprecher kann nicht gewinnen. Das ist der ganze Sinn. Wer nicht gewinnen kann, hat nichts anzubieten, und Leute ohne Angebot lädt niemand ein. Erst hat man sie nicht mehr gerufen. Dann hat man ihre Plätze anders verwendet. Dann hat man vergessen, wofür die Plätze waren.“
+
+„Und dann?“
+
+„Dann hat man die Namen herausgeschnitten, damit auch niemand mehr fragt.“
+
+Taron sah auf die Blätter, und es war ihm unangenehm klar, dass er das Ergebnis dieser Reihenfolge in der Tasche trug.
+
+„Steht ein Falkenried drauf?“
+
+Ansel hob den Kopf. Ihre Augen waren wirklich sehr klar.
+
+„Nein.“
+
+„Gut.“
+
+„Es ist nicht gut“, sagte sie. „Es heißt, dass dein Vorfahr nie einer war. Er hat den Schlüssel weggetragen, ohne dass ihn jemand dazu bestellt hatte. Das ist entweder das Schlimmste in dieser Geschichte oder das Beste, und ich habe vierzig Jahre gebraucht und weiß es noch nicht.“
+
+Elva fragte: „Was denkt Ihr an guten Tagen?“
+
+„An guten Tagen denke ich, dass ein Eid, den nur bestellte Leute sprechen dürfen, kein Eid ist, sondern ein Amt.“
+
+„Und an schlechten?“
+
+„An schlechten denke ich an die Hebamme.“
+
+
 Oswin trat vom Fenster zurück. „Varga ist in der Stadt.“
 
 Diesmal kam die Gefahr nicht als Hornruf. Sie kam als Ordnung. Auf dem Platz wurden Menschen zur Seite geschickt. Zwei Zwerge gingen von Stand zu Stand und fragten ruhig nach Fremden. Ein dritter hielt ein Tuch in der Hand, auf dem etwas Dunkles gezeichnet war: kein Gesicht, nur ein Umriss. Taron erkannte den Vogel nicht sofort, weil er nicht stolz flog, sondern den Kopf senkte.
@@ -229,6 +325,19 @@ Falkenried.
 „Ich bevorzuge unpersönliche Verfolgung.“
 
 „Zu spät.“
+
+Taron sah durch den Fensterriss auf das Tuch mit dem Vogel.
+
+Es war kein gutes Bild. Wer es gezeichnet hatte, hatte einen Falken nie aus der Nähe gesehen: Der Kopf war zu rund, die Krallen zu kurz. Aber die Haltung stimmte, und die Haltung war das, was sie brauchten.
+
+„Wo haben sie das her?“, fragte er.
+
+Brokk sah kurz hin. „Von einer Wand in Abendriss.“
+
+„Dann war ihr Späher tiefer unten, als wir dachten.“
+
+„Ja.“
+
 
 Ansel schob die Papiere zusammen. „Dann habt ihr wenig Zeit. Er sucht die Glocken.“
 
@@ -247,6 +356,29 @@ Taron nahm sie, als könnte sie beißen. „Was soll ich damit?“
 „Ja.“
 
 Draußen rief jemand auf Zwergisch. Menschen auf dem Markt begannen, ihre Körbe einzusammeln, nicht hastig, aber mit der grimmigen Übung von Leuten, die das schon zu oft getan hatten.
+
+Ansel stand auf, und dabei sah man ihr Alter zum ersten Mal.
+
+„Ich komme nicht mit“, sagte sie, bevor jemand fragte.
+
+„Sie werden Euch finden“, sagte Oswin.
+
+„Sie haben mich zweimal gefunden. Beide Male haben sie eine wahre Liste bekommen.“ Sie band ihr Netz zusammen und legte es auf den Stuhl, als komme sie in einer Stunde zurück. „Wenn ich verschwinde, wissen sie, dass hier etwas war. Wenn ich hier sitze und flicke, wissen sie, dass hier eine alte Frau sitzt und flickt.“
+
+„Und wenn sie diesmal genauer fragen?“
+
+„Dann antworte ich diesmal genauer.“ Sie sagte es ohne Heldenhaftigkeit, so wie man sagt, dass man abends noch Wasser holen muss. „Ihr habt die Glocke. Das ist der Teil, der weiter muss.“
+
+Brokk sagte etwas auf Zwergisch. Es war kurz, und Ansel antwortete in derselben Sprache, langsamer und mit einem Fehler, den Brokk hörte und stehen ließ.
+
+„Was war das?“, fragte Taron später.
+
+„Eine Formel“, sagte Brokk. „Man sagt sie, wenn man jemanden zurücklässt, den man mitnehmen müsste.“
+
+„Was heißt sie?“
+
+„Ich habe dich gezählt.“
+
 
 Ansel führte die Gruppe durch einen Hinterhof zu einem schmalen Tor.
 
@@ -277,6 +409,19 @@ Taron nahm den Stab nicht. Er nickte nur.
 „Wem soll ich das sagen?“
 
 Das Mädchen sah ihn an, als sei er langsamer, als sein Alter erlaubte. „Allen, die Glocken klauen.“
+
+Auf dem ersten Hügel hinter der Stadt sah Taron zurück.
+
+Ellingen lag ordentlich in seiner Mulde. Die Dächer geflickt, die Gassen sauber, die Felder bestellt, soweit man das von hier sehen konnte. Es sah aus wie ein Ort, in dem es den Leuten nicht schlecht ging, und genau darin lag der Trick. Taron begriff mit Verzögerung, dass man einen solchen Ort in einem Bericht nach Waldkirch mit vollem Recht friedlich nennen konnte.
+
+„Wenn Malchior das sähe“, sagte er, „schriebe er Wohlstand.“
+
+„Er schriebe Verwaltung“, sagte Oswin. „Und würde es bewundern.“
+
+„Das ist schlimmer.“
+
+„Ja.“
+
 
 Elva lächelte dem Mädchen zu. Nicht freundlich im weichen Sinn. Eher wie jemand, der versprach, den Satz nicht fallen zu lassen.
 

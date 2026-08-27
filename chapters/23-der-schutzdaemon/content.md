@@ -54,6 +54,44 @@ Brokk sah nach Norden, wo Karndorn lag. „Oder die Hallen.“
 
 Merlan nickte.
 
+Oswin sprach zum ersten Mal seit dem Morgen.
+
+„Schütze den Eid selbst“, sagte er. „Das kenne ich.“
+
+Merlan drehte sich um. „Woher?“
+
+„Aus Befehlen.“ Oswin sah geradeaus. „Man bekommt keinen Befehl, ein Dorf zu verbrennen. Man bekommt den Befehl, eine Linie zu halten. Wenn dann Rauch dazugehört, gehört er eben zur Linie.“
+
+Merlan schrieb nichts mit. Taron merkte, dass das bei ihm eine Form von Höflichkeit war.
+
+„Und was hilft dagegen?“, fragte Elva.
+
+„Jemand, der neben dir steht und fragt, ob das noch die Linie ist.“
+
+„Und wenn niemand fragt?“
+
+„Dann hält man die Linie sehr lange.“
+
+Brokk brummte etwas auf Zwergisch. Es klang nicht wie Widerspruch.
+
+„Und die dritte Frage?“, sagte Taron. „Schutz um welchen Preis.“
+
+Merlan ließ die drei Kreise stehen. „Das ist die einzige der drei, die kein Wesen für sich allein beantworten darf.“
+
+„Warum nicht?“
+
+„Weil der Preis immer von jemand anderem bezahlt wird.“ Merlan hielt die Kreide hoch. „Wenn ich dich vor einem Sturz bewahre, indem ich dir das Bein brechen lasse, habe ich dich geschützt. Wenn ich dich vor einer Entscheidung bewahre, indem ich sie selbst treffe, habe ich dich ebenfalls geschützt. Das Zweite fällt niemandem auf, weil man es nicht sieht.“
+
+Taron ging eine Weile schweigend.
+
+„Merlan.“
+
+„Ja?“
+
+„Ich hätte gern, dass du diesen Satz an einem anderen Tag sagst.“
+
+„Es gibt keine anderen Tage mehr“, sagte Merlan freundlich. „Nur diesen und die davor.“
+
 Taron sah auf die Kreidekreise. „Und meiner?“
 
 „Das“, sagte Merlan, „weiß vermutlich nur er.“
@@ -82,9 +120,35 @@ Der Erzähler schwieg kurz. „Jetzt ist es komplizierter.“
 
 „Aber ein wahrer.“
 
+„Versuch es genauer.“
+
+„Ein Auftrag ist ein Satz“, sagte der Erzähler. „Sätze halten schlecht. Der meine hieß: bewahre den Träger. Träger war eine Rolle. Dann trug ein Mann den Schlüssel, und ich lernte, wie er hustete, wenn er zu lange gelesen hatte. Dann trug ihn niemand, und ich hatte nichts zu tun außer zu warten. Dann saß ein Kind in einem Stall und hatte Angst vor Gewitter.“
+
+Taron sah auf den Weg.
+
+„Das Kind trug keinen Schlüssel.“
+
+„Nein.“
+
+„Warum hast du mit ihm geredet?“
+
+„Weil in dem Stall das Dach ein Loch hatte“, sagte der Erzähler, „und weil niemand kam.“
+
+Merlan, der nur eine Hälfte des Gesprächs hörte, sagte leise zu Elva: „Das ist der interessanteste Satz, den heute jemand gesagt hat, und ich werde nie erfahren, welcher es war.“
+
 Der Wind ging über die offenen Felder. In der Ferne sah man bereits die dunkle Linie der Waldkircher Wälder. Taron hatte sein Zuhause nie groß gefunden. Jetzt wirkte es zu klein für alles, was darunter liegen sollte.
 
-Sie gingen durch ein Dorf, das nur noch aus vier bewohnten Häusern bestand. Die anderen hatten Bretter vor den Fenstern oder gar keine Fenster mehr. Ein alter Mann saß vor einem Backofen, in dem kein Feuer brannte, und schnitzte aus trockenem Holz kleine Vögel.
+Sie gingen durch ein Dorf, das nur noch aus vier bewohnten Häusern bestand. Die anderen hatten Bretter vor den Fenstern oder gar keine Fenster mehr.
+
+An einem der leeren Häuser war die Tür ordentlich zugezogen und mit einem Strohband gesichert, wie man es macht, wenn man wiederkommen will. Das Strohband war alt.
+
+In einem Garten stand Kohl, den niemand geerntet hatte, weil er in dieser Größe nicht mehr lohnte und niemand mehr da war, den er hätte lohnen müssen. Elva ging hin, brach zwei Köpfe und legte dafür einen Kupferring auf den Zaunpfahl, den sie in Grauwehr für nichts bekommen hatte.
+
+„Da ist niemand“, sagte Taron.
+
+„Dann liegt er da“, sagte Elva.
+
+Oswin sah es und sagte nichts, aber er ritt danach ein Stück näher bei ihr. Ein alter Mann saß vor einem Backofen, in dem kein Feuer brannte, und schnitzte aus trockenem Holz kleine Vögel.
 
 Als er Taron sah, hielt er einen hoch. „Falke?“
 
@@ -97,6 +161,28 @@ Taron blieb stehen. Der Vogel war grob gearbeitet, aber die Haltung stimmte: Kop
 Merlan war sofort neben ihm. „Woher kennt Ihr die Hüterzeichen?“
 
 Der Alte sah ihn an. „Von meinem Großvater. Der sagte, wenn der Falke den Kopf senkt, schaut er nicht weg. Er zielt.“
+
+Merlan hockte sich neben ihn, was für Merlan ein Kraftakt war. „Wo habt Ihr sie gesehen? Die Zeichen.“
+
+„An der Mühle in Steinbrück, in die Tür geschnitten. An einem Grenzstein hinter dem Sumpf. Und auf einem Krug.“
+
+„Auf einem Krug?“
+
+„Der stand am Weg. Voll Wasser. Niemand dabei.“ Der Alte legte den Holzvogel in eine Schale zu vier anderen, alle gleich, alle mit gesenktem Kopf. „Früher hätte ich gesagt, Kinder machen das. Kinder ritzen aber gern Gesichter. Das hier ritzt jemand, der es nicht üben muss.“
+
+Elva sah Taron an. Taron wusste, was der Blick meinte, und wollte es nicht wissen.
+
+„Die kommen wieder heraus“, sagte der Alte. „Aus dem Westen. Ich habe es meinem Sohn gesagt. Der hat gesagt, ich soll Vögel schnitzen und nicht Politik.“
+
+„Wo ist Euer Sohn?“, fragte Elva.
+
+„In Ellingen. Er näht jetzt für Zwerge. Es ist Arbeit.“
+
+Merlan richtete sich auf und schrieb im Stehen. „Wenn Hüterzeichen an Straßen erscheinen, bewegen sich Hüter. Sie sind nicht dafür gebaut, sich zu bewegen.“
+
+„Ist das schlimm?“, fragte Taron.
+
+„Es ist bemerkenswert. Bemerkenswert wird meistens schlimm, wenn man es zu lange bemerkenswert nennt.“
 
 Taron nahm den Holzvogel nicht. Er wollte es, aber er tat es nicht. Nicht jedes Zeichen musste ihm gehören.
 
@@ -135,6 +221,12 @@ Taron wartete.
 Die Antwort kam weich. Fast ohne Spott.
 
 Taron sah wieder den Stall von früher. Das Heu. Das Loch im Dach, durch das Regen kam. Die Stimme, die ihm erklärt hatte, dass Sterne Löcher in einer schlecht verarbeiteten Nacht seien. Er hatte damals gelacht, bis Marta hereinkam und fragte, mit wem er rede. Danach hatte er gelernt, leiser zu antworten.
+
+Er erinnerte sich auch an das, was danach kam, und das erinnerte er selten, weil es in einer Geschichte keinen guten Platz hatte. Marta hatte nicht geschimpft. Sie hatte sich neben ihn gesetzt, ihm eine Schale in die Hand gedrückt und gefragt, wie der Freund heiße. Taron hatte gesagt, er habe keinen Namen. Marta hatte genickt und gesagt, das sei bei den meisten so, mit denen man wirklich redet.
+
+Danach hatte sie nie wieder gefragt. Sie hatte nur manchmal zwei Schalen hingestellt und eine mit einem Tuch abgedeckt, damit sie warm blieb, und war gegangen, ohne etwas dazu zu sagen.
+
+Taron war zwölf gewesen, als er begriff, dass sie ihm damit geglaubt hatte.
 
 „Ich dachte, ich hätte dich erfunden“, sagte er.
 
@@ -228,6 +320,20 @@ Er zeigte ihr den Streifen.
 
 Merlan nahm ihn nicht, sondern beugte sich nur darüber. „Falkenried-Hand.“
 
+„Wie erkennst du das?“, fragte Elva.
+
+„Am R.“ Merlan zeigte, ohne zu berühren. „Die Falkenrieds ziehen den Bogen zu weit nach unten. In der Schreibstube von Waldkirch nennt man das den Stallbogen, weil man es Leuten beibringt, die keine Urkunden schreiben werden.“
+
+Elva sah lange auf die vier Worte.
+
+„Ich habe das gelernt“, sagte sie. „Denselben Bogen. Man hat es mir beigebracht, damit ich Listen führe, nicht damit ich lese, was auf den Listen steht.“
+
+Sie sah zu Taron.
+
+„Dein Vorfahr hat mit derselben Hand geschrieben, mit der man mich Rüben zählen ließ.“
+
+Taron hatte darauf keine Antwort, die den Satz nicht kleiner gemacht hätte.
+
 „Mein Vorfahr?“
 
 „Sehr wahrscheinlich.“
@@ -290,6 +396,22 @@ Merlan schrieb später an den Rand seiner Notizen: Bindung verändert beide Seit
 
 Brokk saß am Feuer und schärfte eine Kerbe aus seinem Stab. „In Karndorn sagt man, ein Eid macht aus zwei Dingen ein drittes. Nicht besser. Nicht reiner. Nur drittes.“
 
+„Habt ihr solche Wesen?“, fragte Merlan. „In den Hallen.“
+
+Brokk sah ins Feuer. „Wir haben Geschichten über Stimmen im Stein. Die meisten sind Warnungen für Kinder, die zu tief spielen. Eine ist keine.“
+
+„Welche?“
+
+„Die vom Horchgang.“ Brokk drehte den Stab. „Vor sehr langer Zeit soll in Karndorn ein Gang gewesen sein, in dem man Antworten bekam, wenn man laut genug fragte. Man hat ihn zugemauert.“
+
+„Warum?“
+
+„Weil die Antworten stimmten.“
+
+Merlan hielt in der Bewegung inne. „Das ist der beste Grund, etwas zuzumauern, den ich seit Jahren gehört habe.“
+
+„Es ist auch der einzige, der bei Zwergen zieht.“
+
 „Und wenn eines der Dinge ein Dämon ist?“, fragte Taron.
 
 „Dann sollte das andere Ding stur sein.“
@@ -311,6 +433,22 @@ Es war kein klarer Traum. Arven hatte kein Gesicht, nur Hände: schmal, vernarbt
 Es war der Erzähler, aber jünger. Oder Taron träumte ihn jünger, weil Erinnerungen gern Kostüme trugen.
 
 Arven antwortete: „Man bewahrt nicht, was Könige zum Käfig machen.“
+
+„Es ist nicht deine Entscheidung“, sagte die Stimme.
+
+„Nein“, sagte Arven. „Es ist meine Hand.“
+
+Im Traum war das Turmzimmer wärmer, als es hätte sein dürfen, und Taron begriff nach einer Weile, warum: Es war Sommer in dieser Erinnerung, und unten sang jemand bei der Arbeit, falsch und zufrieden. Arven hörte darauf. Man sah es an seinen Schultern.
+
+„Wenn ich es nicht tue“, sagte er, „dann tut es niemand, und dann liegt er zweihundert Jahre in einer Kammer und wartet auf einen König mit besseren Argumenten.“
+
+Die Stimme antwortete nicht sofort.
+
+„Ja“, sagte sie schließlich.
+
+„Du gibst mir recht.“
+
+„Ich gebe dir recht und halte dich trotzdem auf. Das ist der Teil, den du mir nicht verzeihen wirst.“
 
 Dann griff er nach dem Messer.
 
@@ -377,3 +515,35 @@ Merlan nickte. „Wichtig ist, dass der Erzähler ihn aufhielt und es bereut. Re
 „Ja.“
 
 Er mochte Merlan in diesem Moment ein wenig weniger, weil der Mann nicht versuchte, es einfacher zu machen.
+
+Später ging Elva ein Stück neben ihm, ohne etwas zu sagen, was bei ihr eine Absicht war.
+
+„Frag“, sagte Taron.
+
+„Wenn er dich aufhält“, sagte sie. „So wie damals deinen Vorfahren. Woran merkst du es?“
+
+Taron hatte darüber die halbe Nacht nachgedacht und hatte nur eine Antwort, die ihm nicht gefiel.
+
+„Ich merke es nicht.“
+
+„Das dachte ich.“
+
+„Das ist keine gute Antwort.“
+
+„Nein“, sagte Elva. „Aber eine, mit der man arbeiten kann.“
+
+Sie ging drei Schritte weiter. „Dann merke ich es.“
+
+Taron sah sie an.
+
+„Ich kenne dein Gesicht besser als er“, sagte sie. „Er kennt, was du denkst. Das ist etwas anderes. Wenn du etwas tust, das nicht zu deinem Gesicht passt, sage ich es. Laut. Auch wenn es unpassend ist.“
+
+„Es wird unpassend sein.“
+
+„Ja.“
+
+Der Erzähler antwortete darauf nicht.
+
+Taron horchte nach innen und fand die Stelle, an der sonst eine Bemerkung gekommen wäre. Sie war nicht leer. Dort saß etwas, das zuhörte und nicht widersprach.
+
+Es war das erste Mal, dass in dieser Sache drei Parteien anwesend waren, und Taron war die einzige, die es bemerkte.
