@@ -96,6 +96,51 @@ Oswin ging sofort in die Hocke und prüfte den Rand der Senke. „Varga kommt wi
 
 Sie lasen.
 
+Es ging langsam, und es ging schlecht, und Taron lernte in dieser Viertelstunde mehr über das Lesen als in siebzehn Jahren auf Burg Waldkirch.
+
+Elva las die menschlichen Buchstaben laut vor, Wort für Wort, und ließ Lücken, wo Lücken waren, statt sie zu füllen. Taron fiel auf, dass sie nie riet. Wenn ein Buchstabe fehlte, sagte sie „fehlt“, und wenn zwei fehlten, sagte sie „zwei fehlen“.
+
+„Du machst das gut“, sagte er.
+
+„Ich habe Listen geführt. Wer bei Listen rät, bringt Leute um Brot.“
+
+Brokk las die Runen und übersetzte nicht sofort, sondern erst, wenn er die ganze Zeile gesehen hatte. Zwergische Schrift, erklärte er zwischendurch, werde nach hinten wichtiger. Wer sie von vorn übersetze, komme regelmäßig zu tröstlichen Ergebnissen.
+
+Die dritte Schrift las niemand.
+
+Taron sah sie an, und sie sah nicht aus wie Schrift. Sie sah aus wie Risse, die sich zu oft an derselben Stelle wiederholten, um Risse zu sein. Wenn er lange hinsah, meinte er eine Regelmäßigkeit zu erkennen, und in dem Moment, in dem er sie erkannte, verlor er die Zeile.
+
+„Ich kann sie nicht festhalten“, sagte er.
+
+„Gut“, sagte der Erzähler.
+
+„Warum gut?“
+
+„Weil Schrift, die man festhalten kann, gelesen werden will.“
+
+Er gab die Worte einzeln frei. Nicht wie ein Lehrer und nicht wie ein Verbündeter, sondern wie jemand, der einen sehr schweren Gegenstand über eine Schwelle hebt und dabei genau weiß, wie viele Finger er noch hat.
+
+„Bindung.“
+
+Pause.
+
+„Zeuge.“
+
+Pause.
+
+„Drei.“
+
+„Drei was?“
+
+„Nur drei. Da steht nicht mehr.“
+
+„Und der Rest?“
+
+„Der Rest ist die Stelle, an der ich anfange zu lügen, wenn ich weiterrede.“
+
+Taron gab das nicht weiter. Er wusste nicht, wie man es übersetzte, ohne dass Brokk die Axt hob.
+
+
 Die Botschaft war nicht vollständig. Vielleicht war sie nie vollständig gewesen. Vielleicht hatte Vollständigkeit an solchen Orten als Einladung zur Dummheit gegolten. Aber genug blieb: Menschen und Zwerge hatten das Schloss gemeinsam errichtet. Nicht für einen Sieg. Für eine Fessel. Nicht gegen ein Volk. Gegen etwas, das Schutz versprach und Herrschaft meinte.
 
 „Ein Wesen“, sagte Brokk.
@@ -119,6 +164,41 @@ Der Erzähler lachte nicht. „Prophezeiungen, Grenzberichte, Erinnerungen. Es b
 Wieder dieses Schweigen.
 
 Diesmal war es nicht leer. Es war falsch. Es stand an der Stelle, an der eine Antwort hätte stehen müssen, und Taron sah zum ersten Mal, wie viel Gewalt in einem fehlenden Satz liegen konnte.
+
+Dann sagte der Erzähler etwas, worum ihn niemand gebeten hatte.
+
+„Ich kenne sie, weil ich sie könnte.“
+
+Taron blieb in der Hocke. „Was?“
+
+„Die Methode. Ein Wort weniger, ein Zeuge zu spät. Ich habe nie behauptet, dass ich anders gebaut bin als er. Ich habe behauptet, dass ich es nicht tue.“
+
+„Das ist ein Unterschied.“
+
+„Es ist der einzige, den ich habe.“
+
+Elva sah Taron an. „Was sagt er?“
+
+Taron überlegte, ob er es weitergeben durfte. Dann, ob er es weitergeben wollte. Dann tat er es, weil Brokk neben ihm kniete und weil Brokks König gerade genau daran zerbrach.
+
+Brokk hörte zu, ohne den Kopf zu heben.
+
+„Sag ihm“, sagte er schließlich, „dass ich das schon einmal gehört habe. Von einem Mann, der Wache hielt, während andere schliefen. Er sagte, er könne uns alle im Schlaf erschlagen und tue es nicht, und wir sollten deshalb nicht so viel über sein Gesicht reden.“
+
+„Und dann?“
+
+„Dann hat er zwanzig Jahre Wache gehalten und niemanden erschlagen.“
+
+Taron gab es weiter.
+
+Der Erzähler brauchte lange.
+
+„Dein Hauptmann ist gefährlich“, sagte er dann.
+
+„Warum?“
+
+„Weil er einem alten Wesen Trost anbietet und dabei keine seiner Bedingungen zurücknimmt. So etwas tun sonst nur Leute, die recht haben.“
+
 
 Brokk hob den Schutzschlüssel nicht auf. Er legte den Zwergenschlüssel neben den Menschenschlüssel, den Taron aus seinem Hemd zog, und wartete.
 
@@ -194,6 +274,25 @@ Brokk übersetzte nicht sofort. Das war bei ihm selten ein Zeichen von Unwissen.
 
 „Kein Schutz ohne Stimme des Geschützten“, sagte er.
 
+Taron sprach den Satz halblaut nach, weil er ihn in seinem Mund haben wollte.
+
+Es war der unheldischste Satz, den er je gehört hatte. Keine Klinge darin, kein Licht, kein Auserwählter. Nur eine Bedingung, so klein, dass man sie beim Abschreiben aus Versehen weglassen konnte.
+
+Genau deshalb hatte sie jemand nicht aus Versehen weggelassen.
+
+„Wenn das dort stand“, sagte Elva langsam, „dann war jeder Schutz danach ungedeckt.“
+
+Brokk nickte. „Alles, was Rugar seit Riedwacht befohlen hat, hat er im Namen von Schutz befohlen. Wachen an den Grenzen. Die Glocken aus Ellingen. Getreide aus Graumark.“
+
+„Und niemand wurde gefragt“, sagte Oswin.
+
+„Zwerge fragen ihren König nicht.“
+
+„Menschen auch nicht.“
+
+„Ich weiß“, sagte Brokk. „Deshalb ist es keine zwergische Krankheit.“
+
+
 Der Erzähler wurde so still, dass Taron ihn fast verlor.
 
 Elva sah zu Taron. „Das ist genau das, was die andere Stimme bricht.“
@@ -209,6 +308,25 @@ Broda trat aus dem Nebel. „Varga rückt näher.“
 Oswin akzeptierte das sofort. Bei Soldaten war eine nicht genannte Zahl manchmal die genaueste.
 
 Taron nahm trotzdem noch einen Augenblick. Nicht weil er mutig war, sondern weil sein Blick an einer der flachen Platten hängen blieb. Darauf stand ein Name. Nicht ganz. Der Anfang war verwittert, das Ende abgeschlagen. Aber daneben war ein Vogel eingeritzt, klein, den Kopf gesenkt.
+
+Taron kniete davor und wischte mit dem Ärmel, vorsichtig, weil er inzwischen gelernt hatte, dass Wischen an solchen Orten eine Entscheidung war.
+
+Der Anfang des Namens fehlte. Das Ende war abgeschlagen, aber nicht so grob wie die Warnung. Hier hatte jemand mit Zeit und ordentlichem Werkzeug gearbeitet und danach die Bruchkante geglättet.
+
+„Zwei verschiedene Hände“, sagte Brokk hinter ihm. „Die Warnung hat einer im Zorn weggeschlagen. Den Namen hat einer im Frieden entfernt.“
+
+„Warum entfernt man einen Namen im Frieden?“
+
+„Damit man ihn nicht rufen muss.“
+
+Taron sah zu ihm auf.
+
+„Bei uns“, sagte Brokk, „streicht man einen Namen aus der Halle, wenn man ihn nicht mehr verantworten kann. Es ist keine Strafe. Es ist ein Eingeständnis.“
+
+„Und wer streicht?“
+
+„Der, der ihn hineingeschrieben hat.“
+
 
 Der Menschenschlüssel wurde schwer.
 

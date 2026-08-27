@@ -106,6 +106,27 @@ Nicht alle sahen zu ihm. Genau deshalb merkte Taron, dass die Frage etwas getrof
 
 Brokk sagte: „Ein Zwerg folgt einer Spur. Familie. Halle. Meister. Eid. König. Wenn er sie verlässt, muss er wissen, ob er verloren ist oder ob die Spur falsch wurde.“
 
+„Fünf Dinge“, sagte Elva. „Und wenn zwei davon in verschiedene Richtungen zeigen?“
+
+„Dann geht man langsamer.“
+
+„Und wenn drei?“
+
+„Dann sitzt man auf einem Stein und redet mit Menschen“, sagte Broda von der anderen Seite des Lagers, ohne aufzusehen.
+
+Taron sah zu ihr. „Was war deine?“
+
+„Meister.“ Broda schnitt weiter an einem Riemen. „Ich habe achtzehn Jahre bei einem Riemenschneider in der dritten Ebene gelernt. Er hatte schlechte Augen und gute Finger und hat nie ein Stück Leder verschwendet. Als der Ruf kam, hat er gesagt, ich solle gehen, weil man einer Halle nicht mit Riemen dient, wenn sie Speere will.“
+
+„Und jetzt?“
+
+„Jetzt bin ich hier und schneide Riemen.“ Sie hielt den Streifen hoch. „Meine Spur ist die einzige, die nicht gebrochen ist. Das finde ich zum Lachen, und niemand hier lacht mit mir.“
+
+Senn sagte: „Ich lache innerlich.“
+
+„Das ist nicht dasselbe, Senn.“
+
+
 „Und du weißt es?“, fragte Taron.
 
 Brokk betrachtete ihn lange.
@@ -193,6 +214,35 @@ Brokks Blick ging zu ihm.
 „Als Sieg der Menschen?“
 
 „Als Ort, an dem niemand wusste, wem er danken sollte.“
+
+Brokk sah ihn länger an.
+
+„Wer hat es dir so erzählt?“
+
+„Ein Hauptmann in der Westmark. Er war dort. Nicht im Tal, weiter oben, mit dreißig Reitern, die zu spät kamen.“ Oswin drehte den Streifen Fleisch in der Hand, ohne davon abzubeißen. „Sie sind angekommen, als das Feuer schon aus war und die Brunnenketten standen. Er sagte, sie hätten dort dreißig Reiter gehabt und keine Aufgabe, und das sei das Unangenehmste gewesen, was er im Krieg erlebt habe.“
+
+„Warum unangenehm?“
+
+„Weil ihm klar wurde, dass niemand sie gebraucht hatte.“
+
+Brokk nickte langsam. „Was hat er getan?“
+
+„Er hat abgesattelt und Wasser getragen.“
+
+Es blieb eine Weile still.
+
+„Lebt er noch?“, fragte Brokk.
+
+„Nein.“
+
+„Zwerge?“
+
+„Fieber.“ Oswin biss endlich von dem Fleisch ab. „Er hat vier Feldzüge überlebt und ist in einem Bett gestorben, in dem er sich geschämt hat zu liegen.“
+
+Brokk brummte etwas, das keine Übersetzung brauchte.
+
+Taron merkte, dass die beiden gerade zum ersten Mal über einen Toten gesprochen hatten, den keiner von ihnen mitzählen musste, und dass das offenbar leichter war.
+
 
 Brokk nahm einen Schluck aus seiner Eisenflasche. „Dann gab es wenigstens einen ehrlichen Bericht.“
 
@@ -290,7 +340,73 @@ Brokk antwortete nicht sofort.
 
 „Damals? Nichts. Genau damit fing es an.“
 
+Brokk erzählte weiter, langsamer.
+
+Rugar sei an dem Abend normal gewesen. Das sei der Teil, den niemand glaube. Er habe gegessen, er habe einen Hauptmann wegen einer schlecht gesicherten Karrenachse angeschrien, er habe gefragt, ob die Heilerin genug Verbandtuch habe. Erst am zweiten Tag habe Brokk gemerkt, dass der König sich beim Sprechen manchmal halb umdrehte.
+
+„Nur ein Stück“, sagte Brokk. „So.“ Er zeigte es, eine kleine Bewegung der Schulter, kaum eine Handbreit. „Wie einer, der jemanden neben sich hat und höflich ist.“
+
+„Und niemand fragte?“, sagte Elva.
+
+„Zwei fragten.“ Brokk sah in die Dunkelheit. „Einer war ein alter Schmied namens Harn. Er hat gesagt, der König rede mit der Wand, und man solle einen Heiler holen. Am dritten Tag wurde Harn zurück nach Karndorn geschickt, um die Öfen zu prüfen. Er ist angekommen. Er hat die Öfen geprüft. Er hat es nie wieder gesagt.“
+
+„Und der zweite?“
+
+„Der zweite war ich.“ Brokk schloss die eiserne Hand um den Stab. „Ich habe es abends gefragt, allein, und ich habe es so gefragt, dass er nein sagen konnte. Das war meine Vorsicht. Ich war stolz darauf.“
+
+„Was hat er gesagt?“
+
+„Er hat gesagt: Brokk, ich habe zweiundvierzig Jahre gebraucht, um zu lernen, wie man zuhört. Lass mir das.“
+
+Niemand sagte etwas dazu.
+
+„Es war ein guter Satz“, sagte Brokk. „Er war von ihm. Das ist das Schlimme. Der andere hat ihn nicht gesprochen. Er hat ihn nur gebraucht.“
+
+Oswin sagte: „So macht man das.“
+
+Brokk sah ihn an.
+
+„Man befiehlt einem Mann nichts“, sagte Oswin. „Man wartet, bis er etwas sagt, das er selbst meint, und benutzt es. Danach verteidigt er es für dich.“
+
+„Woher weißt du das?“
+
+„Ich habe zwölf Jahre Befehle bekommen.“
+
+
 Der Erzähler zog sich in Tarons Kopf zurück wie jemand, der einen bekannten Abgrund wiedererkannte.
+
+„Frag ihn etwas für mich“, sagte die Stimme.
+
+Taron zuckte fast zusammen. Der Erzähler bat nie um etwas.
+
+„Was?“
+
+„Frag, auf welcher Seite die leere Stelle war.“
+
+Taron fragte es.
+
+Brokk überlegte kurz. „Links von der Nische. Warum?“
+
+Taron gab die Antwort weiter und wartete.
+
+„Und?“, dachte er.
+
+„Nichts.“
+
+„Das war nicht nichts.“
+
+Der Erzähler brauchte lange, und als er sprach, war der Spott vollständig weg.
+
+„Wir stehen links“, sagte er. „Immer. Ich weiß nicht, warum. Ich habe es nie gelernt, ich habe es nie beschlossen, und in siebzehn Jahren hast du mich kein einziges Mal auf der anderen Seite gehört.“
+
+Taron saß sehr still.
+
+„Du meinst, es ist einer von euch.“
+
+„Ich meine, es ist einer wie ich. Das ist schlimmer, weil es genauer ist.“
+
+Taron sah zu Brokk, der auf seinen Stab starrte, und dann in die Dunkelheit links von sich, wo niemand stand und wo, so weit Taron das beurteilen konnte, seit sieben Jahren im Stall angefangen niemand gestanden hatte.
+
 
 „Später sagte der König, die Menschen würden den Schlüssel erneut stehlen. Dann sagte er, der Menschenschlüssel müsse her. Dann der Schutzschlüssel. Dann sagte er, die Schlüssel brächten Freiheit.“
 
