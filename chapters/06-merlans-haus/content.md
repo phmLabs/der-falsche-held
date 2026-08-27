@@ -322,7 +322,11 @@ Merlan sah ihn an.
 
 „Ich möchte an dieser Stelle sagen, dass ich immer noch für den Stall bin.“
 
-„Notiert“, sagte der Erzähler. „Niemand spricht wieder“, sagte Merlan. „Nein“, sagte Taron.
+„Notiert“, sagte der Erzähler.
+
+„Niemand spricht wieder?“, fragte Merlan.
+
+„Nein“, sagte Taron.
 
 Der Erzähler schwieg.
 
@@ -432,9 +436,9 @@ Auf die zweite. „Zwergenschlüssel.“
 
 Auf die dritte. „Schutzschlüssel.“
 
-Der Erzähler räusperte sich in Tarons Kopf. Es war ein vollkommen unnötiges Geräusch, da er keinen Hals hatte, aber er machte es mit großer Überzeugung.
+Der Erzähler räusperte sich wieder. Diesmal klang es zufrieden.
 
-„Hinreiten“, sagte er sanft. Schlüssel nehmen. „Rausgehen.“
+„Hinreiten“, sagte er sanft. „Schlüssel nehmen. Rausgehen.“
 
 Taron presste die Lippen zusammen.
 
