@@ -1,0 +1,12 @@
+- Fremd-POV wie Kapitel 9, diesmal Neral in Abendriss, elf Tage nach Tarons Diebstahl.
+- Die Nische hat sich wieder geschlossen. Neral legt taeglich die Hand an die fugenlose Wand, und nichts geschieht: Ein Schwur ist das Gegenteil eines Zeichens ohne Anspruch.
+- Rask ist tot, von Oswin erschlagen. Neral gibt offen zu, dass er Taron die Zisterne und das Zeichen verraten hat, weil der Junge fragte, wie man hinkommt, und nicht, wo es liegt.
+- Domar will sechs Hueter losschicken, um Taron einzuholen. Die Frage, ob man dafuer die Masken abnimmt und dann noch Hueter ist, beendet die Debatte.
+- Ulhart legt den Schwur genau aus: den Schluessel halten, damit kein Anspruch ihn nimmt. Tarons dreckiges Hofzeichen war kein Anspruch. Also hat der Schwur gehalten, und die Nische ist leer, und beides ist wahr.
+- Gruendungsgeschichte in der Huetervariante: Der Eid kam von muedern Leuten, darunter eine Koenigin ohne Krone und ein Zwerg, der seinen Hammer niederlegte. Arven kam viel spaeter, war Falkner, fuehrte einen Falken ohne Krone als Siegel, weil einem Falkner die Voegel nicht gehoeren, und hoerte als Bote, dass sein Koenig die drei Schluessel zusammenbringen wollte.
+- Arven nahm den Schluessel ohne Gewalt, versuchte ihn zu zerstoeren und sagte, ein Freund habe ihn aufgehalten. Er sagte es nicht dankbar.
+- Waldkirch erklaerte Arven zum Dieb, zog Haus und Siegel ein. Ein Name ohne Land landete in Staellen. Daher Taron.
+- Die Masken waren Arvens Idee und die einzige, fuer die er sich spaeter entschuldigte: kein Nachname, kein Wappen, kein beschreibbares Gesicht. Zwei Generationen spaeter hielt man es fuer Wuerde, zwei weitere spaeter fuer Drohung.
+- Neral wird nicht verstossen, sondern bekommt die Ostwache: Er hat ihn gehen lassen, also soll er hinsehen.
+- Kessa geht als Botin nach Waldkirch. Ein Priester schreibt die Warnung sehr sorgfaeltig auf, drei Tage spaeter liegt kein Eintrag vor. Niemand hat gelogen, es war nur niemandes Aufgabe, es zu lesen.
+- Danach warten sie auf ein Zeichen. Erklaert, warum Neral in Kapitel 35 erst nach dem Rauch aufbricht und zu spaet kommt.

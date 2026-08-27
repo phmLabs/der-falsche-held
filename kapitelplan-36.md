@@ -99,53 +99,63 @@ gekommen, sondern wegen Taron.
 der Innenfalte seines Mantels findet Taron Arven Falkenrieds Zettel: *Trau der
 Stimme. Er war mein Freund.*
 
-**24. Der andere.** Der Erzähler gesteht, dass er Arven gegen dessen Willen
+**24. Der Schwur ohne Schlüssel.** Abendriss aus Nerals Sicht, elf Tage nach dem
+Diebstahl. Die Nische hat sich wieder geschlossen. Neral gibt zu, dass er Taron
+den Weg verraten hat, und Ulhart legt den Schwur so aus, dass er gehalten wurde:
+Tarons dreckiges Hofzeichen war kein Anspruch. Die Hüter erzählen ihre eigene
+Gründungsgeschichte – Arven war Falkner, führte einen Falken ohne Krone und
+scheiterte daran, den Schlüssel zu zerstören, weil ein Freund ihn aufhielt. Die
+Masken waren Schutz für Familien, bevor sie Würde und dann Drohung wurden. Kessa
+bringt eine Warnung nach Waldkirch; ein Priester schreibt sie sorgfältig auf, und
+drei Tage später liegt kein Eintrag vor. Danach warten sie auf ein Zeichen.
+
+**25. Der andere.** Der Erzähler gesteht, dass er Arven gegen dessen Willen
 aufgehalten hat. Ein Bote meldet: Die Zwerge marschieren, Rugar führt sie selbst.
 
 ## Teil 3 – Waldkirch
 
-**25. Rückkehr nach Waldkirch.** Eine Burg voller Hunger, Angst und roter
+**26. Rückkehr nach Waldkirch.** Eine Burg voller Hunger, Angst und roter
 Stoffstreifen. Elva sagt Albrecht ins Gesicht, was sie gehört hat. Dann bläst
 das Horn.
 
-**26. Der Krieg beginnt.** Rugar spricht vor der Mauer und nennt echte Not, um
+**27. Der Krieg beginnt.** Rugar spricht vor der Mauer und nennt echte Not, um
 eine falsche Lösung zu verkaufen. Ein Pfeil fliegt, niemand weiß von welcher
 Seite.
 
-**27. Die falsche Schlacht.** Im Hof zählen Oswin und Brokk zum ersten Mal
+**28. Die falsche Schlacht.** Im Hof zählen Oswin und Brokk zum ersten Mal
 Gerettete statt Tote. Taron benutzt die Rauchkugel wieder nicht – diesmal, weil
 Oswin es verbietet. Die drei Schlüssel öffnen das Tor in die Tiefe.
 
-**28. Unter der Burg.** Der Hunger von Waldkirch ist kein Monster, sondern ein
+**29. Unter der Burg.** Der Hunger von Waldkirch ist kein Monster, sondern ein
 Wächter ohne Nachfolger. An der Wand stehen die Namen derer, die den Eid
 tatsächlich gehalten haben. Er gibt den Weg frei.
 
-**29. Der Eidstein.** Die Kammer mit den zwölf Zeugenplätzen, aus denen die
+**30. Der Eidstein.** Die Kammer mit den zwölf Zeugenplätzen, aus denen die
 Namen herausgeschnitten wurden. Rugar zieht die drei Schlüssel an sich. Brokk
 setzt zum Eid an.
 
-**30. Nicht für eine Seite.** Brokk scheitert, weil er für Karndorn spricht.
+**31. Nicht für eine Seite.** Brokk scheitert, weil er für Karndorn spricht.
 Taron spricht für niemanden – und sagt Nein. Der andere schickt die
 Schattenwächter.
 
-**31. Der Erzähler tritt vor.** Der Erzähler bricht sein Schweigen und übernimmt
+**32. Der Erzähler tritt vor.** Der Erzähler bricht sein Schweigen und übernimmt
 Taron. Alle Gebundenen im Raum fallen. Taron ist nicht dankbar, sondern wütend.
 Der Dämon bekommt einen Körper.
 
-**32. Was wirklich geschah.** Rugar fällt, Varga versteht falsch, und Taron sieht,
+**33. Was wirklich geschah.** Rugar fällt, Varga versteht falsch, und Taron sieht,
 wie die dritte Hand jede Wahrheit so gedreht hat, dass sie schneidet. Der Dämon
 geht frei durch den Riss.
 
-**33. Stille auf dem Schlachtfeld.** Taron zerbricht endlich die Rauchkugel. Im
+**34. Stille auf dem Schlachtfeld.** Taron zerbricht endlich die Rauchkugel. Im
 Rauch verlieren Titel ihre Wirkung. Sie bringen Rugar in den Hof, wo er die
 Augen aufschlägt.
 
-**34. Der neue Eid.** Rugar erwacht ohne fremde Stimme und widerspricht seinem
+**35. Der neue Eid.** Rugar erwacht ohne fremde Stimme und widerspricht seinem
 eigenen Befehl. Waffen sinken, weil Namen gerufen werden statt Ränge. Der Hunger
 bekommt Brot und einen Namen. Neral kommt aus Abendriss und findet alles zu spät
 vor. Die Glocke bleibt stumm.
 
-**35. Natürlich war das geplant.** Taron erfährt, warum der Erzähler ihn nicht
+**36. Natürlich war das geplant.** Taron erfährt, warum der Erzähler ihn nicht
 warnen durfte. Der Erzähler will frei sein und bleiben, beides zugleich. Taron
 vertagt die Entscheidung, sagt Elva nicht, was er sagen wollte, und geht
 Suppe essen. Der andere Dämon ist irgendwo im Osten.
