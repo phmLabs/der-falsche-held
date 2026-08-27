@@ -172,15 +172,15 @@ Die Menge jubelte.
 
 Der Erzähler sagte: „Das war entweder sehr schlecht oder hervorragend. Die Geschichte wird später behaupten, es sei Absicht gewesen.“
 
-Am Tor standen Hauptmann Gerold, der Vogt und vier Wachen. Gerold sah erleichtert aus. Der Vogt sah aus, als habe sein Gesicht seit Tarons Verschwinden mehrere neue Sorgen gekauft und keine davon zurückgeben können.
+Am Tor standen Hauptmann Greve, der Vogt und vier Wachen. Greve sah erleichtert aus. Der Vogt sah aus, als habe sein Gesicht seit Tarons Verschwinden mehrere neue Sorgen gekauft und keine davon zurückgeben können.
 
-„Falkenried“, sagte Gerold.
+„Falkenried“, sagte Greve.
 
 Taron stieg ab. Sein Bein beschwerte sich.
 
 „Hauptmann.“
 
-Gerolds Blick fiel auf Oswin, auf Tarons schmutzigen Mantel, auf den Verband an seiner Seite.
+Greves Blick fiel auf Oswin, auf Tarons schmutzigen Mantel, auf den Verband an seiner Seite.
 
 „Ihr habt ihn?“
 
@@ -280,7 +280,7 @@ Aber Taron sah es.
 
 Er hielt das Pergament hoch.
 
-Der Vogt wurde blass. Gerold sah von Taron zu Malchior und zurück. Oswin sagte nichts, aber sein Schweigen hatte plötzlich Kanten.
+Der Vogt wurde blass. Greve sah von Taron zu Malchior und zurück. Oswin sagte nichts, aber sein Schweigen hatte plötzlich Kanten.
 
 „Woher hast du das?“, fragte Malchior.
 
@@ -496,11 +496,11 @@ Das war nicht die Art Rede, die Höfe liebten.
 
 Sie war zu nützlich.
 
-Gerold räusperte sich. „Das stimmt.“
+Greve räusperte sich. „Das stimmt.“
 
 Der Vogt sah ihn entsetzt an.
 
-Gerold fuhr fort, offenbar mit dem Gesicht eines Mannes, der beschlossen hatte, heute einmal genau genug Ärger zu erzeugen. „Wenn Zwergentrupps unterwegs sind, ist eine kleine Gruppe besser.“
+Greve fuhr fort, offenbar mit dem Gesicht eines Mannes, der beschlossen hatte, heute einmal genau genug Ärger zu erzeugen. „Wenn Zwergentrupps unterwegs sind, ist eine kleine Gruppe besser.“
 
 Der König sah zu Malchior.
 

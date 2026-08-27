@@ -520,13 +520,13 @@ Taron richtete sich auf. Zum ersten Mal seit Tagen fühlte sich ein Satz an wie 
 
 „Das ist gut.“
 
-„Freu dich nicht zu früh.“. Der Fensterladen schlug wieder zu.
+„Freu dich nicht zu früh.“ Der Fensterladen schlug wieder zu.
 
 „Warum?“
 
 „Weil falsche Helden manchmal an den richtigen Stellen stehen.“
 
-„Das ist nur anders schlecht.“ sagte Taron.
+„Das ist nur anders schlecht“, sagte Taron.
 
 Merlan schien diese Antwort zu gefallen.
 
@@ -538,11 +538,11 @@ Taron spürte, wie ihm kalt wurde.
 
 Merlan nahm die alte Abschrift wieder zur Hand.
 
-„Das heißt, dass ich heute etwas stärkeres als Tee brauche.“
+„Das heißt, dass ich heute etwas Stärkeres als Tee brauche.“
 
 „Ihr bleibt bis zum Abend“, sagte Merlan.
 
-„Ich muss zum Turm“, sagte er.
+„Ich muss zum Turm“, sagte Taron.
 
 „Du musst zuerst verstehen, welchen Turm du suchst.“
 

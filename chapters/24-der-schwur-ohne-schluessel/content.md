@@ -106,7 +106,7 @@ Neral brauchte lange.
 
 „Was?“
 
-„Dass der zweite Schlüssel Krieg bringt und der dritte den Grund dafür.“
+„Dass der zweite Schlüssel Krieg bringt und der dritte etwas Schlimmeres.“
 
 Domar lachte einmal, kurz und ohne Freude. „Eine Warnung ist kein Schwur.“
 

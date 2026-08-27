@@ -186,13 +186,15 @@ Taron nahm das Kästchen, als überreiche man ihm etwas Kleines, Dunkles und mö
 
 „Wie heißt sie?“
 
-„Rauchkugel.“ sagte der Magier. Taron wartete.
+„Rauchkugel“, sagte Merlan.
+
+Taron wartete.
 
 „Das ist alles?“
 
 „Sie ist eine Kugel. Es kommt Rauch heraus.“
 
-„Kein alter Namen?“
+„Kein alter Name?“
 
 Merlan seufzte. „Wenn du unbedingt einen alten Namen brauchst: Schleier der entschlossenen Entfernung.“
 
@@ -458,7 +460,7 @@ Sie aßen im Halbdunkel. Brot, das seine besten Tage hinter sich hatte. Ein letz
 
 „Was, wenn hinter einer Tür wirklich der Schlüssel liegt?“, fragte er, mehr zu sich, als zu Oswin.
 
-„Dann machst du sie auf.“, sagte Oswin. „Und wieder zu“
+„Dann machst du sie auf“, sagte Oswin. „Und wieder zu.“
 
 Der Erzähler sagte: „Du hast auch eine Kugel, die dich vom Antworten befreit. Das ist mehr, als die meisten Menschen behaupten können, die den Schlüssel gesucht haben.“
 
@@ -466,7 +468,7 @@ Der Erzähler sagte: „Du hast auch eine Kugel, die dich vom Antworten befreit.
 
 „So funktionieren die meisten Entscheidungen.“
 
-Taron nickte düster. Er war müde. 
+Taron nickte düster. Er war müde.
 
 Sie legten sich, nachdem Oswin die Umgebung einmal umkreist hatte. Er blieb dabei manchmal stehen, hob den Kopf, wie ein Hund, der etwas in der Luft suchte, das nur für ihn da war, und kam wieder so leise zurück, als sei der Wald empfindlich.
 

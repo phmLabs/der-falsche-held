@@ -404,9 +404,7 @@ Taron sah über den Hof, über Menschen und Zwerge, über Suppe, Rauch, Verwunde
 
 Taron steckte den Pergamentstreifen zurück in die geheime Tasche seines Mantels.
 
-„Dann bist du noch du.“
-
-Elva sagte es, als wäre das kein Trost, sondern eine Feststellung, die man bei Bedarf gegen andere Leute einsetzen konnte. Taron merkte, dass ihm diese Art von Trost lieber war. Er hatte genug von Sätzen, die ihn groß machen wollten. Groß war unbequem, auffällig und wurde gern mit Pfeilen beantwortet.
+„Dann bist du noch du“, sagte Elva, als wäre das kein Trost, sondern eine Feststellung, die man bei Bedarf gegen andere Leute einsetzen konnte. Taron merkte, dass ihm diese Art von Trost lieber war. Er hatte genug von Sätzen, die ihn groß machen wollten. Groß war unbequem, auffällig und wurde gern mit Pfeilen beantwortet.
 
 „Ich weiß nicht, ob das reicht“, sagte er.
 

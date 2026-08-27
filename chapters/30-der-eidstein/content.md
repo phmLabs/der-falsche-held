@@ -62,7 +62,7 @@ Er musste einen anderen Weg unter die Burg genommen haben. Einen alten Zwergenwe
 
 Brokk machte einen Laut, der kein Wort war.
 
-Taron hatte Rugars Gesicht aus Brokks Erzählung gebaut: rusverschmiert in Hollbrand, lachend in Karndorn, hart, aber klar. Der Mann vor ihnen trug noch Reste davon. Gerade genug, dass der Verlust sichtbar wurde.
+Taron hatte Rugars Gesicht aus Brokks Erzählung gebaut: rußverschmiert in Hollbrand, lachend in Karndorn, hart, aber klar. Der Mann vor ihnen trug noch Reste davon. Gerade genug, dass der Verlust sichtbar wurde.
 
 Alle Waffen hoben sich.
 

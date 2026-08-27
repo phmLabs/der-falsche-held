@@ -112,7 +112,7 @@ Brokk hatte gegrunzt.
 
 Rugar hatte ihm die Nadel abgenommen und es selbst gemacht. Schlecht, aber mit großem Selbstvertrauen.
 
-Später hatten sie gegessen. Nicht viel. Eein Stück geräucherter Fisch, ein Topf mit Rüben, zäh genug für zwei Schlachten. Jemand hatte ein Lied begonnen. Erst leise. Dann lauter. Rugar hatte mitgesungen, falsch an zwei Stellen und lauter als nötig.
+Später hatten sie gegessen. Nicht viel. Ein Stück geräucherter Fisch, ein Topf mit Rüben, zäh genug für zwei Schlachten. Jemand hatte ein Lied begonnen. Erst leise. Dann lauter. Rugar hatte mitgesungen, falsch an zwei Stellen und lauter als nötig.
 
 Brokk hatte damals gedacht: So klingt ein Volk, das noch weiß, warum es kämpft.
 
@@ -156,7 +156,7 @@ Brokk hatte damals geglaubt, es sei Erleichterung.
 
 Heute wusste er nicht mehr, ob das eine Lüge war oder nur Hoffnung mit schlechter Beleuchtung.
 
-- 
+–
 
 „Hauptmann?“
 
@@ -278,7 +278,7 @@ Der König zeigte auf den hellen Stein zwischen den Ländern. „Danach sucht ih
 
 „Welche anderen?“
 
-„Die, die immer kommen, wenn alte Türen wieder heöffnet werden sollen.“
+„Die, die immer kommen, wenn alte Türen wieder geöffnet werden sollen.“
 
 Haldrin schrieb etwas auf seine Tafel.
 
@@ -332,7 +332,7 @@ Der König sagte: „Du wirst diesen Auftrag ausführen.“
 
 „Wenn ich kann.“
 
-„Du wirst ihn zurückbringen. Oder du kommst gar nicht mehr zurück“
+„Du wirst ihn zurückbringen. Oder du kommst gar nicht mehr zurück.“
 
 Brokk senkte den Kopf.
 
@@ -356,9 +356,9 @@ Heute war er nur ein Satz.
 
 „Bleibt hier.“
 
-„Sie kennt die Ostpässe.“
+„Er kennt die Ostpässe.“
 
-„Sie bleibt hier.“
+„Er bleibt hier.“
 
 Brokk verstand. Nicht warum. Nur dass es keinen Sinn hatte, weiterzufragen.
 
@@ -456,7 +456,7 @@ Sie lag neben der unteren Schmiede, nicht weil Waffen dort hingehörten, sondern
 
 Varga reichte ihm eine Axt. Brokk nahm sie, prüfte das Gewicht, gab sie zurück und nahm eine andere.
 
-„Die erste war besser“, sagte Varga. 
+„Die erste war besser“, sagte Varga.
 
 „Die erste war zum Beeindrucken.“
 

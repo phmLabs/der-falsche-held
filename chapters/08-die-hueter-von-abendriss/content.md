@@ -400,7 +400,7 @@ Er steckte sie wieder ein.
 
 „Nicht jetzt“, flüsterte er.
 
-„Eine Entscheidung“, sagte der Erzähler leise, „von jener Sorte, die Überlebende später Mut nennen, Falls sie überleben.“
+„Eine Entscheidung“, sagte der Erzähler leise, „von jener Sorte, die Überlebende später Mut nennen, falls sie überleben.“
 
 Taron griff stattdessen nach der erloschenen Lampe an seinem Gürtel und warf sie.
 
@@ -596,7 +596,7 @@ Der Hüter sah Taron an, als hätte er zwar die Worte nicht gehört, aber die K�
 
 „Und wenn ich richtig bin?“
 
-„Dann wartet etwas schlimmeres auf dich.“
+„Dann wartet etwas Schlimmeres auf dich.“
 
 Taron hätte gerne gefragt, was auf ihn warten würde. Die Schritte gaben ihm keine Zeit.
 
@@ -780,7 +780,7 @@ Er griff zu.
 
 Der Schlüssel war kalt. Dann war der Saal voller Stimmen. Nicht in seinem Kopf. Überall.
 
-„Kein Anspruch, kein Blut,  kein Orden. Ein Schlüssel.“
+„Kein Anspruch, kein Blut, kein Orden. Ein Schlüssel.“
 
 Die Hüter standen an den Eingängen des Saals. Sechs, sieben, vielleicht mehr. Masken im letzten Licht. Klingen in den Händen. Manche hatten kurze Bögen. Einer trug einen langen Stab mit einer Hakenklinge. Sie griffen nicht sofort an.
 
@@ -1004,7 +1004,7 @@ Der Hüter mit der gesprungenen Maske.
 
 Taron antwortete nicht.
 
-„Dann hör auch dies“, sagte der Hüter. „Wenn ihr den zweiten sucht, findet ihr Krieg. Wenn ihr den dritten sucht, findet ihr was schlimmeres.“
+„Dann hör auch dies“, sagte der Hüter. „Wenn ihr den zweiten sucht, findet ihr Krieg. Wenn ihr den dritten sucht, findet ihr was Schlimmeres.“
 
 Oswin richtete sich im Sattel auf.
 

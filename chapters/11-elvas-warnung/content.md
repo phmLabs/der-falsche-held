@@ -136,7 +136,7 @@ Ein Reiterbericht war nach Waldkirch gekommen. Zwei Männer auf der Südroute. E
 
 Taron murmelte, Kummer sei eben ein auffälliges Pferd. Elva sah ihn an, bis er verstand, dass das Pferd in dieser Geschichte nicht das einzige auffällige Wesen war.
 
-In der Küche hatte Elva gehört, was sie nicht hätte hören sollen. Malchior war bei der Königinmutter gewesen. Der König auch. Sie hatten geglaubt, Dienstboten seien Teil der Einrichtung, solange sie Gemüse schnitten. Taron merkte, dass Elva diesen Satz nicht aussprach, aber er lag in ihrer Stimme.
+In der Küche hatte Elva gehört, was sie nicht hätte hören sollen. Malchior war im kleinen Saal gewesen. Der König auch. Sie hatten geglaubt, Dienstboten seien Teil der Einrichtung, solange sie Gemüse schnitten. Taron merkte, dass Elva diesen Satz nicht aussprach, aber er lag in ihrer Stimme.
 
 Der König hatte sich gefreut. Nicht freundlich, nicht warm, sondern mit jener hellen Ungeduld, die Taron schon kannte: die Freude eines Mannes, der endlich ein Zeichen gefunden hatte und es sofort benutzen wollte. Malchior dagegen hatte aufgehört, mit den Fingern über seine Kette zu streichen. Elva beschrieb es nicht dramatisch. Sie musste es nicht.
 

@@ -24,7 +24,7 @@ Merlan sah es auch. „Nicht falsch gesprochen. Falsch vertreten.“
 
 „Steine bekommen selten Gelegenheit zu Seminaren.“
 
-„Noch einmal“, sagte er.
+„Noch einmal“, sagte Brokk.
 
 „Nein“, sagte Merlan.
 

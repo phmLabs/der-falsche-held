@@ -38,7 +38,7 @@ Taron sah den Spalt an. „Das heißt, jemand ist schon drin.“
 
 Der Erzähler sagte: „Beide Versionen haben bedauerlich viel Zukunft.“
 
-Sie ließen die Pferde zwischen Fichten zurück. Zwei von Brokks Leuten blieben bei ihnen. Kummer sah Taron nach, als habe er endgültig verstanden, dass Menschen stets zu den engsten, dunkelsten und unnötigsten Orten zurückkehrten, die sie finden konnten.
+Sie ließen die Pferde zwischen Fichten zurück. Tesk blieb mit seinem Knie bei ihnen, und Brokk stellte ihm einen zweiten dazu, damit das Knie nicht allein entscheiden musste. Kummer sah Taron nach, als habe er endgültig verstanden, dass Menschen stets zu den engsten, dunkelsten und unnötigsten Orten zurückkehrten, die sie finden konnten.
 
 Taron hätte ihm gern widersprochen.
 

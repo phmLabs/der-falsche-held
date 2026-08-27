@@ -456,6 +456,8 @@ Taron kaute langsam.
 
 Taron sah misstrauisch auf. „Du stimmst mir zu?“
 
+„Dem Entschluss. Nicht der Vorhersage.“
+
 Taron nahm noch einen Bissen.
 
 Für einen Moment war alles einfach: Brot, Gras, Pferdeatem, schmerzende Rippen, eine Straße nach Westen und eine Stimme, die viel zu ruhig klang.

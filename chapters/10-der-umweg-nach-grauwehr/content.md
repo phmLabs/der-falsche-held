@@ -206,8 +206,6 @@ Taron spürte, wie seine Tasche schwerer wurde.
 
 Oswin wurde sehr still.
 
-„Wir wissen es nicht“
-
 Sie gaben der Gruppe ein Stück von Merlans Brot und etwas Trockenfleisch. Oswin tat es, ohne Taron anzusehen. Taron gab zusätzlich einen der Äpfel, die Kummer nicht hatte fressen wollen, was den Wert der Geste je nach Blickwinkel deutlich senkte.
 
 Als die Flüchtlinge weiterzogen, sah Taron ihnen nach.
@@ -539,7 +537,6 @@ Oswin bewegte sich im anderen Bett, sagte aber nichts.
 „Ja“, sagte der Erzähler.
 
 Endlich. Ein klares Ja. Taron hatte sich danach gesehnt, bis es da war.
-
 
 „Warum?“
 

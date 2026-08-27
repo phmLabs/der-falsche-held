@@ -246,7 +246,7 @@ Niemand prostete ihm zu. Er trank trotzdem.
 
 „Als Warnung.“
 
-Taron sah den Ritter an. Der Mann hatte Arme wie ein Schmied, eine Haltung wie ein Hauptmann und Augen, die zu lange Dinge gesehen hatten, die einen töten wollen,
+Taron sah den Ritter an. Der Mann hatte Arme wie ein Schmied, eine Haltung wie ein Hauptmann und Augen, die zu lange Dinge gesehen hatten, die einen töten wollen.
 
 „Wer ist das?“, fragte Taron den Wirt.
 
@@ -320,7 +320,7 @@ Oswin sah Taron an. „Mit wem sprichst du?“
 
 „Guter Mann. Niemand gibt selten schlechte Ratschläge.“
 
-„Selten. Hörst du das? Ein weiser Mann.“, sagte der Erzähler.
+„Selten. Hörst du das? Ein weiser Mann“, sagte der Erzähler.
 
 Taron ignorierte ihn.
 
@@ -386,7 +386,9 @@ Der Erzähler schwieg einen Moment.
 
 Oswin rieb sich das Gesicht, seufzte und stieg auf sein Pferd.
 
-„Wohin?“ Taron zeigte nach Westen. „Zum Turm von Abendriss.“
+„Wohin?“
+
+Taron zeigte nach Westen. „Zum Turm von Abendriss.“
 
 Oswin sah in dieselbe Richtung. Sein Gesicht wurde ernst.
 
