@@ -342,6 +342,45 @@ Taron griff zu. Rugar sackte gegen ihn, und für einen Augenblick trug der falsc
 
 Oben war die Schlacht nicht besser. Der Rauch quoll aus dem Tor in den Burghof und machte aus der falschen Schlacht eine blinde. Das rettete Leben, was niemand sofort bemerkte, weil gerettete Leben oft mit Husten beschäftigt sind.
 
+Am Brunnen im Hof stand Marta Grubenlicht.
+
+Sie hatte einen Kessel, zwei Eimer und eine Schürze, die einmal weiß gewesen war, und sie stand dort, wo eine vernünftige Person nicht gestanden hätte, nämlich zwischen dem Brunnen und den Verwundeten. Zwei Küchenjungen trugen Wasser. Eine Frau, die Taron nicht kannte, riss Leinen in Streifen.
+
+„Marta!“, rief Taron.
+
+Marta sah auf, sah ihn, sah den Zwergenkönig an seiner Schulter und traf eine Entscheidung, für die andere Leute eine Sitzung gebraucht hätten.
+
+„Leg ihn hin. Nicht auf den Stein, der ist kalt.“
+
+„Das ist der Zwergenkönig.“
+
+„Dann leg ihn ordentlich hin.“
+
+Sie kam mit einem Eimer, kniete sich neben Rugar und tat, was sie bei jedem getan hätte. Sie sah nach, woher das Blut kam, und legte ihm eine Hand auf die Stirn.
+
+Ein Waldkircher Soldat trat näher. „Das ist einer von denen.“
+
+Marta sah nicht auf. „Ja.“
+
+„Wir haben nicht genug Wasser für unsere.“
+
+„Wir haben nicht genug Wasser für niemanden“, sagte Marta. „Deshalb wird jetzt nicht zweimal gefragt.“
+
+Der Soldat blieb noch einen Atemzug stehen. Dann nahm er einen Eimer und trug ihn zur nächsten Reihe.
+
+Taron sah dem zu und begriff, dass er den ganzen Tag geglaubt hatte, das Wichtigste geschehe unten in der Kammer.
+
+„Du bist dünn geworden“, sagte Marta zu ihm.
+
+„Ich war beschäftigt.“
+
+„Das sagen alle, die nicht essen.“
+
+Der Erzähler sagte sehr leise: „Suppe.“
+
+Taron blieb die Antwort im Hals stecken, und er konnte nicht erklären, warum, weil er die einzige Erklärung nicht kannte.
+
+
 Im Hof hatte der Rauch eine andere Wirkung. Dort gab es Wind. Er zog die Wolke auseinander, schob sie zwischen Menschen und Zwerge, deckte mal die einen, mal die anderen. Wer eben noch sicher gewesen war, einen Feind vor sich zu haben, sah plötzlich nur noch Umrisse. Das machte einige vorsichtiger. Andere gefährlicher.
 
 Taron dachte, dass Wahrheit vielleicht kein Licht war.
@@ -414,6 +453,19 @@ Er läutete.
 
 Er läutete nicht laut. Die Glocke konnte gar nicht laut. Sie war klein, alt und an einer Seite verbeult. Aber ihr Ton hatte Absicht. Er schnitt nicht durch den Rauch. Er ordnete ihn. Für einen Atemzug sah Taron Linien im Hof: Wege, auf denen Leute gerade aufeinander zuliefen; Risse, an denen Angst in Gewalt kippte; den Platz, an dem Rugar lag; den Eingang zum Dungeon; den Hunger im Schatten darunter.
 
+Der Hunger bewegte sich nicht.
+
+Das fiel Taron auf, weil sich alles andere bewegte. Unten im Schatten des Tors lag etwas Großes und hörte zu, und es hätte in diesem Hof mehr anrichten können als beide Heere zusammen, und es tat es nicht.
+
+„Warum kommt er nicht?“, dachte Taron.
+
+„Weil niemand ihn gerufen hat“, sagte der Erzähler.
+
+„Ist das alles?“
+
+„Bei ihm ist das alles.“
+
+
 Auch andere sahen etwas.
 
 Nicht alle dasselbe. Das war vermutlich gut. Gemeinsame Wahrheit kam selten als ein einziges Bild.
@@ -431,6 +483,21 @@ Varga sah erst Rugar.
 Dann Brokk.
 
 Dann Elva.
+
+Auf Elvas Handfläche blieb sein Blick hängen.
+
+Das war es, was ihn erreichte, und nicht die Zeichen auf seinem König. Zeichen auf Königen hatte Varga oft gesehen. Könige waren voll von Zeichen, und die Hälfte davon war gestickt.
+
+Aber auf der Hand einer menschlichen Küchenmagd stand die offene Hand des Schutzeids, und sie stand dort, weil sie den Schlüssel getragen hatte, den keine Seite hätte tragen dürfen.
+
+„Sie hat ihn gehalten“, sagte Brokk. „Tagelang. Sie hat ihn nicht benutzt.“
+
+Elva hielt die Hand nicht hoch. Sie ließ sie nur, wo sie war.
+
+„Warum nicht?“, fragte Varga.
+
+„Weil ich nicht wusste, was passiert“, sagte Elva. „Und weil mich niemand gefragt hat, ob ich es wissen will.“
+
 
 „Was habt ihr getan?“, fragte er, aber seine Stimme hatte schon weniger Axt darin.
 
