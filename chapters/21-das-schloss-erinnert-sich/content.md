@@ -62,6 +62,45 @@ Er zeigte auf den Menschenschlüssel. „Dieser spricht für die menschlichen Li
 
 Brokk brummte zustimmend.
 
+Dann hörte er auf zu brummen.
+
+„Sag das noch einmal“, sagte er.
+
+Merlan sagte es noch einmal.
+
+Brokk sah auf die Schale, in der der Zwergenschlüssel lag. „Karndorn hat Rugar anerkannt. Karndorn hat mich nicht anerkannt.“
+
+„Nein“, sagte Merlan.
+
+„Dann trage ich ihn nicht. Dann habe ich ihn.“
+
+„Ja.“
+
+Oswin sah vom Fenster her. „Das ist derselbe Satz wie bei mir und der Beute im Bachbett.“
+
+„Nein“, sagte Brokk. „Bei dir war es eine Lüge, die du mir schuldig warst. Bei mir ist es wahr.“
+
+Niemand widersprach ihm, was schlimmer war als Widerspruch.
+
+Elva fragte: „Wenn Ihr nach Karndorn zurückkehrt und ihn hinlegt, ist es dann wieder gut?“
+
+„Wenn ich ihn hinlege, nimmt Rugar ihn“, sagte Brokk. „Und wenn ich ihn behalte, bin ich ein Zwerg, der den Eid seines Volkes in einer Holzschale in einem Menschenhaus liegen lässt.“
+
+Er sah lange auf die Schale.
+
+„Ich habe mein Leben lang erklärt, warum Menschen unsere Sachen nicht anfassen dürfen“, sagte er. „Jetzt sitze ich hier.“
+
+Merlan sagte, ungewöhnlich vorsichtig: „Ihr könnt ihn mir nicht geben. Das würde nichts besser machen.“
+
+„Nein.“
+
+„Aber ich kann aufschreiben, dass er hier lag, wer dabei war und dass niemand ihn benutzt hat.“
+
+Brokk hob den Kopf.
+
+„Das“, sagte er nach einer Weile, „ist tatsächlich etwas.“
+
+
 „Und der Schutzschlüssel?“, fragte Elva.
 
 Merlan sah auf die eingewickelte Form. „Der gefährlichste. Er spricht nicht für Menschen oder Zwerge. Er spricht für die Bindung selbst. Er kann bewahren, aber auch festhalten. Er kann lösen, aber auch freisetzen.“
@@ -180,6 +219,47 @@ Merlan zog ein weiteres Blatt hervor. Darauf standen alte Begriffe: Hüter, Eidt
 
 „Wenn diese Texte stimmen, dann war das Eidenschloss dazu da, gebundene Schutzmächte von ihren Wirten zu lösen, wenn sie verdorben, missbraucht oder falsch gebunden waren.“
 
+Es wurde still am Tisch.
+
+Elva sagte als Erste, was alle gleichzeitig gedacht hatten und niemand aussprechen wollte.
+
+„Dann kann man auch Tarons lösen.“
+
+Taron hatte das Wort nicht erwartet, obwohl es zwei Sätze lang auf ihn gewartet hatte.
+
+„Theoretisch“, sagte Merlan.
+
+„Ist das gut oder schlecht?“, fragte Oswin.
+
+„Das hängt davon ab, wen man fragt, und ich sehe genau ein Wesen im Raum, das eine Antwort hätte, und genau eine Person, die sie hören müsste.“
+
+Alle sahen Taron an. Taron sah in seine Schale.
+
+„Willst du das?“, dachte er.
+
+Der Erzähler antwortete nicht sofort.
+
+„Ich habe es sehr lange gewollt“, sagte er dann.
+
+„Und jetzt?“
+
+„Jetzt ist die Frage praktisch geworden, und praktische Fragen sind erheblich unangenehmer als lange gehegte.“
+
+„Das ist kein Ja.“
+
+„Nein.“
+
+„Und kein Nein.“
+
+„Auch nicht.“
+
+Taron sah auf. „Er weiß es nicht.“
+
+Merlan nahm die Brille ab und putzte sie am Ärmel, was bei ihm bedeutete, dass er Zeit brauchte.
+
+„Dann“, sagte er, „ist er der ehrlichste Beteiligte in dieser Angelegenheit, und ich zähle mich mit.“
+
+
 Merlan legte eine zweite Reihe Blätter aus. Einige waren aus Ellingen, andere aus seinem eigenen Bestand. Er ordnete sie nicht nach Alter, sondern nach Widerspruch, was für Taron wie eine sehr gelehrte Form von Unordnung aussah.
 
 „Hier steht, Lösung sei Gnade. Hier steht, Lösung sei Strafe. Hier steht, Lösung sei nur mit Zustimmung des Wirts erlaubt. Und hier“, er tippte auf ein verbranntes Randstück, „steht vermutlich, dass Zustimmung entbehrlich sei, wenn der Schutz selbst Gefahr wird.“
@@ -258,6 +338,47 @@ Niemand fragte, wer.
 
 Niemand musste.
 
+Merlan setzte sich, weil ihn die Knie nicht mehr trugen, und stellte die Frage, die ein Gelehrter stellt, wenn er nichts anderes mehr tun kann.
+
+„Wie lange ist er schon wach?“
+
+Taron horchte nach innen.
+
+„Seit dem Tag der Prüfung“, sagte der Erzähler.
+
+Taron gab es weiter, und Brokk stand so schnell auf, dass sein Stuhl umfiel.
+
+„Der Junge war unten“, sagte Brokk. „In diesem Loch. Bei ihm.“
+
+„Ja.“
+
+„Und es hat ihn nicht getötet.“
+
+Der Erzähler brauchte lange. „Es hat ihn nicht getötet.“
+
+Merlan sah zu Taron, und in seinem Gesicht lag etwas, das Taron dort noch nie gesehen hatte und für das er kein Wort fand, bis ihm einfiel, dass Merlan Angst um jemanden hatte.
+
+„Das“, sagte Merlan sehr ruhig, „ändert die Reihenfolge aller Ereignisse, die ich für diese Reise angenommen hatte.“
+
+„Zum Besseren?“
+
+„Zu einer Sache, über die man nicht spekuliert, während drei Schlüssel auf demselben Tisch liegen.“
+
+Taron dachte an das Dunkel unter der Burg. An das Atmen. An die Krallen, die nie ganz zugegriffen hatten, und an die Sekunde, in der er sicher gewesen war, gleich zu sterben, und in der nichts geschah, was ihn hätte retten können, außer dass er weggeholt wurde.
+
+„Wer hat mich damals herausgeholt?“, fragte er.
+
+Der Erzähler antwortete nicht.
+
+„Das ist der Rand“, sagte Taron.
+
+„Ja.“
+
+„Nah dran?“
+
+„Sehr.“
+
+
 Gegen Morgen sagte Merlan: „Ihr müsst nach Waldkirch.“
 
 Vorher schrieb er drei Abschriften derselben Warnung. Eine für Waldkirch, eine für Ellingen, eine für Karndorn, falls Karndorn jemals wieder bereit war, Papier aus Menschenhand nicht sofort als Beleidigung zu betrachten. Jede begann anders und endete gleich: Kein Schutz ohne Zustimmung.
@@ -274,7 +395,32 @@ Vorher schrieb er drei Abschriften derselben Warnung. Eine für Waldkirch, eine 
 
 „Dann hat Ansel vermutlich eine vierte, die sie mir aus Misstrauen nicht gezeigt hat.“
 
-Merlan packte die Blätter in Wachstuch. Seine Hände zitterten nicht. Das fiel Taron auf. Merlan hatte Angst, sicher. Aber er war in seinem eigenen Gebiet angekommen: Worte gegen falsche Worte, Abschriften gegen Lücken, Tinte gegen Blut, soweit Tinte es eben schaffte.
+Merlan packte die Blätter in Wachstuch.
+
+Er brauchte dafür länger als nötig.
+
+Taron sah es und verstand es zu langsam, wie er inzwischen die meisten Dinge verstand, die andere Leute etwas kosteten.
+
+„Kommst du zurück?“, fragte er.
+
+„Statistisch unwahrscheinlich.“
+
+„Das ist keine Antwort.“
+
+„Es ist die einzige, die mir nicht wehtut.“
+
+Merlan sah durch den Raum. Vier Regale, ein Herd, ein Tisch mit Brandflecken, an dem er sechsundzwanzig Jahre gesessen hatte. Er nahm nicht die wertvollsten Rollen mit. Er nahm die, die niemand anders lesen konnte.
+
+„Und das Übrige?“, fragte Elva.
+
+„Wird von jemandem gefunden, der entweder klug oder gründlich ist. Ich kann das nicht beeinflussen, und es ist erstaunlich, wie erleichternd das ist.“
+
+Bevor er zur Tür ging, legte er ein Blatt auf den Tisch, sichtbar, in der Mitte.
+
+„Was steht darauf?“, fragte Taron.
+
+„Wo man anfangen soll.“
+ Seine Hände zitterten nicht. Das fiel Taron auf. Merlan hatte Angst, sicher. Aber er war in seinem eigenen Gebiet angekommen: Worte gegen falsche Worte, Abschriften gegen Lücken, Tinte gegen Blut, soweit Tinte es eben schaffte.
 
 Bevor er die Tasche schloss, streckte Merlan die Hand aus.
 

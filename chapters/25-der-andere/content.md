@@ -140,6 +140,45 @@ Merlan schrieb mit, dann hielt er inne. „Das ist eine gefährliche Theologie.�
 
 Der Erzähler fuhr fort. „Er wurde gebunden, dann gebannt, dann halb vergessen. Vergessen ist für solche Wesen kein Tod. Es ist ein Raum ohne Licht, in dem Gedanken weitergehen.“
 
+Merlan hörte auf zu schreiben. „Wie lange?“
+
+„Das ist die falsche Frage.“
+
+„Ich stelle sie trotzdem.“
+
+Der Erzähler brauchte eine Weile. „Für uns hat Zeit keine Länge, sondern eine Richtung. Ich kann dir sagen, dass es lang war. Ich kann dir nicht sagen, wie lang, weil ich in dieser Zeit nichts hatte, woran ich es hätte messen können. Das ist der Teil, den Menschen sich nicht vorstellen können, und ich empfehle, es nicht zu versuchen.“
+
+Taron gab es weiter, Wort für Wort, und merkte dabei, dass seine Stimme leiser wurde.
+
+„Du versuchst es gerade“, sagte Elva zu ihm.
+
+„Ja.“
+
+„Hör auf.“
+
+„Ich kann nicht.“
+
+Der Erzähler sagte: „Sie hat recht. Denk an etwas Kleines. Denk an eine Suppe.“
+
+„Warum eine Suppe?“
+
+„Weil ich es so gemacht habe.“
+
+Taron blieb sitzen und sah auf den Tisch, und es dauerte einen Moment, bis er begriff, was ihm gerade gesagt worden war.
+
+„Du warst auch dort.“
+
+„Nicht dort. Aber allein und ohne Maß.“ Die Stimme war ruhig. „Zehn Jahre. Nach dem Horn.“
+
+„Und du hast an Suppe gedacht.“
+
+„Ich habe an eine sehr dünne Linsensuppe gedacht, die eine Frau in Waldkirch einem Stallburschen gab, und daran, dass sie so tat, als sei die Menge Absicht. Es hat gereicht. Ich möchte nicht erklären, wie knapp.“
+
+Niemand am Tisch sagte etwas. Merlan schrieb es nicht mit.
+
+Später fiel Taron auf, dass das die einzige Stelle des Abends war, an der Merlan die Feder liegen ließ.
+
+
 „Wer bannte ihn?“, fragte Elva.
 
 Der Erzähler schwieg.
@@ -196,8 +235,6 @@ Er verzog keine Miene. „So reden alte Bindertexte.“
 
 „Zu spät“, sagte der Erzähler.
 
-„Eine Schlacht“, sagte Oswin.
-
 Draußen bewegte sich etwas.
 
 Oswin hob die Hand. Alle wurden still.
@@ -225,6 +262,33 @@ Taron schloss die Hand um den Pergamentstreifen.
 „Und Rugar?“, fragte Brokk.
 
 Der Junge sah den Zwerg und wurde bleich. „Der Zwergenkönig führt sie selbst.“
+
+Brokk saß sehr still. Dann fragte er den Jungen etwas, das niemand von ihm erwartet hatte.
+
+„Wie viele Banner?“
+
+Der Junge sah ihn an, als sei die Frage von der falschen Seite gekommen. „Ich weiß nicht. Viele.“
+
+„Nicht viele. Wie viele verschiedene.“
+
+„Drei? Vier?“
+
+Brokk atmete aus. „Vier heißt, die unteren Hallen sind mit. Die gehen nicht wegen eines Schlüssels. Die gehen, weil man ihnen gesagt hat, dass es ums Essen geht.“
+
+„Ist das besser oder schlechter?“, fragte Elva.
+
+„Es heißt, dass die Leute, die ich kenne, dabei sind.“ Brokk stand auf und griff nach seinem Stab. „Und dass ich sie ansehen muss, während sie mich für einen Verräter halten.“
+
+Oswin sagte: „Das ist die Lage, die du gewählt hast.“
+
+„Ja.“
+
+„Ich sage nicht, dass es falsch war.“
+
+Brokk sah ihn an. „Ich weiß.“
+
+Taron hatte den Eindruck, dass zwischen den beiden gerade eine Sache geklärt worden war, die keiner von ihnen jemals aussprechen würde, und dass er dabei besser nicht helfen sollte.
+
 
 Der Erzähler sagte: „Dann hat der andere seine Bühne.“
 
