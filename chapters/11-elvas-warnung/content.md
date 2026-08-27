@@ -272,12 +272,6 @@ Oswin sagte nichts gegen sie. Von ihm war das fast schon eine Empfehlung.
 
 Taron wollte noch etwas sagen, etwas Vernünftiges, vielleicht sogar etwas Edles. Stattdessen merkte er, wie wenig Kraft ihm übrig war. Er wollte nach Hause. Er wollte Waldkirch vor zehn Jahren. Volle Küchen. Weniger leere Gesichter. Eine Stimme im Kopf, die noch ein Freund gewesen war. Das Mädchen vor ihm ohne Staub am Saum und ohne Angst in den Schultern.
 
-Elva schob das Pergament in ihren Mantel. „Du wärst zurückgekommen“, sagte sie.
-
-Taron antwortete nicht.
-
-Sie hatte recht. Vielleicht nicht heute, vielleicht nicht morgen. Aber irgendwann hätte Waldkirch ihn wieder angezogen, und wenn er dann durch das Tor gegangen wäre, hätte Malchior vielleicht schon gewartet.
-
 Oswin öffnete die Tür einen Spalt. „Vor Morgengrauen sollten wir nicht mehr hier sein.“
 
 „Zwei Stunden Schlaf“, sagte Elva.
