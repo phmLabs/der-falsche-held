@@ -1,0 +1,4 @@
+- Die Gruppe erreicht Ellingen, ein unterworfenes Nachbarland ohne Glocken.
+- Die Stadt wirkt friedlich, aber alle Glocken wurden entfernt, weil ihr Klang alte Eidzeichen weckt.
+- Zwischen Hunger, Besatzung und stillen Bewohnern finden sie Hinweise auf das Eidenschloss.
+- Eine alte Schreiberin bestaetigt, dass die drei Schluessel einst nur gemeinsam benutzt werden durften.

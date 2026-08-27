@@ -1,0 +1,4 @@
+- Rugar erwacht ohne fremde Stimme.
+- Er erkennt seine Fehlleitung und befiehlt den Zwergen, die Waffen fallen zu lassen.
+- Menschen und Zwerge werden in einen bruechigen Waffenstillstand gezwungen.
+- Der neue Eid wird nicht glaenzend geschlossen, sondern muede, hungrig und ehrlich begonnen.

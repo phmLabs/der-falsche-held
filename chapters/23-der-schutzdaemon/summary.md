@@ -1,0 +1,4 @@
+- Merlan erklaert aus Randnotizen und Schluesselzeichen, dass Tarons Stimme ein gebundener Schutzdaemon sein duerfte.
+- Schutzdaemonen sollten Eidtraeger schuetzen, nicht beherrschen.
+- Taron erkennt, dass sein Freund aus der Kindheit wirklich war.
+- Der Erzaehler bestaetigt nur so viel, wie sein Eid erlaubt.

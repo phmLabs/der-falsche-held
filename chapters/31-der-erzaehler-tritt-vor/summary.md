@@ -1,0 +1,4 @@
+- Der andere Daemon will Taron uebernehmen und sperrt die Gruppe in der Kammer ein.
+- Taron wird schwer verletzt, Oswin entwaffnet, Brokk vom Eid gebunden.
+- Der Erzaehler uebernimmt Taron mit einem gewaltigen Schutzzauber und toetet alle feindlichen Wesen im Raum.
+- Taron ist wuetend, weil diese Macht frueher gebraucht worden waere, und erkennt zugleich den Preis.

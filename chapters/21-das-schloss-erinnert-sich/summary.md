@@ -1,0 +1,4 @@
+- Mit zwei Schluesseln und neuem Wissen kehrt die Gruppe zu Merlan nach Hohensteg zurueck.
+- Merlan, Brokk und der Erzaehler deuten das Eidenschloss aus unterschiedlichen Blickwinkeln.
+- Der Weinfleck in der Prophezeiung wird wichtiger: verdeckt ist nicht, dass Freiheit kommt, sondern wem sie gilt.
+- Das Eidenschloss erscheint nicht als Werkzeug, sondern als Gefaengnis, das sich an seine Schluessel erinnert.

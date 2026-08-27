@@ -1,0 +1,4 @@
+- In Eidgrund finden Taron, Elva, Oswin und Brokk Spuren, dass die alten Eide von Menschen und Zwergen gemeinsam geschlossen wurden.
+- Die Inschriften zeigen Luecken, Ueberschreibungen und absichtlich entfernte Namen.
+- Weder Menschen noch Zwerge scheinen den Bruch allein verursacht zu haben; eine dritte Hand hat Berichte und Prophezeiungen verdreht.
+- Der Erzaehler reagiert auf einige Zeichen mit echter Angst und erkennt, dass die Stimme des Zwergenkoenigs seiner eigenen Art nahe steht.

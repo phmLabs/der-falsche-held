@@ -1,0 +1,4 @@
+- Unter Waldkirch finden sie den Eidstein und das Eidenschloss.
+- Das Schloss ist beschaedigt und von fremder Schutzdaemonenmagie verfaelscht.
+- Rugar bringt die drei Schluessel zusammen.
+- Das Zusammenkommen loest die letzten Riegel des Gefaengnisses des anderen Daemons.

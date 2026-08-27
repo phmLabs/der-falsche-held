@@ -1,0 +1,4 @@
+- Taron stellt den Erzaehler nach Eidgrund direkt zur Rede.
+- Der Erzaehler weicht aus, aber sein Ausweichen ist diesmal kein Spott, sondern sichtbare Bindung.
+- Taron begreift, dass manche Wahrheiten fuer den Erzaehler Eidbruch waeren.
+- Der Erzaehler gibt zu, dass er Taron verlassen muesste, wenn er bestimmte Regeln bricht.

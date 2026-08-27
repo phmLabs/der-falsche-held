@@ -1,0 +1,4 @@
+- Taron kehrt in den Dungeon zurueck, in dem der Hunger von Waldkirch lauert.
+- Die Gruppe erkennt, dass der Hunger kein einfaches Monster ist, sondern ein verdorbener alter Waechter.
+- Als die Schluessel reagieren, zeigen sich Zeichen unter seiner Haut.
+- Der Hunger wird nicht freundlich, aber auf unheimliche Weise gehorsam.

@@ -1,0 +1,4 @@
+- Elva sagt Taron endlich vollstaendig, was sie in Waldkirch gehoert hat.
+- Koenig Albrecht und Malchior sehen Taron als notwendiges Opfer, nicht als Menschen.
+- Taron wird dadurch nicht mutiger, sondern klarer verletzt.
+- Elva macht deutlich, dass sie ihn nicht wegen einer Prophezeiung gesucht hat, sondern weil er Taron ist.

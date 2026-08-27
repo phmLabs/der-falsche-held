@@ -1,0 +1,4 @@
+- Die Schlacht beginnt aus Missverstaendnissen, Angst und alten Befehlen.
+- Oswin und Brokk kaempfen erst nebeneinander, weil sie muessen, dann weil ihre Erfahrung ineinandergreift.
+- Sie zaehlen erstmals auch Gerettete.
+- Taron hebt Merlans Rauchkugel erneut auf, was Oswin fast verzweifeln laesst.

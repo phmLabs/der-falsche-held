@@ -1,0 +1,4 @@
+- Brokk versucht, den Eid im Namen der Zwerge zu erneuern.
+- Der Eidstein weist ihn ab, weil er noch immer fuer eine Seite spricht.
+- Taron erkennt, dass sein fehlender Anspruch wichtig ist.
+- Gerade der falsche Held kann den Eid ansprechen, weil er keiner Machtlinie gehoert.

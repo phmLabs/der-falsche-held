@@ -1,0 +1,4 @@
+- Die Zwerge erscheinen vor Waldkirch und die Menschen deuten es als zweiten grossen Angriff.
+- Brokk versucht, seine Leute zum Eidstein zu fuehren, waehrend menschliche Ritter genau das verhindern wollen.
+- Rugar fuehrt die Zwerge, aber wirkt fremd und gelenkt.
+- Die Lage kippt, bevor Taron die Wahrheit erklaeren kann.

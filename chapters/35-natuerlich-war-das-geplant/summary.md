@@ -1,0 +1,4 @@
+- Waldkirch steht noch, aber Menschen und Zwerge muessen gemeinsam die Folgen verstehen.
+- Taron konfrontiert den Erzaehler damit, dass er nicht vor dem anderen Daemon gewarnt hat.
+- Der Erzaehler erklaert, dass Eidbruch ihn gezwungen haette, Taron zu verlassen.
+- Er entscheidet sich gegen seine eigene Befreiung, bleibt gebunden und behauptet am Ende, alles sei geplant gewesen.

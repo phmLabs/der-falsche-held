@@ -1,0 +1,4 @@
+- Taron entscheidet, nicht weiter Artefakten hinterherzulaufen, sondern nach Waldkirch zurueckzukehren.
+- Waldkirch ist hungernder, angespannter und kriegsbereiter als zuvor.
+- Koenig Albrecht sammelt Truppen, weil die Zwerge wieder marschieren.
+- Taron merkt, dass er seine Heimat retten will, obwohl sie ihn geopfert haette.
