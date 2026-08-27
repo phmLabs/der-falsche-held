@@ -118,6 +118,33 @@ Elva schnaubte leise. „In Waldkirch beginnt Geschichte meistens mit einem Prie
 
 Der Erzähler sagte: „Als Abschrift möchte ich anmerken, dass viele Originale durch selbstbewusste Dummheit erheblich verlieren.“
 
+An einer Stelle wurde der Gang breiter, und Taron sah, dass sie nicht in einem Stollen gingen, sondern auf einer Straße.
+
+Es war schwer zu erkennen, weil eine Straße unter der Erde vor allem wie ein Gang aussieht. Aber der Boden war gepflastert, nicht gehauen, und an der Wand lief in Hüfthöhe eine flache Rinne, in der noch Reste von Ruß klebten.
+
+„Lampenrinne“, sagte Brokk. „Man stellte Schalen hinein. Alle zwanzig Schritte eine.“
+
+„Wer ging hier?“
+
+„Alle.“ Brokk ging weiter, ohne sich umzusehen. „Zwei Tagesmärsche von Riedwacht nach Ellingen, ohne Wetter, ohne Zoll und ohne dass jemand deine Ladung zählt. Menschen zahlten dafür.“
+
+Elva sah die Rinne an. „Zwerge haben Menschen unter der Erde reisen lassen?“
+
+„Wir haben sie zahlen lassen. Das ist bei uns fast dasselbe wie Freundschaft.“
+
+„Und dann?“
+
+„Dann kam der Krieg, und beide Seiten mauerten ihre Enden zu. Wir zuerst.“ Er blieb kurz stehen. „Es war meine Idee.“
+
+Niemand sagte etwas dazu.
+
+„Sie war richtig“, sagte Brokk. „Sie hat auch funktioniert. Jahre später hungerte Ellingen, weil nichts mehr durchkam, und wir haben es besetzt, um Ordnung hineinzubringen.“
+
+Oswin sagte hinter ihnen: „Das kenne ich in menschlicher Fassung.“
+
+„Erzähl sie nicht“, sagte Brokk. „Ich habe heute genug.“
+
+
 „Niemand verteidigt gerade Abschriften“, sagte Taron.
 
 „Ich verteidige mich grundsätzlich früh.“
@@ -159,6 +186,31 @@ Taron merkte es, weil er inzwischen auf solche Kleinigkeiten achtete. Früher h�
 „Seit wann?“
 
 „Seit Worte Folgen haben.“
+
+„Warst du hier?“, dachte Taron.
+
+„Nicht hier. An einer wie dieser.“
+
+„Wie viele gibt es?“
+
+„Weniger als früher.“
+
+Taron sah auf die drei Linien, die den Kreis nicht erreichten. „Das ist keine Zahl.“
+
+„Nein“, sagte der Erzähler. „Es ist eine Richtung.“
+
+Dann sprach er weiter, ohne dass Taron nachfragte, was so selten war, dass Taron unwillkürlich stehen blieb.
+
+„Solche Stellen wurden nicht als Denkmal gebaut. Sie waren Arbeitsplätze. Hier hat jemand gesessen, mit kalten Füßen, und einen Eid festgehalten, damit später nachweisbar ist, dass er gesprochen wurde. Es gab dafür Handwerk, Werkzeug und schlechte Bezahlung.“
+
+„Das klingt fast liebevoll.“
+
+„Ich mochte die Leute, die das gemacht haben. Sie waren nicht wichtig, sie wussten es, und sie haben es trotzdem sauber gemacht.“
+
+„Was ist mit ihnen passiert?“
+
+„Sie sind alt geworden und gestorben, und niemand hat sie ersetzt, weil in der Zwischenzeit alle beschlossen hatten, Eide seien etwas, das Könige aussprechen.“
+
 
 Taron sah zur Wand. „Drei Schlüssel?“
 
@@ -448,6 +500,29 @@ Oswin sagte: „Wie viele zwischen uns und draußen?“
 
 Brokk sah zur abgeschlagenen Wand. Dann zu Taron. Dann zu einer schmalen Öffnung hinter dem Steinblock.
 
+Vorher ging Elva noch einmal an die abgeschlagene Wand, aber sie legte die Hand nicht darauf.
+
+„Ich kann sehen, wo etwas weg ist“, sagte sie.
+
+„Das können alle“, sagte Taron.
+
+„Nein.“ Sie zeigte, ohne zu berühren. „Hier. Der Abstand.“
+
+Brokk hob die Lampe.
+
+„Zeichen stehen gleichmäßig, wenn jemand sie mit Plan setzt“, sagte Elva. „Ich habe zwei Jahre Listen abgeschrieben. Wenn eine Zeile fehlt, sieht man es nicht an der Lücke, sondern daran, dass der Rest zu weit auseinandersteht.“
+
+Sie fuhr mit dem Finger eine Handbreit über dem Stein entlang.
+
+„Hier fehlt nicht eine Sache. Hier fehlen vier.“
+
+Brokk sah lange auf die Wand. „Vier?“
+
+„Drei kurze und eine lange.“ Elva richtete sich auf. „Die lange stand oben. Was oben steht, ist meistens die Bedingung.“
+
+Der Erzähler sagte nichts, und Taron merkte, dass das inzwischen die genaueste Bestätigung war, die er bekam.
+
+
 „Dort.“
 
 „Noch ein Loch?“, fragte Taron.
@@ -511,6 +586,31 @@ Lorns Stimme brach beinahe, aber er hielt sie. „Er weiß es auch.“
 Brokk schloss die eiserne Hand um den Stab. Dann duckte er sich in den Wasserlauf.
 
 „Weiter.“
+
+Broda bewegte sich nicht.
+
+„Hauptmann.“
+
+„Nein.“
+
+„Ich habe nicht gefragt.“
+
+„Ich habe geantwortet.“
+
+Sie stand mit der Axt in der Hand und sah zum oberen Gang, und Taron begriff mit Verzögerung, dass sie überlegte, allein zu gehen.
+
+„Krail hat mir das Riemenschneiden beigebracht“, sagte sie. „Nicht der in der dritten Ebene. Krail. Als ich vierzehn war.“
+
+Brokk sah sie an. „Ich weiß.“
+
+„Dann sag es mir noch einmal.“
+
+„Wenn du hinaufgehst, hat Varga zwei.“
+
+Broda stand noch einen Atemzug. Dann steckte sie die Axt weg, was schlimmer aussah als jeder Schlag.
+
+Sie sagte auf dem ganzen weiteren Weg kein Wort. Viel später, in einem Hof voller Rauch, würde Taron sehen, wie sie einen verletzten Menschen aus dem Gedränge zog, und begreifen, dass sie in diesem Gang angefangen hatte.
+
 
 Elva kroch zuerst durch die Öffnung. Sie passte besser hindurch als Oswin, was niemand erwähnte, weil Oswin ein Schwert hatte und eine verletzte Würde mehr Platz brauchte als seine Schultern.
 
