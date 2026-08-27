@@ -138,6 +138,19 @@ Der Erzähler antwortete nicht.
 
 Taron merkte, dass die Frage zu nah an der verbotenen Stelle lag. Das machte ihn erst wütend, dann vorsichtiger. Elvas Rat fiel ihm wieder ein: nach dem Rand fragen.
 
+Elva hatte es ihm am Morgen gesagt, während sie ihre Stiefel neu schnürte und dabei aussah, als bespreche sie den Preis von Zwiebeln.
+
+„Frag ihn nicht, was etwas ist“, hatte sie gesagt. „Frag ihn, was es tut.“
+
+„Warum sollte das gehen?“
+
+„Weil ich das in der Schreibstube so gemacht habe. Man darf nicht fragen, was in einem Erlass steht. Man darf fragen, wie viele Abschriften man machen soll. Aus der Zahl folgt der Inhalt.“
+
+Taron hatte darüber eine Weile nachgedacht. „Du hast einen König ausgetrickst, indem du nach Papier gefragt hast.“
+
+„Ich habe einen Schreiber ausgetrickst. Könige sind einfacher. Sie erklären gern.“
+
+
 „Was tut Klang?“, fragte er.
 
 Der Erzähler blieb lange still. Dann sagte er: „Er erinnert Dinge, die keine Augen haben.“
@@ -209,6 +222,31 @@ Taron hatte diesen Namen noch nie gehört und mochte ihn sofort nicht. „Vielle
 Der Junge deutete nach Norden. „Ein Mann kam gestern. Mensch, aber mit Zwergengeld. Er fragte nach einem mit Vogelzeichen und einem Ritter.“
 
 Oswins Gesicht wurde hart.
+
+„Wie sah das Geld aus?“, fragte Brokk.
+
+Der Junge zuckte die Schultern. „Rund. Ein Hammer drauf.“
+
+„Ganz oder halb?“
+
+„Halb.“
+
+Brokk wandte sich ab und sagte ein Wort in seiner Sprache, das Broda hörte und nicht kommentierte.
+
+„Was heißt halb?“, fragte Taron.
+
+„Halbe Hammerstücke werden nicht in Karndorn ausgegeben“, sagte Brokk. „Man schlägt sie an der Grenze durch, damit man sieht, wo sie gezahlt wurden. Man bezahlt damit Leute, die man nicht in eine Liste schreiben will.“
+
+„Also Späher.“
+
+„Also Menschen, die für Zwerge Menschen suchen“, sagte Brokk. „Vor zehn Jahren hätte ich gesagt, das gibt es nicht.“
+
+Oswin sah nach Norden. „Es funktioniert gut. Ein Mensch fragt in einem Dorf nach einem Menschen, und niemand geht weg.“
+
+„Ich hätte gern gehört, dass es nicht funktioniert“, sagte Taron.
+
+„Dann hättest du eine andere Reise buchen müssen.“
+
 
 Taron gab ihnen Brot. Nicht viel. Sie hatten selbst kaum genug. Aber Elva schnitt es so, dass es nach mehr aussah, und das war eine Kunst, die keine Prophezeiung je angemessen lobte.
 
@@ -292,6 +330,45 @@ Der Erzähler antwortete erst nach einer langen Pause. „Ja.“
 
 „Nein. Nur zu alt.“
 
+Taron zog die Beine an und sah auf seine Hände.
+
+„Was passiert mit mir, wenn du gehst?“
+
+„Nichts Dramatisches.“
+
+„Das ist die Antwort, die man Kindern gibt.“
+
+Der Erzähler brauchte einen Moment. „Du wirst hören, dass es still ist. Nicht sofort. Zuerst wirst du dich noch unterhalten, ein paar Tage, weil man Gewohnheiten länger behält als Leute. Du wirst Sätze anfangen und merken, dass niemand sie beendet.“
+
+„Und dann?“
+
+„Dann wirst du es dir selbst erklären. Menschen sind darin außergewöhnlich. Nach einem Jahr wirst du wissen, dass du ein Kind mit viel Fantasie warst.“
+
+Taron sah aufs Feld. „Das ist das Schlimmste, was du mir bisher gesagt hast.“
+
+„Ja.“
+
+„Und beim letzten Mal? Nach dem Horn?“
+
+„Beim letzten Mal war ich nicht gegangen. Ich war weggerissen worden. Das ist nicht besser, aber es ist ein anderer Vorwurf.“
+
+„Habe ich es mir damals erklärt?“
+
+„Du hast aufgehört, im Dunkeln zu reden“, sagte der Erzähler. „Innerhalb von zwei Wochen. Ich habe zugesehen und nichts sagen können, und ich möchte, dass du weißt, dass ich das für die schlechteste Zeit halte, die ich hatte, und ich hatte einige.“
+
+Taron saß sehr still.
+
+„Du warst da?“
+
+„Weit weg. Aber ja.“
+
+„Warum hast du das nicht früher gesagt?“
+
+„Weil du dann gefragt hättest, ob es beim nächsten Mal wieder passiert.“
+
+Taron fragte es nicht. Er merkte, dass er es nicht fragte, und er merkte, dass der Erzähler es merkte, und für einen Moment saßen sie beide in derselben Feigheit und ließen sie sich gegenseitig durchgehen.
+
+
 Taron sah über die Mauer zu den Feldern. Ein Mann zog dort einen Karren allein, der für ein Pferd gebaut war. Auf dem Karren lag kein Gut, sondern eine alte Frau in Decken. Niemand half ihm. Vielleicht, weil niemand Kraft übrig hatte. Vielleicht, weil alle gelernt hatten, dass Hilfe Aufmerksamkeit erzeugte.
 
 „Dann bin ich auch schuldig“, sagte Taron.
@@ -305,6 +382,12 @@ Der Erzähler schwieg so lange, dass Taron schon glaubte, die Antwort sei wieder
 Taron sah auf. „Du könntest wenigstens versuchen, mir zu widersprechen.“
 
 „Ich könnte vieles versuchen. Einiges davon wäre sogar unterhaltsam. Aber du hast recht.“
+
+„Danke für nichts.“
+
+„Nicht-Wollen ist ein Anfang“, sagte der Erzähler. „Kein guter Ort zum Wohnen.“
+
+Taron musste den Satz nicht mögen, um ihn zu behalten.
 
 Das war schlimmer als Widerspruch. Widerspruch hätte Taron etwas gegeben, gegen das er treten konnte. Recht zu haben stellte ihn nur neben seine eigene Aussage und ließ ihn ansehen, was er dort abgestellt hatte.
 
@@ -385,12 +468,6 @@ Taron betrachtete die Scheibe. „Vielleicht nicht. Aber jemand hat es bis hierh
 Der Erzähler sagte nichts.
 
 Diesmal war sein Schweigen kein Ausweichen. Es war Zustimmung, die zu viel erinnerte.
-
-Der Erzähler sagte nichts Spöttisches. Das war fast unanständig von ihm.
-
-„Nicht-Wollen ist ein Anfang“, sagte er schließlich. „Kein guter Ort zum Wohnen.“
-
-Taron musste diesen Satz nicht mögen, um ihn zu behalten.
 
 Elva kam zu ihm und reichte ihm ein Stück Rübe. „Du siehst aus, als würdest du mit ihm verlieren.“
 

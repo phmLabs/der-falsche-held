@@ -126,6 +126,45 @@ Taron sagte nichts.
 
 „Marta hatte mir einen Topf gegeben“, sagte Elva. „Linsensuppe. Mehr Wasser als Linsen, aber sie tat so, als sei das Absicht. Ich sollte ihn in den kleinen Saal bringen. Dort standen Albrecht und Malchior. Ich dachte, sie reden über Vorräte. Alle redeten über Vorräte.“
 
+Sie erzählte es genauer, als Taron gewollt hätte.
+
+Der kleine Saal habe zwei Türen: eine für Gäste und eine für Töpfe. Elva sei durch die für Töpfe gekommen, den Kessel an einem Holzgriff, weil das Eisen zu heiß gewesen sei, und sie habe im Türrahmen gewartet, weil man nicht in einen Satz hineinläuft, in dem der König das Wort hat.
+
+Auf dem Tisch habe eine Abschrift gelegen. Nicht die große aus der Kapelle; eine kleinere, auf ungebleichtem Papier, mit Malchiors eigener Hand daneben.
+
+„Hat er sie verändert?“, fragte Taron.
+
+„Nein.“ Elva schüttelte den Kopf. „Das ist das Merkwürdige. Er hat nichts verändert. Er hat daneben geschrieben, was sie bedeutet, und die Deutung war länger als der Text.“
+
+„Wie viel länger?“
+
+„Vier Zeilen Prophezeiung. Eine halbe Seite Malchior.“
+
+Der König habe am Fenster gestanden und nicht auf das Papier gesehen. Er habe gefragt, wie lange die Speicher hielten. Malchior habe gesagt: bis zum zweiten Schnee, wenn die Verteilung streng bleibe. Dann habe Albrecht gesagt, streng sei ein Wort, das man den Leuten nur verkaufen könne, wenn man ihnen gleichzeitig etwas anderes gebe.
+
+„Und Malchior gab ihm mich“, sagte Taron.
+
+„Malchior gab ihm eine Erklärung“, sagte Elva. „Das ist bei ihm nicht dasselbe, und ich glaube, er merkt den Unterschied wirklich nicht.“
+
+Sie habe den Kessel dann abgestellt, weil ihre Arme nachgegeben hätten, und das Geräusch sei zu laut gewesen. Beide Männer hätten sich umgedreht.
+
+Taron spürte, wie sich sein Magen zusammenzog. „Sie haben dich gesehen.“
+
+„Ja.“
+
+„Und?“
+
+„Malchior hat gelächelt und gesagt, ich solle Wein bringen.“
+
+„Das ist alles?“
+
+„Das ist alles.“ Elva sah auf ihre Hände. „Er hat nicht aufgehört zu reden. Er hat weitergesprochen, während ich im Raum war. Das habe ich zuerst für Vertrauen gehalten. Am Abend habe ich begriffen, was es war.“
+
+„Was war es?“
+
+„Ich habe nicht gezählt.“
+
+
 Taron sah auf die Opfergaben am Sockel. Ein verkohlter Löffel war eine sehr kleine Sache, bis man sich vorstellte, dass jemand ihn nicht mehr hatte.
 
 „Malchior sagte, die Leute würden unruhig“, fuhr Elva fort. „Der Hunger mache sie anfällig für Zweifel. Und der König sagte, ein Wunder zur rechten Zeit könne mehr nähren als Korn.“
@@ -318,6 +357,33 @@ Der Erzähler sagte: „Ein unfairer Vergleich. Vorratslisten enthalten meistens
 
 Elva ging weiter. „Wenn die Zwerge Waldkirch einschließen, ist Brot das Erste. Nicht Mauern. Brot. Wer verteilt, entscheidet, wer ruhig bleibt.“
 
+Brokk hatte den ganzen Vormittag zugehört, ohne es zuzugeben.
+
+An einer Furt, wo sie die Pferde trinken ließen, trat er zu Elva und sagte ohne Umschweife: „Der Priester hat weitergeredet, weil du kein Zeuge warst.“
+
+Elva sah ihn an. „Ja.“
+
+„Bei uns heißt das: unter der Bank stehen. Wer unter der Bank steht, hört alles und kann nichts bezeugen, weil er nicht eingetragen ist.“
+
+„Und wer trägt ein?“
+
+„Der Hallenschreiber. Auf Antrag.“
+
+„Und wer stellt den Antrag?“
+
+Brokk schwieg kurz. „Meistens niemand.“
+
+Elva nickte langsam, als bestätige sich etwas, mit dem sie gerechnet hatte. „Dann ist es überall dasselbe Verfahren.“
+
+„Ja“, sagte Brokk. „Nur die Bänke sind anders geschnitten.“
+
+Oswin prüfte die Sattelgurte und sagte, ohne aufzusehen: „In der Westmark hatten wir Feldschreiber. Sie schrieben auf, wer fiel. Nicht, wer geredet hatte.“
+
+„Und wenn jemand einen falschen Befehl gab?“
+
+„Dann fiel jemand“, sagte Oswin, „und das wurde aufgeschrieben.“
+
+
 Taron dachte an Marta in ihrer Backstube, an ihre Hände, an den Ofen, an die dünne Suppe. Er hatte sie immer als Zuflucht gesehen. Elva sah sie als Versorgungslinie. Beides war wahr. Vielleicht war das der Unterschied zwischen jemandem, der in der Küche Schutz suchte, und jemandem, der dort gearbeitet hatte.
 
 „Albrecht weiß das“, sagte Taron.
@@ -375,6 +441,29 @@ Am Mittag holten sie Merlan ein, der inzwischen aufgegeben hatte, nicht zu lausc
 Oswin sah ihn an. „Du hast wirklich an einer Pflanze gelauscht.“
 
 „Ich habe neben einer Pflanze gewartet. Das ist botanisch ein Unterschied.“
+
+Am Abend holte Merlan eine Rolle heraus, ohne zu fragen, ob jemand sie sehen wollte.
+
+„Deine Abschrift“, sagte er zu Elva.
+
+Elva sah auf. „Ihr habt sie behalten?“
+
+„Ich behalte alles, was jemand unter Gefahr geschrieben hat. Es ist eine schlechte Sammelleidenschaft und die einzige, die ich mir leiste.“ Er strich das Blatt glatt. „Ihr habt einen Fehler gemacht.“
+
+„Wo?“
+
+„Hier. Ihr habt in Obhut in Anführungszeichen gesetzt.“
+
+„Das stand da nicht?“
+
+„Nein. Das ist Eure Meinung, mitten in einer Abschrift.“ Merlan sah sie über die Brille an. „Es ist der beste Fehler, den ich seit Jahren gesehen habe, und Ihr dürft ihn nie wieder machen, wenn Ihr wollt, dass man Euch glaubt.“
+
+Elva nahm das Blatt und sah lange darauf.
+
+„Was mache ich stattdessen?“
+
+„Ihr schreibt ab, was dasteht, und darunter, was Ihr gehört habt, und Ihr schreibt darunter, dass Ihr es gehört habt und nicht gelesen.“ Merlan setzte sich schwerfällig auf einen Balken. „Dann kann man Euch nicht widerlegen, ohne Euch zu nennen. Das ist der ganze Trick, und er ist zweitausend Jahre alt.“
+
 
 Elva schüttelte den Kopf, aber ihre Schultern waren weniger hart als zuvor. Taron merkte, dass die Wahrheit zwischen ihnen nicht kleiner geworden war, aber tragbarer. Nicht im Sinn von Albrecht und Malchior. Tragbar, weil man sie zu zweit anders hielt.
 

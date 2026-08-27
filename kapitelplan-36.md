@@ -91,7 +91,7 @@ kleine Handglocke.
 einem Tisch. Das Eidenschloss ist kein Werkzeug, sondern ein Gefängnis. Der
 Eidstein unter Waldkirch erwacht. Merlan reist mit.
 
-**22. Elvas Warnung.** Elva sagt Taron, was sie wirklich gehört hat: Für
+**22. Was Elva gehört hat.** Elva sagt Taron, was sie wirklich gehört hat: Für
 Albrecht und Malchior ist sein Leiden „tragbar“. Sie ist nicht wegen des Helden
 gekommen, sondern wegen Taron.
 
