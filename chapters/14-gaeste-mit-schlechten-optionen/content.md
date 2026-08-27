@@ -44,6 +44,26 @@ Der Ritter sah ihn an, aber Brokk ritt weiter, als hätte er nur das Wetter beri
 
 Taron merkte, wie Elvas Hand an seinem Mantel fester wurde. Sie hatte Waldkirch verlassen, weil dort die Vorratskammern leerer wurden und die Leute trotzdem so taten, als könne man Mut in Töpfe füllen. Jetzt sah sie, wohin Hunger und Angst führten, wenn sie lange genug verwaltet wurden: zu Häusern ohne Dächer, zu Feldern ohne Hände, zu Brunnen, aus denen niemand mehr schöpfte.
 
+Sie kamen an einem Gehöft vorbei, das ordentlicher aussah als der Rest, und genau das machte es schlimmer. Die Tür lehnte an der Wand, statt in den Angeln zu hängen. Vor dem Haus stand ein Karren mit einer Achse, an der jemand noch gearbeitet hatte. Werkzeug lag daneben im Gras, geordnet.
+
+„Die sind nicht überfallen worden“, sagte Oswin.
+
+„Nein“, sagte Brokk.
+
+„Sie sind gegangen.“
+
+„Zwei Winter nach dem letzten Horn. Die Grenze wanderte, und ihre Felder lagen plötzlich auf der falschen Seite einer Linie, die ihnen niemand gezeigt hat.“
+
+Elva stieg ab, bevor Taron etwas sagen konnte. Sie ging zu dem Karren, hockte sich hin und sah das Werkzeug an. Dann nahm sie einen kleinen Meißel und wog ihn in der Hand.
+
+„Das lässt keiner liegen“, sagte sie.
+
+„Wenn er wiederkommen will, lässt er es liegen“, sagte Brokk.
+
+Elva legte den Meißel zurück, genau dorthin, wo er gelegen hatte. Taron sah, dass sie ihn ausrichtete.
+
+„Steig auf“, sagte Brokk. „Wir sind zu lange sichtbar.“
+
 Der Erzähler sagte: „An dieser Stelle könnte man eine sehr erbauliche Bemerkung darüber machen, dass Reiche nicht auf Schlachtfeldern sterben, sondern in Küchen.“
 
 „Und?“, dachte Taron.
@@ -120,6 +140,30 @@ Der Erzähler sagte: „Eine rührende Unterscheidung. Falsch, aber rührend.“
 
 Varga sprach mit einem seiner Leute. Taron verstand die Worte nicht. Die Sprache der Zwerge klang nicht wie das Knurren aus den Geschichten. Sie war hart, ja, aber auch genau. Wie Steine, die jemand nach Größe sortierte.
 
+Oswin flüsterte, ohne den Kopf zu drehen: „Ich kenne den Namen.“
+
+„Woher?“, fragte Taron.
+
+„Westmark. Er hielt drei Tage eine Furt, die man nicht halten konnte.“
+
+„Und?“
+
+„Er hat sie gehalten.“
+
+„Das klang fast bewundernd.“
+
+„Es war eine Einschätzung. Bewunderung wäre teurer.“
+
+Brokk hörte mit. „Er ist älter als ich. Breiter. Und geduldiger, als er aussieht.“
+
+„Ihr kennt euch“, sagte Elva.
+
+„Wir haben nebeneinander gestanden, als es noch etwas gab, wofür man nebeneinander steht.“
+
+Elva ließ es nicht liegen. „Und heute?“
+
+Brokk sah zum Hang. „Heute steht er näher am König.“
+
 Brokk antwortete nicht, obwohl seine Leute ihn ansahen.
 
 „Was sagen sie?“, flüsterte Elva.
@@ -179,6 +223,18 @@ Zwischen ihnen wurde die Luft enger. Taron sah Brokks Hand am Stab, Oswins Finge
 „Ich bin eine innere Stimme, Taron. Nicht der Dorfschreiber für schlechte Stimmungen.“
 
 Vargas Leute setzten sich wieder in Bewegung. Einer von ihnen stieg vom Weg herab, direkt in Richtung Bachbett.
+
+Er ging nicht wie jemand, der etwas gefunden hatte. Er ging wie jemand, der nachsah, weil Nachsehen zu seinen Aufgaben gehörte, und das war das schlechtere von beidem. Einen Suchenden konnte man täuschen. Einen Gründlichen musste man abwarten.
+
+Taron rechnete. Er war gut im Rechnen, solange es um Fluchtwege ging, und die Rechnung ging nicht auf. Hinter ihnen stieg der Hang zu steil. Links lag offenes Gras. Rechts standen Dornen, die ein Pferd nicht nahm und ein Mensch nicht schnell. Blieb das Bachbett, und das Bachbett führte genau dorthin, wo oben noch elf Zwerge standen.
+
+Elva flüsterte: „Wie viele Schritte?“
+
+„Zwanzig“, sagte Oswin, ohne hinzusehen.
+
+„Und dann?“
+
+„Dann entscheidet er.“
 
 Oswin zog sein Schwert einen Fingerbreit.
 
@@ -242,9 +298,89 @@ Brokk ging ihm entgegen.
 
 „Mit Beute.“
 
-Taron blieb hinter den Steinen und beschloss, sich später beleidigt zu fühlen, falls es ein Später gab.
+Taron beschloss, sich später beleidigt zu fühlen, falls es ein Später gab.
 
-Varga kam näher. „Der König will den Jungen.“
+„Zeig sie mir.“
+
+Es war keine Bitte. Brokk zögerte einen Herzschlag zu lang, und Taron hörte, wie Oswin neben ihm sehr langsam einatmete.
+
+„Aufstehen“, rief Brokk auf Menschensprache. „Alle drei. Hände sichtbar.“
+
+Taron begriff und begriff gleichzeitig, dass er dafür keine Zeit hatte. Er stand auf. Er ließ die Rauchkugel in den Beutel fallen und die Hand offen daneben hängen. Elva stand ohne Messer auf, was ihr sichtbar mehr kostete als das Aufstehen. Oswin blieb einen Augenblick sitzen.
+
+„Ritter“, sagte Brokk.
+
+Oswin erhob sich. Er tat es, wie er alles tat, nämlich gerade. Es war die schlechteste Haltung, die ein Gefangener haben konnte.
+
+Varga kam ins Bachbett herunter. Er ging langsam, nicht aus Vorsicht, sondern weil er das Gelände lesen wollte, und Taron sah zu, wie sein Blick über das trockene Laub ging, über die Stelle, an der ein Knie hineingebrochen war, über Kummers Hufspuren, über Elvas Stiefel.
+
+Dann blieb er vor Taron stehen.
+
+Varga war nicht groß. Er war gebaut wie etwas, das man in einen Hang stellte, damit der Hang sich anders entschied. Er sah Taron ins Gesicht, dann an den Gürtel, dann an die Hände.
+
+„Der Junge hat keine Fesseln.“
+
+„Er läuft nicht“, sagte Brokk.
+
+„Warum nicht?“
+
+„Weil er weiß, wie weit er kommt.“
+
+Varga sah Taron weiter an. „Läufst du?“
+
+Taron überlegte kurz, ob Ehrlichkeit hier eine Tugend oder ein Fehler war.
+
+„Ich bin ein ausgezeichneter Wegläufer“, sagte er. „Aber ich zähle vorher.“
+
+Etwas an Vargas Mundwinkel bewegte sich. Es war kein Lächeln. Es war die Stelle, an der bei anderen Leuten eines gewesen wäre.
+
+„Zähl weiter“, sagte er.
+
+Dann ging er zu Oswin.
+
+Er ging einmal um ihn herum, langsam, wie ein Mann, der ein Pferd prüft, das er schon nicht kaufen wird. Oswin sah nach vorn. Sein Schwert hing an seiner Seite, und niemand nahm es ihm ab, und dieses Nichtabnehmen war eine Beleidigung, die beide verstanden.
+
+„Wie viele?“, fragte Varga.
+
+Oswin antwortete nicht.
+
+„Ein Ritter aus der Westmark zählt“, sagte Varga. „Ihr zählt alle. Wie viele von uns?“
+
+Oswin sah nach vorn und schwieg. Taron sah, wie sein Kiefer arbeitete.
+
+Varga wartete genau so lange, dass klar wurde, er hätte gewartet.
+
+„Ich habe vierhundertelf“, sagte er dann. „Es macht mich nicht besser.“
+
+Oswin sah ihn an. „Nein.“
+
+Für einen Atemzug war das die vernünftigste Unterhaltung, die in diesem Bachbett geführt wurde.
+
+Dann kam Varga zu Elva.
+
+Er sah sie kürzer an als die anderen und sagte nichts. Elva hielt seinen Blick. Es war die Art, wie sie einen Küchenmeister ansah, der ihr etwas wegnehmen wollte, das sie noch gebraucht hätte.
+
+„Nach Ermessen“, sagte Varga zu Brokk.
+
+„Ich habe es zur Kenntnis genommen.“
+
+„Ihr habt es nicht ausgeführt.“
+
+„Ich hatte keinen Anlass.“
+
+Varga sah wieder zu Elva. „Gib mir einen.“
+
+Elva sagte: „Ich koche.“
+
+Varga blinzelte einmal.
+
+„Sie kocht“, sagte Brokk.
+
+„Das habe ich gehört.“
+
+Er trat drei Schritte zurück, und Taron merkte erst da, dass er die ganze Zeit nicht geatmet hatte.
+
+„Der König will den Jungen“, sagte Varga.
 
 „Ich bringe ihn.“
 
@@ -257,6 +393,40 @@ Brokk stand sehr ruhig. „Mein Auftrag kam vor eurem.“
 Das Wort fiel nicht laut. Es musste nicht.
 
 Brokks Leute senkten die Blicke. Oswin wurde neben Taron völlig still. Elva sah Taron fragend an, aber Taron konnte nur Brokk ansehen.
+
+Der Erzähler sagte, sehr leise: „Ah.“
+
+Es war das erste Mal, dass Taron ihn erschrocken hörte, ohne dass jemand eine Waffe hob.
+
+„Was heißt das?“, dachte Taron.
+
+„Es heißt, dass jemand einen Namen abgelegt hat und ihn trotzdem benutzt.“
+
+Taron sah zu Varga. Der Zwerg stand ruhig da, die Hände am Gürtel, und wirkte nicht wie einer, der eben etwas Ungeheuerliches gesagt hatte. Er wirkte wie einer, der einen Befehl weitergab, den er nicht geschrieben hatte, und dem nicht besonders gefiel, wie er klang.
+
+„Sagt Ihr das gern?“, fragte Brokk.
+
+Varga antwortete nicht sofort.
+
+„Ich sage, was im Befehl steht.“
+
+„Das steht im Befehl.“
+
+„Ja.“
+
+„Wer hat ihn gelesen?“
+
+„Der König hat ihn gesprochen.“
+
+„Und wer stand daneben?“
+
+Varga sah ihn lange an. Zwei alte Männer, dachte Taron, die einmal an derselben Furt gestanden hatten, und keiner von beiden würde als Erster sagen, was er dachte.
+
+„Niemand“, sagte Varga.
+
+Er sagte es diesmal anders. Nicht als Name, sondern als Auskunft: dass in einer Halle voller Zwerge niemand neben dem König gestanden hatte, weil der König darauf bestanden hatte, allein zu sprechen.
+
+Brokk hörte den Unterschied. Taron sah, wie er ihn hörte.
 
 Der Hauptmann antwortete erst nach einem langen Atemzug.
 
@@ -278,7 +448,25 @@ Varga trat dicht vor Brokk. „Ihr bringt den Jungen bis Sonnenuntergang zur alt
 
 „Das werden andere entscheiden.“
 
-Varga wandte sich ab. Sein Trupp zog weiter, langsam, geordnet, ohne Lied. Erst als die letzten grauen Mäntel hinter den Bäumen verschwunden waren, bewegte sich Brokk wieder.
+Varga wandte sich ab. Sein Trupp zog weiter, langsam, geordnet, ohne Lied.
+
+Der Läufer Torv blieb einen Moment länger stehen. Er sah nicht ins Bachbett. Er sah auf den Boden davor, auf das trockene Laub, auf die Stelle, an der Kummer gestanden hatte.
+
+Dann folgte er den anderen.
+
+Erst als die letzten grauen Mäntel hinter den Bäumen verschwunden waren, bewegte sich Brokk wieder.
+
+„Er hat es gesehen“, sagte Oswin.
+
+„Ja“, sagte Brokk.
+
+„Und gemeldet hat er es nicht.“
+
+„Noch nicht.“
+
+„Warum nicht?“
+
+Brokk sah dem Trupp nach. „Weil er zählt, was ihm Vorteil bringt, und noch nicht weiß, welche Zahl das ist.“
 
 Er kehrte zu den Steinen zurück.
 
@@ -300,7 +488,31 @@ Elva sagte: „Er hat immerhin fast sich selbst geworfen.“
 
 „Das glaube ich dir sofort.“
 
-Brokk sah nach Norden, wo Varga verschwunden war.
+Brokk sagte nichts dazu, was schlimmer war als jeder Vorwurf.
+
+Taron begriff es erst, als er den Hauptmann ansah. Brokk hatte im Bachbett gewartet, ob er unbemerkt bleiben konnte. Dann war ein Knie in trockenes Laub gebrochen, und danach hatte es nur noch eine Möglichkeit gegeben: aufstehen, hinausgehen und Varga ins Gesicht sagen, dass er den Menschenjungen bringe.
+
+„Er wusste vorher nicht, dass Ihr hier seid“, sagte Taron.
+
+„Nein.“
+
+„Und jetzt weiß es sein ganzer Trupp.“
+
+„Ja.“
+
+„Wegen mir.“
+
+Brokk sah ihn an. „Wegen einer Lederschlaufe.“
+
+„Das macht es nicht besser.“
+
+„Es macht es genauer.“ Brokk drehte den Stab in der Hand. „Ich hätte es ohnehin tun müssen. Nur später und an einem Ort, den ich gewählt hätte.“
+
+Oswin sagte trocken: „Das ist der ganze Unterschied zwischen einem Plan und einem Unglück.“
+
+„Ja“, sagte Brokk. „Der ganze.“
+
+Er sah nach Norden, wo Varga verschwunden war.
 
 „Wir gehen nicht zur Wachgrube“, sagte er.
 
@@ -346,6 +558,22 @@ Lorn wurde rot. Bei Zwergen wirkte das weniger wie Verlegenheit und mehr wie ein
 
 „Dann fängst du heute nicht damit an“, sagte Broda.
 
+Taron sah Lorn an. Der junge Zwerg hatte die Hände am Gürtel und stand sehr aufrecht, und daran erkannte man, dass er Angst hatte.
+
+„Wie lange bist du dabei?“, fragte Taron.
+
+„Zwei Jahre.“
+
+„Und deine Halle?“
+
+„Meine Mutter näht Riemen. Mein Bruder ist in der unteren Schmiede.“ Lorn sah zu Brokk und dann wieder weg. „Sie werden nicht erfahren, warum.“
+
+„Sie werden es erfahren“, sagte Senn. „Nur falsch.“
+
+„Deshalb bleiben wir zusammen“, sagte Broda. „Damit einer übrig ist, der es richtig erzählt.“
+
+Taron dachte an Waldkirch, an Albrecht und Malchior und daran, wie schnell dort aus einem Eimer Ziegenmilch eine Prophezeiung geworden war. Erzählen war offenbar überall dieselbe Waffe.
+
 Taron sah zu Elva. Sie lächelte nicht. Sie sah auf Senns zerbrochene Scheibe und auf Brokks Hand, die etwas zu fest am Stab lag.
 
 „Das kostet sie wirklich etwas“, sagte sie leise.
@@ -386,6 +614,52 @@ Taron dachte an den Erzähler, an seine Lügen, seine Ausflüchte, seine schlech
 
 „Vielleicht genügt heute.“
 
+„Was hofft Ihr?“, fragte Taron.
+
+Brokk antwortete nicht sofort. Er sah den Hang hinauf, dort, wo Varga verschwunden war, und dann auf seine eiserne Hand, als sei sie ein Gegenstand, der zufällig an seinem Arm hing.
+
+„Mein König hat in Hollbrand einen Menschen aus einem brennenden Stall getragen“, sagte er. „Er hat gefragt, ob das Kind atmet. Nicht, in welcher Sprache.“
+
+„Und dann?“
+
+„Dann hat er in Riedwacht den Zwergenschlüssel angefasst. Danach fragte er anderes.“
+
+Taron wusste nicht, was man darauf sagte, also sagte er das Falsche. „Ihr glaubt, er ist noch da drin.“
+
+„Ich glaube nichts. Ich habe gesehen, wie du mit deiner Stimme sprichst.“
+
+„Ich streite mit ihr.“
+
+„Ja“, sagte Brokk. „Genau das.“
+
+Er drehte den Stab, einmal, langsam.
+
+„Wenn ein Mensch mit so einem Wesen streiten kann, dann fehlt nicht der Streit. Dann fehlt jemand, der widerspricht.“
+
+„Und Ihr wollt widersprechen.“
+
+„Ich habe es versucht. Man hört einen Hauptmann anders als eine Stimme im Kopf.“
+
+Oswin sagte: „Das ist eine dünne Hoffnung.“
+
+„Ja.“
+
+„Sie könnte Euch umbringen.“
+
+„Ja.“
+
+„Ihr seid unangenehm einverstanden mit allem.“
+
+„Ich bin alt“, sagte Brokk. „Einverständnis ist billiger als Diskussion.“
+
+Der Erzähler sagte in Tarons Kopf: „Ich mag ihn nicht.“
+
+„Warum?“
+
+„Weil er recht hat und es an der falschen Person festmacht.“
+
+Taron behielt das für sich. Es war ein guter Tag für Dinge, die er für sich behielt.
+
 Oswin sah zu Brokks Zwergen. „Und eure Leute?“
 
 Brokk drehte sich zu ihnen.
@@ -411,6 +685,20 @@ Der Erzähler sagte: „Keine Sorge. Erfahrungsgemäß wird sie bald beschädigt
 Brokk hob den Stab und zeigte nach Süden, weg von der Wachgrube, tiefer ins Grenzland.
 
 „Dort liegt ein alter Pfad. Vor Waldkirch. Vor den neuen Karten. Wenn der Schutzschlüssel irgendwo zu finden ist, dann dort, wo die ersten Eide einander nicht mehr trauten.“
+
+„Was ist da?“, fragte Taron.
+
+„Steine, die älter sind als beide Reiche. Ein Weg, den keine Seite unterhält, weil beide behaupten, er gehöre der anderen.“
+
+„Das klingt nach einem Weg, auf dem man verhungert.“
+
+„Es ist ein Weg, auf dem niemand nach uns sucht.“
+
+„Wohnt dort jemand?“, fragte Elva.
+
+Brokk brauchte länger, als eine kurze Antwort gebraucht hätte.
+
+„Es wohnte dort jemand.“
 
 „Und Varga?“ fragte Elva.
 

@@ -8,3 +8,9 @@
 - Brokk erklaert, dass Taron wichtig ist, weil seine Stimme ihn noch widersprechen laesst. Er sieht darin eine gefaehrliche Hoffnung fuer Koenig Rugar.
 - Am Ende fuehrt Brokk die Gruppe auf einen alten Pfad tiefer ins Grenzland, Richtung Schutzschluessel.
 
+- Varga steigt ins Bachbett und mustert die "Beute": Taron ohne Fesseln, Oswin ohne abgenommenes Schwert, Elva ohne Messer. Oswin verweigert seine Zahl, Varga nennt seine eigene (vierhundertelf) und sagt, sie mache ihn nicht besser.
+- Elva antwortet auf Vargas Aufforderung, ihm einen Anlass zu geben, mit "Ich koche". Es funktioniert.
+- Doppelte Bedeutung von `Niemand`: Varga meint erst den Namen, dann die Auskunft, dass niemand neben dem sprechenden Koenig stand. Brokk hoert den Unterschied.
+- Der Laeufer Torv sieht die Spuren im Laub und meldet sie nicht sofort.
+- Brokk begruendet seine Hoffnung mit Rugar in Hollbrand und mit Riedwacht: Tarons Stimme laesst sich widersprechen, deshalb fehlt nicht der Streit, sondern jemand, der widerspricht.
+- Brokk musste sich zeigen, weil Tarons Knie ins Laub brach. Der Bruch waere sonst spaeter und an einem Ort seiner Wahl gekommen.
