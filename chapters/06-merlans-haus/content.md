@@ -186,7 +186,7 @@ Merlan sagte nichts.
 
 „Dinge, die zischen.“
 
-„Ja..“
+„Ja.“
 
 „Also könntet Ihr mitkommen.“
 

@@ -524,7 +524,7 @@ Taron wusste es, weil Menschen, die schliefen, nicht so kontrolliert atmeten.
 
 Taron drehte den Kopf zur Wand. Der Schlüssel war kalt auf seiner Brust.
 
-„Glaubt Ihr, Waldkirch sucht mich auch?", Er fuht fort „Ich dachte, wenn ich ihn habe, kann ich zurück und sagen: Da. Bitte. Fertig.“
+„Glaubt Ihr, Waldkirch sucht mich auch?“ Er fuhr fort: „Ich dachte, wenn ich ihn habe, kann ich zurück und sagen: Da. Bitte. Fertig.“
 
 „Nein.“
 
@@ -538,7 +538,7 @@ Oswin bewegte sich im anderen Bett, sagte aber nichts.
 
 „Ja“, sagte der Erzähler.
 
-Endlich. Ein klares Ja.Taron hatte sich danach gesehnt, bis es da war.
+Endlich. Ein klares Ja. Taron hatte sich danach gesehnt, bis es da war.
 
 
 „Warum?“

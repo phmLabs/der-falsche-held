@@ -214,7 +214,7 @@ Rugar sah ihn an.
 
 „Der Schlüssel ist nicht mehr dort.“
 
-Brokk stellte keine Frage.Manchmal war die gefährlichste Frage die, auf die man schon eine Antwort fürchtete.
+Brokk stellte keine Frage. Manchmal war die gefährlichste Frage die, auf die man schon eine Antwort fürchtete.
 
 Rugar drehte den Kopf leicht zur Seite. Nur ein wenig.
 

@@ -856,13 +856,13 @@ Oswin packte ihn und zog ihn weiter. Sie rollten hinter einen Pfeilerrest. Kling
 
 „Ich weiß.“
 
-„Später war der Ort, für dem du sie aufheben wolltest.“
+„Später war der Ort, für den du sie aufheben wolltest.“
 
 „Ich weiß!“
 
 Taron steckte die Rauchkugel wieder weg.
 
-Oswin sah ihn an, und in diesem Blick lag eine ganze Rede. Eine sehr kurze Rede, die hauptsächlich aus dem Wort "warum" bestand und vermutlich mit mehreren Ausrufezeichen endete.
+Oswin sah ihn an, und in diesem Blick lag eine ganze Rede. Eine sehr kurze Rede, die hauptsächlich aus dem Wort „warum“ bestand und vermutlich mit mehreren Ausrufezeichen endete.
 
 Taron hob den Menschenschlüssel. „Wenn sie Rauch sehen, schießen sie trotzdem. Wenn wir ins Wasser gehen, vielleicht nicht.“
 
@@ -948,7 +948,7 @@ Taron sah auf.
 
 „Vor dir.“
 
-"Mit wem?"
+„Mit wem?“
 
 Der Wind strich durch die Fichten. Oswin sah zwischen Taron und dem leeren Raum neben ihm hin und her, als hätte er beschlossen, Fragen vorerst für Menschen mit weniger Blutverlust aufzuheben.
 

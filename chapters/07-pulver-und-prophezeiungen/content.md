@@ -36,7 +36,7 @@ Merlan legte die Feder beiseite und tippte auf die drei Stellen in der ältesten
 
 Merlan nahm seine Brille ab, klappte sie zusammen, legte sie vor sich auf den Tisch und sah Taron an.
 
-Das war unangenehm. Mit Brille sah Merlan aus wie ein Gelehrter. Ohne Brille sah er aus wie ein Gelehrter, der bereits wusste, wo man begraben sei wird.
+Das war unangenehm. Mit Brille sah Merlan aus wie ein Gelehrter. Ohne Brille sah er aus wie ein Gelehrter, der bereits wusste, wo man begraben sein wird.
 
 „Eine Prophezeiung“, sagte er, „ist kein Auftrag aus der Vorratskammer.“
 
@@ -322,7 +322,7 @@ Als die Sonne tief hing, führte Oswin sie von der Straße weg zu einem kleinen 
 
 „Warum?“, fragte Taron, obwohl er es bereits wusste.
 
-"Weil wir es vermeiden möchten, jemandem zu sagen, dass wir kommen."
+„Weil wir es vermeiden möchten, jemandem zu sagen, dass wir kommen.“
 
 Sie entzündeten eine schmale, lange Flamme in einer Mulde zwischen Steinen, die kaum höher als Oswins Hand wurde. Der Rauch zog flach davon. Sie aßen Brot und hartes Fleisch, und Taron trank Wasser mit dem Geschmack des Lederschlauches.
 
@@ -394,7 +394,7 @@ Taron zählte innerlich bis fünf, dann bis sieben. „Es gibt eine Kapelle in W
 
 Oswin nickte. „Er hat nicht ganz Unrecht.“
 
-Als der Nachmittag tiefer wurde, erzählte Oswin, ohne dass Taron gefragt hatte. „Ich war dreizehn, als ich Hohenklamm zum ersten Mal verließ“, sagte er. „Ich dachte, die Welt sei größer und würde dadurch netter. Sie war nur größer. Ich habe gelernt, dass das eine mit dem anderen nichts zu tun hat. Ich bin zu einem Ritter gekommen, der aussah, als hätten Gebirge beschlossen, laufen zu lernen. „Er hat mir beigebracht, keine Abdrücke zu hinterlassen, wenn ich sie nicht will. Und hinzusehen, wenn etwas schlimmes passiert. Nicht weil es edel ist. Weil Wegsehen Leute tötet.“
+Als der Nachmittag tiefer wurde, erzählte Oswin, ohne dass Taron gefragt hatte. „Ich war dreizehn, als ich Hohenklamm zum ersten Mal verließ“, sagte er. „Ich dachte, die Welt sei größer und würde dadurch netter. Sie war nur größer. Ich habe gelernt, dass das eine mit dem anderen nichts zu tun hat. Ich bin zu einem Ritter gekommen, der aussah, als hätten Gebirge beschlossen, laufen zu lernen. Er hat mir beigebracht, keine Abdrücke zu hinterlassen, wenn ich sie nicht will. Und hinzusehen, wenn etwas Schlimmes passiert. Nicht weil es edel ist. Weil Wegsehen Leute tötet.“
 
 Gegen Abend wurde das Licht wieder flach.
 
