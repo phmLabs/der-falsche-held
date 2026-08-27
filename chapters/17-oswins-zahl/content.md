@@ -418,7 +418,7 @@ Eidgrund.
 
 Taron wusste es, bevor Brokk es sagte.
 
-Der Menschenschlüssel lag kalt auf seiner Brust.
+Der Menschenschlüssel lag auf seiner Brust und rührte sich nicht.
 
 Aus dem Nebel kam ein zweiter Ruf. Diesmal eine Antwort von rechts. Varga hatte sie nicht nur eingeholt. Er teilte seine Leute.
 

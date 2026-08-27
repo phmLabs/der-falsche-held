@@ -8,9 +8,7 @@ Das war fair.
 
 Oswin ritt voraus, nicht weit, aber weit genug, um Straße und Gräben zu prüfen. Er war seit dem Aufwachen stiller als sonst. Nicht die Art von still, mit der er früher ganze Gespräche durch bloße Anwesenheit überstanden hatte. Eine andere. Wach. Rechnend.
 
-Der Erzähler war ebenfalls wach.
-
-Das war nicht dasselbe wie hilfreich.
+Der Erzähler war ebenfalls wach. Das war nicht dasselbe wie hilfreich.
 
 „Du gehst also zurück“, sagte er.
 
@@ -20,7 +18,7 @@ Das war nicht dasselbe wie hilfreich.
 
 „Das ist ungefähr, wie Könige regieren.“
 
-Taron sah nach Osten. Der Himmel wurde dort heller, ein graues Licht über Feldern, Hecken und alten Wegsteinen. Waldkirch lag noch einen halben Tagesritt entfernt. Nah genug, dass er sich bereits beobachtet fühlte. Weit genug, dass er noch umdrehen konnte.
+Im Osten wurde der Himmel heller. Waldkirch lag noch einen halben Tagesritt entfernt. Nah genug, dass er sich bereits beobachtet fühlte. Weit genug, dass er noch umdrehen konnte.
 
 Er drehte nicht um.
 
@@ -48,7 +46,7 @@ Kummer blieb stehen, als habe er seinen Namen und die Kritik verstanden. Dann gi
 
 Gegen Mittag erreichten sie die äußeren Höfe von Waldkirch.
 
-Nicht die Burg. Noch nicht. Erst die Siedlungen davor, die Scheunen, Werkstätten, Gärten und kleinen Häuser, die sich an Waldkirch hielten wie Kinder an einen Erwachsenen, der selbst nicht mehr ganz sicher stand. Hier hatte Taron früher Heu geliefert, Zäune geflickt, Wasser getragen und einmal drei Stunden lang ein entlaufenes Huhn verfolgt, das am Ende freiwillig zurückgekommen war und dafür mehr Würde behalten hatte als er.
+Nicht die Burg. Noch nicht. Erst die Siedlungen davor, die Scheunen, Werkstätten, Gärten und kleinen Häuser, die sich an Waldkirch hielten wie Kinder an einen Erwachsenen, der selbst nicht mehr ganz sicher stand. Hier hatte Taron früher einmal drei Stunden lang ein entlaufenes Huhn verfolgt, das am Ende freiwillig zurückgekommen war und dafür mehr Würde behalten hatte als er.
 
 Heute hingen an mehreren Türen kleine Streifen aus rotem Stoff.
 
@@ -76,39 +74,21 @@ Taron schloss die Augen.
 
 „Das ging schnell.“
 
-„Ruhm ist ein schneller Läufer“, sagte der Erzähler. „Meistens barfuß und schlecht erzogen.“
+„Ruhm ist ein schneller Läufer“, sagte der Erzähler. „Oft zu schnell.“
 
 Oswin lenkte Sternfall neben Taron. „Jetzt nicht mehr leise.“
 
 „Das war auch nicht mein bester Bereich.“
 
-Elva zog die Kapuze tiefer. „Ich gehe nicht mit hinein.“
+Elva zog die Kapuze tiefer. „Ich gehe nicht mit hinein. Wenn sie mich sehen, bin ich nicht mehr nützlich.“
 
 Taron sah sie an.
-
-„Ich weiß.“
-
-„Wenn sie mich sehen, bin ich nicht mehr nützlich.“
-
-„Du bist nicht nützlich.“
-
-Sie sah ihn an.
-
-„Ich meine, du bist natürlich nützlich, aber nicht nur. Also...“
-
-„Rede weniger.“
-
-„Ja.“
 
 Elva drückte ihm das abgeschriebene Pergament in die Hand. „Falls Malchior behauptet, du hättest falsch verstanden.“
 
 „Das wird er.“
 
 „Dann halte es ihm unter die Nase.“
-
-„Das wirkt unhöflich.“
-
-„Gut.“
 
 Sie trat näher. Für einen kurzen Moment war der Lärm der Höfe weiter weg.
 
@@ -125,10 +105,6 @@ Keiner kam.
 „Ich weiß nicht, ob ich das kann.“
 
 „Doch“, sagte Elva. „Du hast dein Leben lang so getan, als wärst du weniger, als du bist.“
-
-Das war unfair.
-
-Nicht weil es falsch war.
 
 Elva ging, bevor Taron antworten konnte. Sie verschwand zwischen einem Holzschuppen und einer Mauer, auf einem Pfad, den Taron erst sah, als sie ihn bereits benutzt hatte.
 
@@ -150,7 +126,7 @@ Sie ritten weiter.
 
 Bis zum Burgtor hatten sich zwanzig Menschen versammelt. Dann fünfzig. Dann mehr. Jemand läutete eine Glocke, zuerst eine kleine am äußeren Wachhaus, dann antwortete eine größere aus der Burg. Das Läuten lief über Waldkirch wie ein Befehl, der vorgab, Freude zu sein.
 
-Taron sah Gesichter. Stallknechte, Küchenmädchen, Waffenjungen, alte Männer, Kinder, eine Frau, die weinte, obwohl sie ihn vermutlich nicht kannte. Einige verbeugten sich. Andere streckten die Hände aus, als könne man an seinem Mantel etwas von der Prophezeiung abreiben.
+Vorn in der Menge weinte eine Frau, obwohl sie ihn vermutlich nicht kannte. Einige verbeugten sich. Andere streckten die Hände aus, als könne man an seinem Mantel etwas von der Prophezeiung abreiben.
 
 Er hätte gern gerufen, dass sie damit aufhören sollten.
 
@@ -194,7 +170,7 @@ Das half dem Vogt beim Blinzeln.
 
 Sie führten ihn durch den Hof.
 
-Alles war anders und gleich. Die Ställe rochen nach Stroh und Pferd. Der Brunnen stand schief wie immer. Eine Stelle im Pflaster fehlte noch immer, obwohl Taron vor drei Monaten gesagt hatte, jemand werde sich dort den Fuß brechen. Gleichzeitig hingen rote Stoffstreifen an Fenstern, Wachen standen an Durchgängen, und vor der Kapelle brannten Kerzen in einer Zahl, die Taron für brandgefährlich und theologisch übertrieben hielt.
+Alles war anders und gleich. Die Ställe rochen nach Stroh und Pferd. Der Brunnen stand schief wie immer. Eine Stelle im Pflaster fehlte, obwohl Taron vor drei Monaten gesagt hatte, jemand werde sich dort den Fuß brechen. Gleichzeitig hingen rote Stoffstreifen an Fenstern, Wachen standen an Durchgängen, und vor der Kapelle brannten Kerzen in einer Zahl, die Taron für brandgefährlich und theologisch übertrieben hielt.
 
 Der Vogt sah im Gehen zweimal auf Tarons Füße, als hoffe er, das Problem habe sich beim dritten Blick von selbst erledigt. „Wir finden Euch Stiefel“, sagte er. „Für den Auftritt.“
 
@@ -232,7 +208,7 @@ Da war es. Jetzt.
 
 Oswins Hand bewegte sich kaum sichtbar näher zum Schwert.
 
-Taron spürte den Schlüssel unter dem Hemd. Kalt. Schwer. Wartend.
+Taron spürte den Schlüssel unter dem Hemd. Schwer. Wartend.
 
 Er atmete ein.
 
@@ -564,7 +540,7 @@ Sie betrachtete es. „Das ist echt.“
 
 Taron sah zurück zur Burg.
 
-Die Glocken hatten aufgehört. Aber rote Stoffstreifen hingen noch immer an den Fenstern. Menschen bewegten sich im Hof, klein aus der Entfernung. Irgendwo dort drin glaubten sie, er sei mutig.
+Die Glocken hatten aufgehört. Aus der Entfernung war die Burg wieder nur eine Burg, mit einem Loch im Pflaster, das niemand flicken würde. Dort drin glaubten sie, er sei mutig.
 
 Das war schwerer zu tragen als der Schlüssel.
 
