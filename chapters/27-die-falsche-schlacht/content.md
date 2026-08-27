@@ -322,7 +322,7 @@ Dann schlug irgendwo ein Stein ein, und ein Soldat schrie. Die Linie brach. Ein 
 
 „Dann machen wir eins.“
 
-Oswin schlug Vargas Axt nicht weg. Er blockte sie nur, ließ sie seitlich abgleiten und schob Varga mit der Schulter zurück. Varga hätte ihn dafür töteten können, wenn Brokk nicht den Stab qürlegte.
+Oswin schlug Vargas Axt nicht weg. Er blockte sie nur, ließ sie seitlich abgleiten und schob Varga mit der Schulter zurück. Varga hätte ihn dafür töteten können, wenn Brokk nicht den Stab querlegte.
 
 Drei Atemzüge hielten sie einander.
 

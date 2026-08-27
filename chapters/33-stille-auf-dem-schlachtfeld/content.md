@@ -326,6 +326,8 @@ Elva half, den Jungen hochzubringen. Hinter ihnen fluchte jemand, trat ins Leere
 
 Sie erreichten die Treppe.
 
+Merlan sammelte auf dem Weg die Schlüssel ein und gab sie nicht einem König, sondern Elva. Sie nahm sie wortlos und band den Beutel so fest zu, als könne Knotenarbeit alte Mächte beeindrucken.
+
 Merlan und Elva zogen Rugar zwischen sich. Der Zwergenkönig war bewusstlos, schwer und ungewöhnlich unkooperativ für jemanden, dessen Rettung gerade wichtig war.
 
 „Ich kann ihn nicht halten“, keuchte Merlan.
@@ -341,6 +343,10 @@ Taron griff zu. Rugar sackte gegen ihn, und für einen Augenblick trug der falsc
 Oben war die Schlacht nicht besser. Der Rauch quoll aus dem Tor in den Burghof und machte aus der falschen Schlacht eine blinde. Das rettete Leben, was niemand sofort bemerkte, weil gerettete Leben oft mit Husten beschäftigt sind.
 
 Im Hof hatte der Rauch eine andere Wirkung. Dort gab es Wind. Er zog die Wolke auseinander, schob sie zwischen Menschen und Zwerge, deckte mal die einen, mal die anderen. Wer eben noch sicher gewesen war, einen Feind vor sich zu haben, sah plötzlich nur noch Umrisse. Das machte einige vorsichtiger. Andere gefährlicher.
+
+Taron dachte, dass Wahrheit vielleicht kein Licht war.
+
+Vielleicht war sie eher Rauch: lästig, unordentlich, schlecht für die Augen, aber manchmal genau dicht genug, um den nächsten Schlag zu verhindern.
 
 Eine Axt kam aus dem Rauch. Oswin schlug sie nicht zurück, sondern fing den Schaft mit der Parierstange und drehte ihn nach unten. „Waffe runter!“
 

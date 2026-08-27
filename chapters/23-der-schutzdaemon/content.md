@@ -42,7 +42,7 @@ Merlan nutzte einen flachen Stein am Wegrand als Tafel und zeichnete mit Kreide 
 
 „Vermutlich tat man es. Erste Seiten gehen gern verloren, weil Leute sie häufig benutzen.“
 
-Der Erzähler sagte: „Ich fühle mich von dieser Qüllenkritik verfolgt.“
+Der Erzähler sagte: „Ich fühle mich von dieser Quellenkritik verfolgt.“
 
 Merlan tippte auf den ersten Kreis. „Wenn der Auftrag lautet: Schütze diesen Menschen, dann muss der Dämon lernen, was dieser Mensch ist. Körper, Wille, Angst, Gewissen. Das ist schwierig, aber möglich.“
 

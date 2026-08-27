@@ -448,9 +448,9 @@ Lorn hob das Kinn. „Ich bin tapfer.“
 
 Brokk ging zur Waffenkammer.
 
-Sie lag neben der unteren Schmiede, nicht weil Waffen dort hingehörten, sondern weil Zwerge gern kurze Wege zwischen Herstellung und Beschwerde hatten. Hauptmann Varga stand bereits dort und prüfte eine Reihe kurzer Äxte. Sie war älter als Brokk, breiter in den Schultern und hatte ein Gesicht, das nur dann freundlich aussah, wenn jemand anders in Schwierigkeiten war.
+Sie lag neben der unteren Schmiede, nicht weil Waffen dort hingehörten, sondern weil Zwerge gern kurze Wege zwischen Herstellung und Beschwerde hatten. Hauptmann Varga stand bereits dort und prüfte eine Reihe kurzer Äxte. Er war älter als Brokk, breiter in den Schultern und hatte ein Gesicht, das nur dann freundlich aussah, wenn jemand anders in Schwierigkeiten war.
 
-„Du gehst ohne Banner“, sagte sie.
+„Du gehst ohne Banner“, sagte er.
 
 „Ja.“
 
@@ -460,7 +460,7 @@ Varga reichte ihm eine Axt. Brokk nahm sie, prüfte das Gewicht, gab sie zurück
 
 „Die erste war zum Beeindrucken.“
 
-Varga schnaubte. Bei ihr war das fast ein Lachen.
+Varga schnaubte. Bei ihm war das fast ein Lachen.
 
 Lorn stand hinter Brokk und versuchte, keine Fragen zu stellen. Es gelang ihm schlecht, aber immerhin lautlos.
 
@@ -506,11 +506,11 @@ Für einen Moment standen sie schweigend zwischen Waffen, Leder und Ölgeruch.
 
 Dann sagte Varga: „Er war früher anders.“
 
-Brokk sah nicht zu ihr.
+Brokk sah nicht zu ihm.
 
 „Ja.“
 
-Das mochte er an Varga. Sie sprach selten genug, sodass man ihr zuhören musste.
+Das mochte er an Varga. Er sprach selten genug, sodass man ihm zuhören musste.
 
 Eine Stunde später standen sechs Zwerge im Osttor von Karndorn.
 
@@ -536,7 +536,7 @@ Nur graue Mäntel, dunkle Helme und der Auftrag, den Menschenschlüssel zu finde
 
 Am Tor standen ein paar Zwerge. Nicht viele. Zu Aufbrüchen ohne Banner kamen selten viele. Vielleicht war auch das früher anders gewesen.
 
-Haldrin war da.Varga auch.
+Haldrin war da. Varga auch.
 
 König Rugar nicht.
 

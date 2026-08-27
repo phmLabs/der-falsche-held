@@ -98,6 +98,10 @@ Und verstand falsch.
 
 Taron sah es in Vargas Augen entstehen. Nicht Dummheit. Nicht einmal Hass zuerst. Schmerz. Ein König am Boden, Brokk neben Menschen, Schlüssel in einer Kammer, die nach Verrat roch. Der andere hatte nicht mehr viel tun müssen. Er hatte nur genug Wirklichkeit zurückgelassen, damit jeder die schlimmste Lesart selbst baute.
 
+Varga war kein Narr. Das machte ihn gefährlicher. Ein Narr hätte gebrüllt und zugeschlagen. Varga sah, ordnete, entschied. Nur hatte der andere die Ordnung bereits vorbereitet.
+
+Er musste nicht lange nach einer falschen Erklärung suchen. Sie stand bereit und trug alte Farben.
+
 Taron sah Bilder aufblitzen.
 
 Nicht als Vision mit höflicher Umrandung. Eher als Risse in der Luft. Riedwacht vor zehn Jahren. Ein Zwergenschlüssel im Staub. Rugar, der ihn berührte. Eine Stimme, die ihm sagte, Menschen hätten gestohlen, was Karndorn schützen sollte. Waldkircher Berichte, in denen ein Rückzug wie ein Angriff klang. Menschliche Priester, die eine Lücke in der Prophezeiung mit Hoffnung füllten. Zwergische Schreiber, die denselben Fleck mit Rache lasen.
@@ -135,6 +139,8 @@ Varga sah auf den König am Boden. „Noch.“
 „Ich sehe nur Menschen.“
 
 Das war das Problem in vier Worten. Der andere hatte keinen neuen Hass erschaffen müssen. Er hatte nur dafür gesorgt, dass jeder Blick an der falschen Stelle hängen blieb.
+
+Das war sein letztes Geschenk: nicht Unsichtbarkeit, sondern Deutung. Jeder Blick glitt von ihm ab und fand stattdessen den Feind, den er ohnehin erwartet hatte.
 
 Ein menschlicher Soldat drängte hinter Varga in die Kammer und rief: „Die Zwerge sind unten!“ Ein Zwerg hinter ihm rief: „Sie haben den König!“ Beide sagten die Wahrheit. Beide machten sie dadurch fast unbrauchbar.
 
@@ -367,6 +373,10 @@ Der Erzähler wurde so kalt, dass Taron ihn kaum noch spürte.
 „Später“, sagte der Erzähler noch einmal, und diesmal klang es nicht wie Ausweichen, sondern wie Blutverlust.
 
 Der Dämon trat durch die Schwelle.
+
+Keine Explosion. Kein Triumph. Nur ein Verlust an Druck, als habe jemand eine schwere Tür geöffnet und die falsche Luft hineingelassen.
+
+Zurück blieb kein Frieden, sondern die Stelle, an der alle ihn hätten sehen müssen und es nicht getan hatten.
 
 Der Erzähler war kaum mehr als ein Flüstern. „Er kann jetzt gehen, wohin alte Eide dünn sind.“
 

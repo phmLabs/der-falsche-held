@@ -274,7 +274,7 @@ Aber er sagte: „Eins.“
 
 Leise. Ohne Zeugen.
 
-Nicht, um stolz zu sein. Nicht, um mutig zu wirken. Nicht einmal, um sich zu bestrafen, obwohl Strafe später ein beqümer Name dafür wurde.
+Nicht, um stolz zu sein. Nicht, um mutig zu wirken. Nicht einmal, um sich zu bestrafen, obwohl Strafe später ein bequemer Name dafür wurde.
 
 Er sagte es, weil der Zwerg sonst in „viele“ verschwunden wäre.
 

@@ -86,7 +86,7 @@ Auf dem Weg oberhalb erschien ein Zwergentrupp.
 
 Es waren nicht Brokks Leute. Das erkannte Taron an der Art, wie Brokk sich veränderte. Er wurde nicht größer, nicht lauter, aber alles an ihm ordnete sich. Die Schultern. Die Hand am Stab. Der Blick. Ein Hauptmann, der sich daran erinnerte, dass er noch immer Hauptmann war, auch wenn er gerade etwas tat, das jeder saubere Bericht Verrat nennen würde.
 
-Der Trupp trug graue Mäntel wie Brokks Zwerge, aber an ihren Gürteln hingen schwarze Kordeln. An der Spitze ging ein schmaler Zwerg mit einem blanken Helm und einem Gesicht, das noch nie aus Versehen freundlich gewesen war.
+Der Trupp trug graue Mäntel wie Brokks Zwerge, aber an ihren Gürteln hingen schwarze Kordeln. An der Spitze ging ein breitschultriger Zwerg mit einem blanken Helm und einem Gesicht, das noch nie aus Versehen freundlich gewesen war.
 
 „Varga“, sagte Brokk leise.
 

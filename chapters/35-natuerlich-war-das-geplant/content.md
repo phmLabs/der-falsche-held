@@ -98,7 +98,7 @@ Taron zog die Knie näher an. „Wo dann?“
 
 „Ich stelle seit Tagen Fragen.“
 
-„Ja. Eine deiner wenigen konseqünten Tugenden.“
+„Ja. Eine deiner wenigen konsequenten Tugenden.“
 
 Das klang fast normal. Fast.
 

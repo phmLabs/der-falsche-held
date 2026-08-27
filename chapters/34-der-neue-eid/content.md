@@ -1,6 +1,6 @@
 König Rugar erwachte im Rauch.
 
-Das war kein würdiger Vorgang. Er würgte, schlug blind um sich und traf Merlan am Knie.
+Das war kein würdiger Vorgang. Er würgte, schlug blind um sich und traf Merlan am Knie. Merlan nahm es mit der Fassung eines Mannes hin, der seit Jahren von alten Texten misshandelt wurde und nun nur eine neue Quellengattung kennenlernte.
 
 „Rugar“, sagte Brokk.
 
@@ -35,6 +35,12 @@ Rugar sah die Waffen.
 Dann den Hof.
 
 Dann Waldkirch.
+
+Der Erzähler sagte kaum hörbar: „Jetzt entscheidet er, ob er König ist oder nur leer.“
+
+„Und wenn er leer ist?“
+
+„Dann füllt ihn die nächste Stimme.“
 
 „Was habe ich getan?“, fragte er.
 
@@ -134,7 +140,17 @@ König Albrecht trat aus dem Rauch, rußverschmiert und ohne jeden königlichen 
 
 Albrecht hatte Blut am Ärmel. Nicht sein eigenes, soweit Taron sah. Der fremde Ursprung machte den Fleck nur schwerer. Der König war von zwei Rittern begleitet, die sofort die Schilde hoben, als sie Rugar stehen sahen. Hinter ihnen drängten Waldkircher Soldaten, einige kaum älter als Jost von der Backstube.
 
-„Majestät“, sagte Malchior hinter ihm, „Vorsicht.“
+„Majestät“, sagte Malchior hinter ihm. „Vorsicht. Dies kann eine List sein.“
+
+Elva sah ihn an. „Alles kann eine List sein, wenn man feige genug liest.“
+
+Malchior sah sie an, als habe eine Pfanne gesprochen.
+
+„Das Küchenmädchen“, sagte er.
+
+„Elva“, sagte Taron.
+
+Es war nur ihr Name. Aber er blieb im Hof stehen.
 
 Albrecht sah auf die gesenkten Zwergenwaffen. Dann auf Taron.
 
@@ -148,11 +164,27 @@ Taron hoffte, dass sein Gesicht Nein sagte.
 
 „Nein. Ich empfehle ihn sehr dringend, bevor alle Beteiligten beweisen, dass sie aus den letzten zehn Minuten nichts gelernt haben.“
 
+„Auf wessen Befehl?“
+
+Taron sah zu Rugar.
+
+Rugar sah zu Albrecht.
+
+Der Rauch zwischen ihnen war dünner geworden, aber noch dicht genug, dass beide Könige nicht wie Bilder wirkten. Sie wirkten wie Männer, die zu wenig geschlafen, zu viel befohlen und gerade erst gemerkt hatten, dass die Welt nicht verpflichtet war, ihre Fehler feierlich zu sortieren.
+
+„Auf meinen“, sagte Rugar.
+
+Albrecht griff an den Griff seines Schwertes.
+
+Der Hof hielt den Atem an.
+
+„Und auf keinen“, sagte Taron schnell. „Weil vielleicht einmal reicht, wenn Leute aufhören, nur wegen Befehlen etwas zu tun.“
+
 Elva trat neben ihn. „Die Zwerge senken die Waffen.“
 
 Albrecht sah es. Sein Gesicht arbeitete. Hinter ihm standen seine Ritter, hungrige Männer aus der Stadt, Jungen mit Speeren, die zu lang für sie waren.
 
-Malchior kam hustend aus dem Tor. Seine Abschrift war grau vom Rauch.
+Malchior hob die Abschrift. Sie war grau vom Rauch.
 
 „Majestät, die Prophezeiung-“
 
@@ -179,6 +211,18 @@ Das war nicht Vergebung. Aber es war ein Anfang von Aufsicht.
 Albrecht hob die Hand.
 
 „Waffen senken.“
+
+Rugar senkte den Hammer weiter. Diesmal sahen es alle.
+
+„Ich hörte eine Stimme“, sagte er. „Sie klang wie Schutz. Sie machte aus jeder Angst einen Befehl. Wenn ich heute noch König bin, dann beginne ich damit, diesem Befehl zu widersprechen.“
+
+Varga starrte ihn an.
+
+Brokk schloss die Augen.
+
+Albrecht sagte nichts.
+
+Und weil er nichts sagte, senkte ein zweiter Bogenschütze auf der Mauer den Bogen.
 
 Nicht alle gehorchten sofort. Aber genug. Und genug war manchmal der schmale Steg, über den eine ganze Zukunft musste.
 
