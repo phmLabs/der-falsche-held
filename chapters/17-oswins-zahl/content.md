@@ -2,7 +2,7 @@ Der Weg nach Eidgrund war keiner.
 
 Er war eine Reihe von schlechten Vorschlägen, die das Gelände nacheinander machte. Erst ein Bachbett, das zu viel Wasser führte, um ein Pfad zu sein. Dann ein Hang, der unter nassem Laub verschwand. Danach eine schmale Linie zwischen Dornsträuchern, die vielleicht einmal von Menschen benutzt worden war, bevor Menschen vernünftigere Gewohnheiten entwickelten oder starben.
 
-Taron setzte einen Fuß vor den anderen und versuchte, seine Zehen zu spüren. Das gelang ihm nicht. Er hielt es für möglich, dass seine Zehen inzwischen eigene politische Entscheidungen getroffen hatten und sich von ihm trennten.
+Taron setzte einen Fuß vor den anderen und versuchte, seine Zehen zu spüren. Das gelang ihm nicht. Er hielt es für möglich, dass seine Zehen inzwischen eigene politische Entscheidungen getroffen hatten und sich von ihm trennten. Der linke Stiefel war ihnen darin voraus. Er hatte von Anfang an einem anderen Mann gehört, war eine Handbreit zu groß und nahm bei jedem Schritt Wasser auf, als hätte er sonst nichts zu tun.
 
 Elva ging vor ihm. Sie hatte den Saum ihres Kleides hochgebunden, ohne dabei auch nur den Versuch zu machen, sittsam auszusehen. Sittsamkeit war in diesem Wetter ein Konzept für Leute mit Dächern.
 

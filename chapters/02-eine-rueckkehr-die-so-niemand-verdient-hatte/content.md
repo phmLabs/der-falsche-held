@@ -270,7 +270,7 @@ Das lag nicht daran, dass die Burg gut vorbereitet war. Sie war im Gegenteil sch
 
 Taron betrachtete den Haufen auf dem Tisch.
 
-Es war ein grüner Waffenrock, dessen Wappen entfernt worden war, allerdings nicht vollständig. Darunter schimmerte noch der Umriss eines springenden Hirsches, der nun aussah, als habe er in einem Streit mit einer Waschfrau verloren. Dazu kamen eine Lederrüstung mit einer Delle über dem Bauch, ein Paar Handschuhe in leicht verschiedenen Brauntönen, ein Gürtel mit zu vielen Löchern und ein Helm, der vermutlich einmal sehr teuer gewesen war, bevor jemand mit einem Streitkolben anderer Meinung gewesen war.
+Es war ein grüner Waffenrock, dessen Wappen entfernt worden war, allerdings nicht vollständig. Darunter schimmerte noch der Umriss eines springenden Hirsches, der nun aussah, als habe er in einem Streit mit einer Waschfrau verloren. Dazu kamen eine Lederrüstung mit einer Delle über dem Bauch, ein Paar Handschuhe in leicht verschiedenen Brauntönen, ein Gürtel mit zu vielen Löchern, ein einzelner linker Stiefel, der erkennbar zu einem anderen Paar gehört hatte und eine Handbreit größer war als Tarons rechter, und ein Helm, der vermutlich einmal sehr teuer gewesen war, bevor jemand mit einem Streitkolben anderer Meinung gewesen war.
 
 „Das ist das Beste?“, fragte Taron.
 

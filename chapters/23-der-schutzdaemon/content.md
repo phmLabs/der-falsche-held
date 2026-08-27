@@ -340,6 +340,16 @@ Der Erzähler sagte: „Arven schrieb wenig. Er handelte zu viel.“
 
 „Es ist einer. Und ein Lob. Die meisten Menschen bestehen aus unordentlichen Mischungen.“
 
+Taron sah an sich hinunter. Der Mantel stand ihm an den Schultern noch immer ab.
+
+„Er war dir zu groß“, sagte der Erzähler.
+
+„Deshalb genau richtig. Hat Marta gesagt.“
+
+„Marta hat es nur ausgerichtet.“ Eine Pause. „Ihm hat er gepasst.“
+
+Taron verstand nicht sofort. Dann sah er auf den Streifen in seiner Hand und verstand doch.
+
 Taron strich mit dem Daumen neben die Schrift, ohne sie zu berühren. „Warum hat er dich am Ende nicht mehr sicher vertraut?“
 
 Der Erzähler blieb lange still.

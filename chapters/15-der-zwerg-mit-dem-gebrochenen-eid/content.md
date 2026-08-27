@@ -84,6 +84,12 @@ Brokk saß auf einem Stein am Rand des Lagers. Über ihm standen Fichten, dahint
 
 Taron saß mit dem Rücken an Kummers Sattel und versuchte, nicht einzuschlafen. Elva hatte sich in seinen Mantel gewickelt, weil ihrer noch feucht war. Sie hatte ihn nicht gefragt. Taron hatte nicht widersprochen. Das fühlte sich beunruhigend erwachsen an.
 
+„Der ist zu groß“, sagte Elva irgendwann in den Kragen hinein.
+
+„Deshalb genau richtig. Hat mir jemand ausrichten lassen.“
+
+Elva öffnete ein Auge, entschied, dass sie dafür zu müde war, und schloss es wieder.
+
 Nach einer Weile sagte sie, ohne die Augen zu öffnen: „Du sitzt schief.“
 
 „Ich sitze so, dass ich den Hang sehe.“

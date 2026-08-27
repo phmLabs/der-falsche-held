@@ -1,6 +1,6 @@
 Grauwehr lag noch im Dunkeln, als sie aufbrachen.
 
-Das war Absicht. Taron hatte in den letzten Tagen gelernt, dass Menschen weniger Fragen stellten, wenn sie noch nicht gefrühstückt hatten. Leider galt das nur für vernünftige Menschen. Torwachen, Priester, Wirte und Leute mit Gerüchten waren von dieser Regel offenbar ausgenommen.
+Das war Absicht. Taron hatte in den letzten Tagen gelernt, dass Menschen weniger Fragen stellten, wenn sie noch nicht gefrühstückt hatten. Leider galt das nur für vernünftige Menschen. Torwachen, Priester, Wirte, Stimmen im Kopf und Leute mit Gerüchten waren von dieser Regel offenbar ausgenommen.
 
 Elva ging neben Kummer her und zog ihren zu großen Mantel enger um sich. Sie hatte darauf bestanden, nicht im Sattel zu sitzen, weil sie nicht wollte, dass jemand sie von weitem erkannte. Taron hatte darauf hingewiesen, dass Menschen, die neben einem Pferd herliefen, ebenfalls sichtbar waren. Elva hatte gesagt, er solle sich auf seine eigenen schlechten Tarnungen konzentrieren.
 
@@ -170,7 +170,7 @@ Taron stieg ab. Sein Bein beschwerte sich.
 
 „Hauptmann.“
 
-Greves Blick fiel auf Oswin, auf Tarons schmutzigen Mantel, auf den Verband an seiner Seite.
+Greves Blick fiel auf Oswin, auf Tarons schmutzigen Mantel, auf den Verband an seiner Seite und zuletzt, mit deutlicher Verzögerung, auf seine Stiefel, die noch immer nicht zusammengehörten.
 
 „Ihr habt ihn?“
 
@@ -195,6 +195,16 @@ Das half dem Vogt beim Blinzeln.
 Sie führten ihn durch den Hof.
 
 Alles war anders und gleich. Die Ställe rochen nach Stroh und Pferd. Der Brunnen stand schief wie immer. Eine Stelle im Pflaster fehlte noch immer, obwohl Taron vor drei Monaten gesagt hatte, jemand werde sich dort den Fuß brechen. Gleichzeitig hingen rote Stoffstreifen an Fenstern, Wachen standen an Durchgängen, und vor der Kapelle brannten Kerzen in einer Zahl, die Taron für brandgefährlich und theologisch übertrieben hielt.
+
+Der Vogt sah im Gehen zweimal auf Tarons Füße, als hoffe er, das Problem habe sich beim dritten Blick von selbst erledigt. „Wir finden Euch Stiefel“, sagte er. „Für den Auftritt.“
+
+„Passende?“
+
+Der Vogt brauchte einen Schritt zu lang für die Antwort.
+
+„Ein Auserwählter wird nicht an den Füßen erkannt“, sagte der Erzähler.
+
+„Dann sind wir uns wenigstens da einig, dass ich keiner bin.“
 
 Bruder Malchior wartete im inneren Hof.
 

@@ -514,6 +514,16 @@ Taron nickte.
 
 Das war unerwartet gut.
 
+Elva griff hinter sich und stellte etwas zwischen sie auf die Mauer. Zwei Stiefel. Gleiche Farbe, gleiche Größe, ein linker und ein rechter.
+
+„Vom Vogt“, sagte sie. „Er hat sie seit deinem Auftritt in seiner Kammer stehen. Er hat sich nicht getraut, sie dir zu bringen.“
+
+Taron sah die Stiefel an, als wären sie eine Prophezeiung.
+
+„Das war nicht geplant“, sagte der Erzähler.
+
+„Das ist das Erste, was ich dir heute glaube.“
+
 Unten rief Marta nach Elva. Elva seufzte, stand auf und sah Taron an.
 
 „Kommst du?“
