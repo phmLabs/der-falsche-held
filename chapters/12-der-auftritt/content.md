@@ -230,10 +230,6 @@ Taron zog Elvas Abschrift aus dem Mantel.
 
 Malchiors Augen bewegten sich.
 
-Nur kurz.
-
-Aber Taron sah es.
-
 „Das hier auch?“
 
 Er hielt das Pergament hoch.
@@ -250,25 +246,13 @@ Malchior senkte die Stimme. „Du verstehst nicht, welche Last du trägst.“
 
 Das überraschte ihn selbst.
 
-Er klang anders.
-
-Nicht sicher.
-
-Aber lauter als seine Angst.
+Er klang anders. Nicht sicher. Aber lauter als seine Angst.
 
 „Ich verstehe nicht alles. Wahrscheinlich fast nichts. Aber ich verstehe, dass der Menschenschlüssel nicht das Ende ist. Es gibt drei Schlüssel. Wenn Ihr mich jetzt bindet, bindet Ihr nur Eure eigene Unwissenheit an etwas, das älter ist als Waldkirch.“
 
 Malchior wurde sehr still.
 
 Der Satz war nicht ganz von Taron. Merlan steckte darin. Elva auch. Neral. Der Turm. Vielleicht sogar der Erzähler, obwohl Taron ihm das nicht gönnte.
-
-„Wer hat dir das gesagt?“, fragte Malchior.
-
-„Die Wand.“
-
-Das war die Wahrheit.
-
-Leider.
 
 In diesem Moment öffneten sich die Türen zum inneren Saal.
 
@@ -279,8 +263,6 @@ Er trug einen Mantel, der einmal prächtig gewesen war und jetzt an zwei Stellen
 „Taron!“, rief der König.
 
 Die Erleichterung in seiner Stimme war echt.
-
-Das machte alles komplizierter.
 
 Albrecht kam die Stufen hinab und ergriff Tarons Schultern. Taron musste sich beherrschen, nicht vor Schmerz zusammenzuzucken.
 
