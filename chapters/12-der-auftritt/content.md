@@ -172,9 +172,7 @@ Der Vogt brauchte einen Schritt zu lang für die Antwort.
 
 Bruder Malchior wartete im inneren Hof.
 
-Er lächelte.
-
-Das war nie gut.
+Er lächelte. Das war nie gut.
 
 „Taron Falkenried“, sagte er. „Träger der Verheißung.“
 
