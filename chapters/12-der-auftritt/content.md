@@ -226,6 +226,8 @@ Malchiors Lächeln wurde dünner. „Der alte Thronsaal ist der Ort des Reichsei
 
 Taron zog Elvas Abschrift aus dem Mantel.
 
+„Das war nicht ganz der Plan“, sagte der Erzähler. „Aber gut.“
+
 Malchiors Augen bewegten sich.
 
 Nur kurz.
