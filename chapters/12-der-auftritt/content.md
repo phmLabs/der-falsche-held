@@ -280,8 +280,6 @@ Er holte den Menschenschlüssel hervor.
 
 Kein Licht. Kein Donner. Kein Gesang.
 
-Nur dunkles Metall in seiner Hand.
-
 Und trotzdem wichen mehrere Menschen einen Schritt zurück.
 
 Der König sank beinahe auf ein Knie, erinnerte sich dann offenbar daran, dass Könige das in eigenen Höfen selten taten, und blieb etwas ungünstig gebeugt stehen.
@@ -298,23 +296,17 @@ Noch mehr Stille.
 
 Malchiors Augen wurden hart.
 
-Der König blinzelte. „Für wen dann?“
+Der König richtete sich auf. „Für wen dann?“
 
-Taron schluckte.
+Taron hatte auf dem ganzen Weg hierher an diesem Satz gebaut. Jetzt, wo er ihn brauchte, war nur die Antwort da, die er unter Abendriss einem Mann mit Maske gegeben hatte.
 
-Jetzt.
+„Für keinen“, sagte er. „Man trägt ihn. Man besitzt ihn nicht. Das war die Prüfung.“
 
-Der Auftritt.
+Im Hof klang es kleiner als in der Tiefe. Der Vogt wartete sichtbar auf den Rest des Satzes. Malchior wartete nicht. Malchior sah aus, als hätte er den Rest bereits verstanden und würde ihn nicht mögen.
 
-Er hasste jeden Teil davon.
+Taron sah kurz zu Oswin. Oswin sah zurück, als wäre das hier Tarons Hof, nicht seiner.
 
-„Zum Tragen“, sagte er. „Nicht zum Besitzen. Das war die Prüfung.“
-
-Der Erzähler sagte nichts.
-
-Oswin auch nicht.
-
-Also redete Taron weiter, weil Schweigen nun einmal nicht unbegrenzt trug.
+Also redete Taron weiter.
 
 „Die Hüter von Abendriss haben ihn bewacht. Sie starben, weil sie glaubten, niemand dürfe ihn nehmen. Und sie hatten nicht ganz unrecht. Wer ihn an einen neuen Eid bindet, ohne die alten Eide zu verstehen, macht nicht Frieden. Er macht eine Tür auf und nennt es Ordnung.“
 
