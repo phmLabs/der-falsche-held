@@ -122,7 +122,7 @@ Albrecht brauchte einen Augenblick, um den Namen einzuordnen. Das sagte mehr üb
 
 „Dann holt sie. Bevor hier jemand ein Wort über Schlüssel sagt.“
 
-Malchior trat einen halben Schritt vor. „Sie ist in Obhut. Die Zwerge marschieren, und sie hat sich in Angelegenheiten gedrängt, die …“
+Malchior trat einen halben Schritt vor. „Sie ist in Obhut. Die Zwerge marschieren, und sie hat sich in Angelegenheiten gedrängt, die-“
 
 „Ihr habt sie eingesperrt, weil sie mich gewarnt hat.“ Taron hörte seine eigene Stimme und erkannte sie nicht ganz. Sie klang wie jemand, der eine Rechnung vorlas. „Nennt es, wie Ihr wollt. Holt sie.“
 
@@ -140,7 +140,7 @@ Dann kam Elva.
 
 Sie kam nicht wie jemand, der gerettet wurde. Sie kam wie jemand, der zu einem Tisch gerufen worden war, den man längst hätte abräumen sollen, mit gerader Haltung, Mehl am Ärmel und einem Wächter hinter sich, der aussah, als sei er auf dem Weg dreimal zurechtgewiesen worden. Sie sah Taron an, kurz und prüfend, wie man einen Topf prüft, der zu lange auf dem Feuer gestanden hat. Dann sah sie den König an.
 
-„Bist du …“, begann Taron.
+„Bist du-“, begann Taron.
 
 „Siebzehn Stufen. Die vierte knarrt“, sagte Elva. „Später.“
 
