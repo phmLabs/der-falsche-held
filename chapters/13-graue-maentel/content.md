@@ -8,9 +8,9 @@ Taron wusste, dass das nicht episch war. Er hatte inzwischen genug über alte Ei
 
 „Es hieß gerade: nur einen Reiter. Ich sitze auch hier.“
 
-„Du wiegst nichts.“
+„Wer außer dir redet hier?“
 
-„Das Pferd ist da anderer Meinung. Frag es, warum es so geht.“
+„Das ist eine längere Geschichte.“
 
 „Er läuft schief“, sagte Taron.
 
