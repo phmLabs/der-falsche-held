@@ -24,3 +24,17 @@
   end_offset: 43
   note: B
   author: author
+- id: b-mtdvlihh
+  created_at: '2026-08-29T04:23:49.973Z'
+  status: active
+  quote: |-
+
+    Das war nicht fromm. Das war Politik.
+
+    Taron fühlte sich schmutzig.
+
+    Der Erzähler klang beinahe stolz. „Du w
+  start_offset: 40
+  end_offset: 69
+  note: C
+  author: author

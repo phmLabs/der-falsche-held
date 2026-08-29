@@ -308,7 +308,7 @@ Taron sah kurz zu Oswin. Oswin sah zurück, als wäre das hier Tarons Hof, nicht
 
 Also redete Taron weiter.
 
-„Die Hüter von Abendriss haben ihn bewacht. Sie starben, weil sie glaubten, niemand dürfe ihn nehmen. Und sie hatten nicht ganz unrecht. Wer ihn an einen neuen Eid bindet, ohne die alten Eide zu verstehen, macht nicht Frieden. Er macht eine Tür auf und nennt es Ordnung.“
+„Die Hüter von Abendriss haben ihn bewacht. Sie starben, weil sie glaubten, niemand dürfe ihn nehmen. Und sie hatten nicht ganz unrecht. Wer ihn an einen neuen Eid bindet, ohne die alten Eide zu verstehen, bringt nicht Frieden. Er macht eine Tür auf und nennt es Ordnung.“
 
 Ein Raunen ging durch den Hof.
 
@@ -372,9 +372,7 @@ Taron tat so, als habe er es nicht bemerkt.
 
 Der König erstarrte.
 
-Das war nicht fromm.
-
-Das war Politik.
+Das war nicht fromm. Das war Politik.
 
 Taron fühlte sich schmutzig.
 
@@ -392,9 +390,7 @@ Malchior drehte den Kopf. „Mein König.“
 
 „Mit königlichem Segen“, fuhr Albrecht fort. „Und einem Auftrag.“
 
-Taron atmete aus.
-
-Zu früh.
+Taron atmete aus. Zu früh.
 
 „Zwei meiner Wachen begleiten dich.“
 
@@ -412,11 +408,9 @@ Oswin hatte das Talent, mit einem einzigen Wort die Temperatur eines Hofes zu ve
 
 Der König schwieg.
 
-Oswin trat neben Taron. „Mehr Wachen machen ihn sichtbar. Sichtbarkeit macht ihn langsam. Langsame Menschen sterben unterwegs.“
+Oswin trat neben Taron. „Mehr Wachen machen ihn sichtbar. Sichtbarkeit macht ihn langsam. Langsame Menschen sterben schneller.“
 
 Das war nicht die Art Rede, die Höfe liebten.
-
-Sie war zu nützlich.
 
 Greve räusperte sich. „Das stimmt.“
 
@@ -424,9 +418,7 @@ Der Vogt sah ihn entsetzt an.
 
 Greve fuhr fort, offenbar mit dem Gesicht eines Mannes, der beschlossen hatte, heute einmal genau genug Ärger zu erzeugen. „Wenn Zwergentrupps unterwegs sind, ist eine kleine Gruppe besser.“
 
-Der König sah zu Malchior.
-
-Malchior lächelte nicht mehr.
+Der König sah zu Malchior. Malchior lächelte nicht mehr.
 
 Das tat Taron gut.
 
@@ -440,15 +432,11 @@ Das tat Taron gut.
 
 Der König lachte.
 
-Es war ein kurzes, erschöpftes Lachen.
-
-Aber es war echt.
+Es war ein kurzes, erschöpftes Lachen. Aber es war echt.
 
 „Du bist anders zurückgekommen.“
 
 Taron dachte an den Mann unter der Maske. An Neral. An die Zisterne. An Oswins Wunde. An Elvas Finger auf seiner Brust.
-
-„Ja.“
 
 Der König winkte den Vogt heran. „Ein Reisesiegel. Vorräte. Frische Verbände. Kein Reichseid.“
 
@@ -457,8 +445,6 @@ Malchior sagte: „Mein König.“
 Albrecht wandte sich ihm zu. „Nicht heute.“
 
 Der Priester verbeugte sich.
-
-Sehr langsam.
 
 Taron traute ihm nicht einmal bis zum Ende dieser Verbeugung.
 
@@ -478,13 +464,7 @@ Sie wartete bei der alten Gerbermauer, dort, wo ein schmaler Abwassergraben unte
 
 „Ich habe geredet.“
 
-„Also knapp.“
-
 Er reichte ihr das Reisesiegel.
-
-Sie betrachtete es. „Das ist echt.“
-
-„Ich war auch überrascht.“
 
 „Und sie lassen dich gehen?“
 
@@ -498,8 +478,6 @@ Sie betrachtete es. „Das ist echt.“
 
 „Nicht glücklich.“
 
-„Gut.“
-
 Taron sah zurück zur Burg.
 
 Die Glocken hatten aufgehört. Aus der Entfernung war die Burg wieder nur eine Burg, mit einem Loch im Pflaster, das niemand flicken würde. Dort drin glaubten sie, er sei mutig.
@@ -507,16 +485,6 @@ Die Glocken hatten aufgehört. Aus der Entfernung war die Burg wieder nur eine B
 Das war schwerer zu tragen als der Schlüssel.
 
 „Ich hätte fast geglaubt, was ich gesagt habe“, sagte er.
-
-Elva sah ihn an.
-
-„Welchen Teil?“
-
-„Dass ich muss.“
-
-„Vielleicht stimmt er.“
-
-„Das ist das Problem.“
 
 Oswin kam mit den Pferden. Er sah Elva, dann das Siegel, dann den Weg nach Südosten.
 
