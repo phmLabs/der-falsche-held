@@ -514,13 +514,7 @@ Er ließ den Satz weg. Es wurde langsam eine Gewohnheit.
 
 Sie sagte es wie eine Wetterfrage. Taron kannte inzwischen den Unterschied zwischen ihrer Ruhe und ihrer Angst. Er saß in den Schultern. Die Schultern waren heute ruhig. Fast.
 
-Elva griff in den Mantel und drückte ihm etwas in die Hand. Ihr Küchenmesser. Kurz, mit einem Holzgriff, der vom vielen Waschen glatt und hell geworden war.
-
-„Das brauchst du selbst.“
-
-„Ich habe eine Küche voller Messer. Du hast einen Ritter, der nicht überall gleichzeitig stehen kann.“
-
-Oswin kam mit den Pferden. Er sah Elva, dann das Messer in Tarons Hand, dann den Weg nach Südosten. Wenn er eine Meinung dazu hatte, dass die Gruppe kleiner wurde, behielt er sie dort, wo er die meisten seiner Meinungen aufbewahrte.
+Oswin kam mit den Pferden. Er sah Elva, dann Taron, dann den Weg nach Südosten. Wenn er eine Meinung dazu hatte, dass die Gruppe kleiner wurde, behielt er sie dort, wo er die meisten seiner Meinungen aufbewahrte.
 
 „Wir müssen fort.“
 

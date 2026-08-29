@@ -56,7 +56,7 @@ Taron betrachtete die Klinge. „Ich kann sie fallen lassen.“
 
 „Nicht deinen.“
 
-Taron steckte den Dolch an seinen Gürtel. Er hatte seit Tagen ein Messer bei sich, eigentlich ein kleines Küchenmesser aus Waldkirch, das Elva ihm an der Gerbermauer in die Hand gedrückt hatte. Es war besser zum Schneiden von Käse als zum Überleben. Er trug es trotzdem so, dass er es spürte. Dieser Dolch dagegen war schwerer, kürzer und ernst gemeint.
+Taron steckte den Dolch an seinen Gürtel. Er hatte seit Jahren sein Stallmesser bei sich, das mehr Stricke als Feinde geschnitten hatte. Es war besser zum Schälen von Äpfeln als zum Überleben. Er trug es trotzdem so, dass er es spürte. Dieser Dolch dagegen war schwerer, kürzer und ernst gemeint.
 
 „Ich will ihn nicht benutzen müssen“, sagte Taron.
 
@@ -286,7 +286,7 @@ Brokk sah auf die Zeichen. „Die, die glaubte, Frieden müsse in Stein geschrie
 
 Senn begann, die Kammer abzugehen. Er zählte nicht laut, aber seine Lippen bewegten sich. Broda stand am Eingang und lauschte. Lorn blieb in Tarons Nähe, was Taron zuerst nett fand, bis er merkte, dass Lorn wahrscheinlich nur verhindern sollte, dass er versehentlich etwas Heiliges trat, öffnete oder beleidigte.
 
-Taron kniete sich neben die Asche. Er nahm nichts hoch, sondern schob mit dem Griff des Küchenmessers vorsichtig eine Tonscherbe zur Seite. Unter der Asche kamen kleine Knochen zum Vorschein. Keine Menschenknochen. Fisch vielleicht. Ein paar verkohlte Kerne.
+Taron kniete sich neben die Asche. Er nahm nichts hoch, sondern schob mit dem Griff seines Messers vorsichtig eine Tonscherbe zur Seite. Unter der Asche kamen kleine Knochen zum Vorschein. Keine Menschenknochen. Fisch vielleicht. Ein paar verkohlte Kerne.
 
 „Hier wurde gekocht“, sagte er.
 

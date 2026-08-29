@@ -56,8 +56,8 @@ nach Waldkirch.
 
 **12. Der Auftritt.** Taron spielt in Waldkirch den Auserwählten, um wieder
 aufbrechen zu dürfen. Er bekommt ein Reisesiegel statt eines Reichseids. Elva
-bleibt in Waldkirch – bei Marta, der Küche und der Schreibstube – und gibt Taron
-ihr Küchenmesser. Malchior schickt Botenraben hinterher. Taron ist wieder allein
+bleibt in Waldkirch – bei Marta, der Küche und der Schreibstube. Malchior
+schickt Botenraben hinterher. Taron ist wieder allein
 mit der Stimme.
 
 **13. Graue Mäntel.** Brokks Trupp stellt sie an der alten Südbrücke. Taron wirft

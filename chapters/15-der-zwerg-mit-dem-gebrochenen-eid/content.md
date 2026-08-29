@@ -140,7 +140,7 @@ Taron zog den Mantel höher.
 
 „Ich habe sie hier gefunden. Ich hätte sie lieber woanders gefunden.“
 
-Er dachte an Waldkirch. An die Küche, in der Elva Töpfe trug, die niemand ihr vorher angekündigt hatte. Ob dort irgendjemand sie fragte, bevor er ihr etwas auflud. Vermutlich nicht. Vermutlich hatte sie ihm deshalb an der Gerbermauer das Messer in die Hand gedrückt, statt zu fragen, ob er eines wollte.
+Er dachte an Waldkirch. An die Küche, in der Elva Töpfe trug, die niemand ihr vorher angekündigt hatte. Ob dort irgendjemand sie fragte, bevor er ihr etwas auflud. Vermutlich nicht. Vermutlich war sie deshalb an der Gerbermauer einfach stehen geblieben, statt zu fragen, ob ihm das recht war.
 
 Der Erzähler sagte dazu nichts, was Taron erst als Zustimmung nahm und dann, je länger die Stille dauerte, als etwas Unangenehmeres.
 

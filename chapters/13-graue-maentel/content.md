@@ -48,7 +48,7 @@ Taron rieb sich die Stirn. Zwischen altem Anspruch und alter Schuld. Also übera
 
 Vor der letzten Kuppe ritt Oswin voraus, um die Straße zu sehen, bevor die Straße ihn sah. Taron blieb mit Kummer im Schatten einer Erle zurück und merkte, wie leise es ohne den Ritter wurde.
 
-Und ohne Elva. Von Grauwehr bis Waldkirch hatte sie hinter ihm auf dem Pferd gesessen und ihn am Ärmel gezogen, wenn er dabei war, etwas Dummes zu tun. Jetzt hing ihr Küchenmesser an seinem Gürtel, und der Griff war noch zu glatt für seine Hand. Ein Messer zum Käseschneiden. Sie hatte es ihm an der Gerbermauer in die Hand gedrückt, als sei das eine Antwort auf etwas, das er nicht gefragt hatte.
+Und ohne Elva. Von Grauwehr bis Waldkirch hatte sie hinter ihm auf dem Pferd gesessen und ihn am Ärmel gezogen, wenn er dabei war, etwas Dummes zu tun. Jetzt hing nur sein altes Stallmesser am Gürtel, und ein Stallmesser zog niemanden am Ärmel.
 
 „Du denkst zu laut“, sagte der Erzähler.
 

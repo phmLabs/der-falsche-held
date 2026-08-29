@@ -4,7 +4,7 @@ Brokk Eisenhand nannte das Vertrauen.
 
 Taron nannte es eine sehr kleine Höflichkeit mit Axt.
 
-Sie ritten und gingen in einer Ordnung, die nicht zufällig war. Zwei Zwerge vorn, zwei hinten, einer rechts im Hang, einer links nahe beim Fluss. Brokk blieb neben Taron. Oswin ritt auf der anderen Seite, so gerade im Sattel, dass selbst sein Schweigen Rüstung trug. Taron hatte eine Hand am Gürtel, dort, wo Elvas Küchenmesser hing. Gegen Äxte half es ungefähr so viel wie ein Löffel, aber es war das Einzige an ihm, das aus Waldkirch stammte und nicht von Malchior ausgesucht worden war.
+Sie ritten und gingen in einer Ordnung, die nicht zufällig war. Zwei Zwerge vorn, zwei hinten, einer rechts im Hang, einer links nahe beim Fluss. Brokk blieb neben Taron. Oswin ritt auf der anderen Seite, so gerade im Sattel, dass selbst sein Schweigen Rüstung trug. Taron hatte eine Hand am Gürtel, dort, wo sein Stallmesser hing. Gegen Äxte half es ungefähr so viel wie ein Löffel, aber es war das Einzige an ihm, das aus Waldkirch stammte und nicht von Malchior ausgesucht worden war.
 
 Kummer benahm sich, als sei er der Einzige, der die Lage angemessen beurteilte.
 

@@ -1,4 +1,4 @@
-- Brokk fuehrt Taron und Oswin als "Gaeste mit schlechten Optionen" durch das Grenzland, ohne ihnen die Waffen abzunehmen. Taron traegt Elvas Kuechenmesser; sie selbst ist in Waldkirch geblieben.
+- Brokk fuehrt Taron und Oswin als "Gaeste mit schlechten Optionen" durch das Grenzland, ohne ihnen die Waffen abzunehmen. Elva ist in Waldkirch geblieben; Tarons einziges Stueck Waldkirch am Leib ist sein altes Stallmesser.
 - Ein zweiter Zwergentrupp unter Varga taucht auf. Varga hat einen neuen Befehl aus Karndorn: Taron soll lebend zum Zwergenkoenig, Oswin bei Widerstand tot.
 - Dadurch wird bestaetigt, dass der Zwergenspaher aus Abendriss genug gemeldet hat: Die Zwerge wissen oder vermuten stark, dass Taron den Menschenschluessel traegt.
 - Taron will erstmals die Rauchkugel einsetzen, scheitert aber fast an der Lederschlaufe und macht Laerm; Brokk muss sich offen zeigen und die Lage mit Autoritaet retten.
