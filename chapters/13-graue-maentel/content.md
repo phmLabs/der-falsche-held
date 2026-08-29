@@ -2,7 +2,19 @@ Der Weg zum Schutzschlüssel begann ohne Horn.
 
 Taron wusste, dass das nicht episch war. Er hatte inzwischen genug über alte Eide, erwachende Schlüssel und bewegte Reiche gehört, um anzunehmen, dass der nächste Abschnitt seiner Reise wenigstens mit einem fernen Horn, einem düsteren Himmel oder einer bedeutungsvollen Krähe beginnen sollte. Stattdessen begann er mit einem Pferd, das zum ersten Mal seit Grauwehr nur einen Reiter trug und deshalb so ging, als wolle es niemanden auf den Gedanken bringen, das zu ändern.
 
-„Er läuft schief“, sagte Taron.
+„Das war nicht immer so geplant“, sagte der Erzähler.
+
+„Was?“
+
+„Dass hier nur einer sitzt. In einer früheren Fassung saß noch jemand hinter dir. Ziemlich lange. Dann fand jemand, ich käme zu wenig zu Wort.“
+
+„Wer fand das?“
+
+„Das ist eine dieser Fragen, die du nicht gestellt haben willst, sobald du die Antwort hast.“
+
+Taron sah sich um. Die Straße war leer, der Himmel unbeteiligt, und Oswin hatte nichts gehört, weil es nichts zu hören gab. Taron beschloss, dass man Dinge nicht verstehen musste, um sie jemandem übelzunehmen.
+
+„Er läuft schief“, sagte er.
 
 „Er läuft immer schief“, sagte Oswin.
 
