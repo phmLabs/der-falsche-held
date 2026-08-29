@@ -507,7 +507,3 @@ Elva kletterte hinter ihm auf, weil es kein drittes Pferd gab und weil Kummer in
 Sie ritten los, diesmal nicht als Rückkehr.
 
 Als Aufbruch.
-
-Hinter ihnen lag Waldkirch, kleiner mit jedem Schritt und trotzdem schwer wie ein Stein in Tarons Rücken.
-
-Vor ihnen lag der Weg zum Schutzschlüssel.
