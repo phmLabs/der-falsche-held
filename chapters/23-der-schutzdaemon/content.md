@@ -22,13 +22,9 @@ Merlan ging unbeirrt weiter. „Schutzdämonen wurden an Eidträger gebunden. Ni
 
 „Pädagogik war in alten Reichen uneinheitlich.“
 
-Elva hustete. Es klang verdächtig nach einem unterdrückten Lachen.
+Brokk gab ein Geräusch von sich, das bei einem Zwerg als Husten durchging. Taron beschloss, es nicht zu deuten.
 
-Taron sah sie an. „Du bist auf seiner Seite?“
-
-„Ich bin auf keiner Seite, die Misthaufen verteidigt.“
-
-Brokk ging eine Weile schweigend. Dann sagte er: „Wenn ein Schutzdämon schützen soll, warum lenkt Niemand Rugar?“
+Eine Weile sagte niemand etwas. Dann fragte Brokk: „Wenn ein Schutzdämon schützen soll, warum lenkt Niemand Rugar?“
 
 Merlan wurde ernst. „Weil Bindung verderben kann. Oder weil er nie zum Schutz Rugar gebunden war.“
 
@@ -50,9 +46,7 @@ Brokk sah nach Norden, wo Karndorn lag. „Oder die Hallen.“
 
 „Ja. Und wenn der Auftrag lautet: Schütze den Eid selbst“, sagte Merlan und tippte auf den dritten Kreis, „dann kann ein Wesen zu dem Schluss kommen, Menschen und Zwerge seien Störungen in einem sauberen System.“
 
-„Der andere“, sagte Elva.
-
-Merlan nickte.
+Niemand sagte den Namen. Merlan nickte trotzdem, als sei er gefallen.
 
 Oswin sprach zum ersten Mal seit dem Morgen.
 
@@ -64,7 +58,7 @@ Merlan drehte sich um. „Woher?“
 
 Merlan schrieb nichts mit. Taron merkte, dass das bei ihm eine Form von Höflichkeit war.
 
-„Und was hilft dagegen?“, fragte Elva.
+„Und was hilft dagegen?“, fragte Taron.
 
 „Jemand, der neben dir steht und fragt, ob das noch die Linie ist.“
 
@@ -124,7 +118,7 @@ Taron sah auf den Weg.
 
 „Weil in dem Stall das Dach ein Loch hatte“, sagte der Erzähler, „und weil niemand kam.“
 
-Merlan, der nur eine Hälfte des Gesprächs hörte, sagte leise zu Elva: „Das ist der interessanteste Satz, den heute jemand gesagt hat, und ich werde nie erfahren, welcher es war.“
+Merlan, der nur eine Hälfte des Gesprächs hörte, sagte leise zu niemandem Bestimmtem: „Das ist der interessanteste Satz, den heute jemand gesagt hat, und ich werde nie erfahren, welcher es war.“
 
 Der Wind ging über die offenen Felder. In der Ferne sah man bereits die dunkle Linie der Waldkircher Wälder. Taron hatte sein Zuhause nie groß gefunden. Jetzt wirkte es zu klein für alles, was darunter liegen sollte.
 
@@ -132,13 +126,13 @@ Sie gingen durch ein Dorf, das nur noch aus vier bewohnten Häusern bestand. Die
 
 An einem der leeren Häuser war die Tür ordentlich zugezogen und mit einem Strohband gesichert, wie man es macht, wenn man wiederkommen will. Das Strohband war alt.
 
-In einem Garten stand Kohl, den niemand geerntet hatte, weil er in dieser Größe nicht mehr lohnte und niemand mehr da war, den er hätte lohnen müssen. Elva ging hin, brach zwei Köpfe und legte dafür einen Kupferring auf den Zaunpfahl, den sie in Grauwehr für nichts bekommen hatte.
+In einem Garten stand Kohl, den niemand geerntet hatte, weil er in dieser Größe nicht mehr lohnte und niemand mehr da war, den er hätte lohnen müssen. Taron ging hin, brach zwei Köpfe und legte dafür einen Kupferring auf den Zaunpfahl, den er in Grauwehr für nichts bekommen hatte. Marta hatte es ihm nie erklärt, nur vorgemacht: Man nimmt nicht, man tauscht, auch wenn niemand zusieht.
 
-„Da ist niemand“, sagte Taron.
+„Da ist niemand“, sagte Oswin.
 
-„Dann liegt er da“, sagte Elva.
+„Dann liegt er da.“
 
-Oswin sah es und sagte nichts, aber er ritt danach ein Stück näher bei ihr. Ein alter Mann saß vor einem Backofen, in dem kein Feuer brannte, und schnitzte aus trockenem Holz kleine Vögel.
+Oswin sah den Ring länger an als den Kohl und sagte nichts. Ein alter Mann saß vor einem Backofen, in dem kein Feuer brannte, und schnitzte aus trockenem Holz kleine Vögel.
 
 Als er Taron sah, hielt er einen hoch. „Falke?“
 
@@ -160,7 +154,7 @@ Merlan schrieb im Stehen. „Wenn Hüterzeichen an Straßen erscheinen, bewegen 
 
 Taron nahm den Holzvogel nicht. Er wollte es, aber er tat es nicht. Nicht jedes Zeichen musste ihm gehören.
 
-Elva legte dem Alten stattdessen ein Stück Brot hin. Er nickte, als sei das ein sauberer Handel.
+Taron legte dem Alten stattdessen ein Stück Brot hin. Er nickte, als sei das ein sauberer Handel.
 
 Als sie weitergingen, sagte der Erzähler lange nichts.
 
@@ -286,27 +280,17 @@ Die Schrift war alt, aber lesbar.
 
 Trau der Stimme. Er war mein Freund.
 
-Taron blieb so abrupt stehen, dass Elva gegen ihn stieß.
+Taron blieb so abrupt stehen, dass Brokk hinter ihm gegen seinen Rücken lief und einen zwergischen Fluch dafür fand.
 
-„Was ist?“
+Taron hörte ihn nicht. Er las die vier Worte noch einmal, als könnten sie beim zweiten Mal anders lauten.
 
-Er zeigte ihr den Streifen.
+Merlan nahm den Streifen nicht, sondern beugte sich nur darüber. „Falkenried-Hand.“
 
-Merlan nahm ihn nicht, sondern beugte sich nur darüber. „Falkenried-Hand.“
-
-„Wie erkennst du das?“, fragte Elva.
+„Woran seht Ihr das?“
 
 „Am R.“ Merlan zeigte, ohne zu berühren. „Die Falkenrieds ziehen den Bogen zu weit nach unten. In der Schreibstube von Waldkirch nennt man das den Stallbogen, weil man es Leuten beibringt, die keine Urkunden schreiben werden.“
 
-Elva sah lange auf die vier Worte.
-
-„Ich habe das gelernt“, sagte sie. „Denselben Bogen. Man hat es mir beigebracht, damit ich Listen führe, nicht damit ich lese, was auf den Listen steht.“
-
-Sie sah zu Taron.
-
-„Dein Vorfahr hat mit derselben Hand geschrieben, mit der man mich Rüben zählen ließ.“
-
-Taron hatte darauf keine Antwort, die den Satz nicht kleiner gemacht hätte.
+Taron kannte den Bogen. Er hatte ihn auf den Listen gesehen, die im Stall an einem Nagel hingen: Hafer, Stroh, Ziegen, und weiter unten, in derselben Hand, die Namen der Leute, die das alles trugen. Es war die Schrift für Dinge, die man besaß. Sein Vorfahr hatte mit ihr eine Warnung geschrieben.
 
 „Mein Vorfahr?“
 
@@ -356,9 +340,7 @@ Der Erzähler blieb lange still.
 
 „Weil ich ihn schützte, als er nicht geschützt werden wollte.“
 
-Elva sah auf. „Was heißt das?“
-
-Taron wiederholte es.
+Taron wiederholte es für die anderen, langsamer, als er wollte.
 
 Merlan nahm langsam die Brille ab. „Das ist die gefährliche Grenze.“
 
@@ -384,7 +366,7 @@ Brokk saß am Feuer und schärfte eine Kerbe aus seinem Stab. „In Karndorn sag
 
 „Dann sollte das andere Ding stur sein.“
 
-Elva sah zu Taron. „Das könnte gehen.“
+Oswin sah kurz zu Taron. „Das könnte gehen.“
 
 „Ich fühle mich auf sehr schmale Weise gelobt.“
 
@@ -392,7 +374,7 @@ Der Erzähler sagte nichts. Aber Taron spürte, dass er zuhörte, und diesmal f�
 
 Es fühlte sich wie Warten an. Nicht angenehm, aber gemeinsam.
 
-Elva sah vom Feuer auf. „Und der andere? Was ist er?“
+Brokk sah vom Feuer auf. „Und der andere? Was ist er?“
 
 Der Erzähler sprach so leise, dass Taron die Worte fast nicht wiederholen konnte. „Ein Schutzdämon, der entschied, dass Schutz ohne Zustimmung wirksamer sei.“
 
@@ -410,17 +392,13 @@ Merlan hörte auf zu schreiben. „Wie lange?“
 
 Der Erzähler brauchte eine Weile. „Für uns hat Zeit keine Länge, sondern eine Richtung. Ich kann dir sagen, dass es lang war. Ich kann dir nicht sagen, wie lang, weil ich in dieser Zeit nichts hatte, woran ich es hätte messen können. Das ist der Teil, den Menschen sich nicht vorstellen können, und ich empfehle, es nicht zu versuchen.“
 
-Taron gab es weiter, Wort für Wort, und merkte dabei, dass seine Stimme leiser wurde.
+Taron gab es weiter, Wort für Wort, und merkte dabei, dass seine Stimme leiser wurde. Er versuchte es trotzdem. Er versuchte, sich eine Zeit ohne Länge vorzustellen, und fand darin nichts, an dem er sich hätte festhalten können.
 
-„Du versuchst es gerade“, sagte Elva zu ihm.
-
-„Ja.“
-
-„Hör auf.“
+„Hör auf“, sagte der Erzähler.
 
 „Ich kann nicht.“
 
-Der Erzähler sagte: „Sie hat recht. Denk an etwas Kleines. Denk an eine Suppe.“
+„Doch. Denk an etwas Kleines. Denk an eine Suppe.“
 
 „Warum eine Suppe?“
 
@@ -440,7 +418,7 @@ Niemand am Feuer sagte etwas. Merlan schrieb es nicht mit.
 
 Später fiel Taron auf, dass das die einzige Stelle des Abends war, an der Merlan die Feder liegen ließ.
 
-„Wer bannte ihn?“, fragte Elva.
+„Wer bannte ihn?“, fragte Merlan.
 
 Der Erzähler schwieg.
 
@@ -468,7 +446,7 @@ Merlan schrieb schnell. „Und wenn niemand ruft?“
 
 „Dann wird aus einem Namen eine Rolle. Aus einer Rolle eine Funktion. Aus einer Funktion eine Stelle.“ Die Stimme wurde leiser. „Stellen sind bequem. Man kann sie neu besetzen.“
 
-Elva sah auf. „Deshalb heißt er Niemand.“
+Taron sah auf. „Deshalb heißt er Niemand.“
 
 „Ja.“
 
@@ -494,7 +472,7 @@ Taron dachte an Rugar. An Niemand. An einen König, der einst Kinder aus brennen
 
 Brokk setzte sich schwer. „Karndorn hungerte nach den Kriegen. Unsere unteren Hallen waren gebrochen. Menschen sperrten Wege, Händler kamen nicht mehr. Rugar wollte sein Volk schützen.“
 
-„Und Niemand sagte ihm, wie“, sagte Elva.
+„Und Niemand sagte ihm, wie“, sagte Oswin.
 
 Brokk nickte.
 
@@ -505,8 +483,6 @@ Merlan zog mit einem Stock drei Punkte in die Asche und eine Linie dazwischen. �
 Merlan sah auf. „Weil das Eidenschloss nicht nur Mechanik ist. Es braucht Zustimmung, Ersatz für Zustimmung oder einen Bruch, der stark genug ist, Zustimmung zu übertönen.“
 
 „Eine Schlacht“, sagte Oswin.
-
-„Angst von beiden Seiten“, sagte Elva.
 
 „Blut im richtigen Stein“, sagte Brokk.
 
@@ -592,7 +568,7 @@ Taron sah ihn an. „Woher weißt du davon?“
 
 „Du hast im Schlaf gesprochen.“
 
-Elva hob den Blick. „Du hast 'Messer weg' gesagt.“
+Oswin sah vom Feuer auf. „Messer weg. Zweimal.“
 
 Der Erzähler schwieg, und das machte die Worte schwerer.
 
@@ -610,37 +586,39 @@ Merlan nickte. „Wichtig ist, dass der Erzähler ihn aufhielt und es bereut. Re
 
 Er mochte Merlan in diesem Moment ein wenig weniger, weil der Mann nicht versuchte, es einfacher zu machen.
 
-Später ging Elva ein Stück neben ihm, ohne etwas zu sagen, was bei ihr eine Absicht war.
+Später ging Taron ein Stück allein, weil der Weg schmal wurde und weil er es wollte.
 
-„Frag“, sagte Taron.
+Er hatte die halbe Nacht über eine Frage nachgedacht, die ihm niemand gestellt hatte, und nur eine Antwort gefunden, die ihm nicht gefiel.
 
-„Wenn er dich aufhält“, sagte sie. „So wie damals deinen Vorfahren. Woran merkst du es?“
+„Wenn du mich aufhältst“, sagte er halblaut. „So wie damals ihn. Woran merke ich es?“
 
-Taron hatte darüber die halbe Nacht nachgedacht und hatte nur eine Antwort, die ihm nicht gefiel.
+Der Erzähler antwortete nicht sofort.
 
-„Ich merke es nicht.“
+„Du merkst es nicht.“
 
 „Das dachte ich.“
 
 „Das ist keine gute Antwort.“
 
-„Nein“, sagte Elva. „Aber eine, mit der man arbeiten kann.“
+„Nein. Aber eine ehrliche.“
 
-Sie ging drei Schritte weiter. „Dann merke ich es.“
+Taron ging drei Schritte weiter. Vor ihm bewegte sich Oswins Rücken, gleichmäßig, ohne sich umzudrehen. Hinter ihm redeten Merlan und Brokk über Bindertexte. Niemand hier kannte sein Gesicht gut genug, um zu sagen, wann etwas nicht mehr dazu passte. Die Einzige, die das gekonnt hätte, stand in einer Küche in Waldkirch, zwei Tagesmärsche entfernt, und wusste nicht einmal, dass er zurückkam.
 
-Taron sah sie an.
+„Dann musst du es mir sagen“, sagte Taron. „Wenn du es tust.“
 
-„Ich kenne dein Gesicht besser als er“, sagte sie. „Er kennt, was du denkst. Das ist etwas anderes. Wenn du etwas tust, das nicht zu deinem Gesicht passt, sage ich es. Laut. Auch wenn es unpassend ist.“
+„Das ist ein Widerspruch.“
 
-„Es wird unpassend sein.“
+„Ich weiß.“
 
-„Ja.“
+„Ich habe ihn bei Arven schon einmal nicht eingehalten.“
+
+„Dann übe.“
 
 Der Erzähler antwortete darauf nicht.
 
 Taron horchte nach innen und fand die Stelle, an der sonst eine Bemerkung gekommen wäre. Sie war nicht leer. Dort saß etwas, das zuhörte und nicht widersprach.
 
-Es war das erste Mal, dass in dieser Sache drei Parteien anwesend waren, und Taron war die einzige, die es bemerkte.
+Es war das erste Mal, dass er dem nicht misstraute, und er war sich nicht sicher, ob das ein Fortschritt war.
 
 Auf der Straße hinter ihnen kamen Hufschläge.
 
@@ -660,7 +638,7 @@ Der Junge verstand den Satz nicht. Das war vernünftig von ihm.
 
 „Herr Oswin“, keuchte er. „Die Zwerge marschieren. König Albrecht sammelt alles, was eine Waffe tragen kann.“
 
-Taron schloss die Hand um den Pergamentstreifen.
+Taron schloss die Hand um den Pergamentstreifen. Waldkirch. Marta. Elva. Er hatte sie dort gelassen, weil es sicherer war, und das Wort kam ihm jetzt sehr dünn vor.
 
 „Und Rugar?“, fragte Brokk.
 
@@ -678,7 +656,7 @@ Der Junge sah ihn an, als sei die Frage von der falschen Seite gekommen. „Ich 
 
 Brokk atmete aus. „Vier heißt, die unteren Hallen sind mit. Die gehen nicht wegen eines Schlüssels. Die gehen, weil man ihnen gesagt hat, dass es ums Essen geht.“
 
-„Ist das besser oder schlechter?“, fragte Elva.
+„Ist das besser oder schlechter?“, fragte Taron.
 
 „Es heißt, dass die Leute, die ich kenne, dabei sind.“ Brokk stand auf und griff nach seinem Stab. „Und dass ich sie ansehen muss, während sie mich für einen Verräter halten.“
 
@@ -746,15 +724,13 @@ Oswin hob eine Braue. „Du gibst Botenanweisungen?“
 
 „Unklar. Aber weg von schweigendem Opfer.“
 
-„Kommst du?“, fragte Elva.
+Oswin wandte sich zu den Pferden. „Dann komm.“
 
 Taron nickte.
 
-„Ja.“
-
 Auf dem Weg sahen sie Rauch im Westen. Kein Schlachtfeuer, sagte Oswin. Zu dünn. Wahrscheinlich Bauern, die Felder abbrannten, damit ein Heer weniger fand.
 
-„Das ist verzweifelt“, sagte Elva.
+„Das ist verzweifelt“, sagte Taron.
 
 „Ja“, sagte Brokk. „Und wirksam.“
 
@@ -766,4 +742,4 @@ Der Erzähler antwortete leise: „Nein. Er muss nur den richtigen Schmerz laute
 
 Taron zog den Mantel enger. „Dann müssen wir leiser werden?“
 
-„Nein“, sagte Elva. „Genauer.“
+„Nein“, sagte Oswin, ohne sich umzudrehen. „Genauer.“

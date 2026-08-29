@@ -16,9 +16,11 @@ Brokk sah auf die Tafel. „Bronze klingt.“
 
 „Deshalb haben sie vieles verboten.“
 
-Elva deutete auf einen Jungen, der mit einem Holzstab gegen einen Eimer schlagen wollte. Seine Mutter nahm ihm den Stab aus der Hand, schnell, fast grob. Der Junge protestierte nicht. Das war schlimmer als Weinen.
+Ein paar Schritte weiter wollte ein Junge mit einem Holzstab gegen einen Eimer schlagen. Seine Mutter nahm ihm den Stab aus der Hand, schnell, fast grob. Der Junge protestierte nicht. Er sah nicht einmal zu ihr hoch. Er hatte den Griff schon losgelassen, bevor ihre Finger ankamen.
 
-„Sie lernen es früh“, sagte Elva.
+Der Erzähler sagte: „Er lernt schnell. Man wird hier vermutlich für Schnelligkeit gelobt.“
+
+Taron sah dem Jungen nach und wartete auf den zweiten Satz, den kleinlichen, der den ersten immer entwertete. Er kam nicht. Der Erzähler ließ die Bemerkung stehen, wie man einen Topf stehen lässt, den man nicht mehr anfassen will.
 
 Auf dem Marktplatz standen Pfosten, an denen früher Glockenseile gehangen haben mussten. Der Turm der Halle hatte leere Fenster. Keine Glocke, kein Klöppel, nicht einmal ein verrosteter Haken. Die Stille darüber war so bewusst, dass Taron sie fast für ein Verbot hielt.
 
@@ -34,12 +36,7 @@ Taron sah ihr nach, bis sie um eine Ecke war.
 
 Auf dem halben Weg dorthin bückte sich ein Mann, hob etwas auf und legte es ihr in den Korb. Er tat es, ohne stehen zu bleiben, und keiner von beiden sah den anderen an. Taron konnte nicht erkennen, was es war. Er nahm an, es war der zweite Schuh.
 
-„Das ist die ganze Stadt“, sagte Elva leise.
-
-„Was?“
-
-„Sie helfen sich, ohne dass man es beweisen kann.“
-
+Er sah sich um, ob jemand es bemerkt hatte. Die Patrouille sah in eine andere Richtung. Die Rübenfrau sortierte weiter. Niemand hatte etwas gesehen, und Taron begriff mit Verzögerung, dass das die Übung war. Die ganze Stadt half sich, ohne dass man es hätte beweisen können.
 
 Brokk sah weg.
 
@@ -51,9 +48,9 @@ Brokk sah weg.
 
 „Weil ich den Befehl kenne.“
 
-„Niemand ruft hier zum Markt?“, fragte Elva.
+Taron wandte sich an die Frau mit den Rüben. „Niemand ruft hier zum Markt?“
 
-Eine Frau, die Rüben aus einem Korb sortierte, sah nicht auf. „Man sieht, wann Markt ist.“
+Sie sah nicht auf. „Man sieht, wann Markt ist.“
 
 „Und Feuer?“
 
@@ -61,7 +58,7 @@ Eine Frau, die Rüben aus einem Korb sortierte, sah nicht auf. „Man sieht, wan
 
 Der Erzähler sagte: „Eine Verwaltung, die sich sehr auf Sichtkontakt stützt.“
 
-Taron betrachtete die Gesichter um sie herum. Niemand wirkte überrascht, einen Menschen, eine Küchenmagd, einen Ritter und mehrere Zwerge zusammen zu sehen. Das war noch schlimmer. Überraschung wäre lebendig gewesen.
+Taron betrachtete die Gesichter um sie herum. Niemand wirkte überrascht, einen Menschen, einen Ritter und mehrere Zwerge zusammen zu sehen. Das war noch schlimmer. Überraschung wäre lebendig gewesen.
 
 Ein Mädchen mit kurz geschnittenem Haar blieb vor Taron stehen und sah ihn an.
 
@@ -77,13 +74,31 @@ Ein Mädchen mit kurz geschnittenem Haar blieb vor Taron stehen und sah ihn an.
 
 Ihre Mutter zog sie weg und entschuldigte sich nicht. Vielleicht hatte Ellingen keine Entschuldigungen mehr übrig.
 
-Elva sah dem Kind nach. „In Waldkirch werden sie auch so reden, wenn der Hunger noch einen Winter bekommt.“
+Taron wollte sich einreden, dass Waldkirch anders war. Dann dachte er an die leeren Körbe, an Martas dünnere Suppe, an die Art, wie Menschen in Waldkirch inzwischen länger auf fremde Teller sahen. Elva hatte es ihm an der Gerbermauer nicht gesagt, aber sie hatte es gewusst, als sie blieb. Noch ein Winter, und die Kinder dort würden auch so reden.
 
-Taron wollte widersprechen. Dann dachte er an die leeren Körbe, an Martas dünnere Suppe, an die Art, wie Menschen in Waldkirch inzwischen länger auf fremde Teller sahen.
+Brokk führte sie in eine enge Seitengasse. Taron blieb ein paar Schritte zurück, weil Kummer an einem Pfosten festgebunden werden musste und weil niemand sonst dafür zuständig war.
 
-„Ja“, sagte er.
+Die Gasse war leer. Kein Karren, kein Hund, keine Stimme aus einem Fenster. In Waldkirch hätte es hier nach Rauch und Abwasser gerochen und irgendwo hätte jemand mit einem Topf geklappert. Hier klapperte nichts. Taron stand mit dem Zügel in der Hand und merkte, wie laut es in seinem Kopf war.
 
-Brokk führte sie nicht zur Halle, sondern in eine enge Seitengasse. Dort saß eine alte Frau vor einer Tür und flickte ein Netz, obwohl Ellingen weit von jedem ernsthaften Wasser entfernt lag.
+„Du bist hier das Einzige, was klingt“, sagte er leise.
+
+„Ich klinge nicht. Ich spreche.“
+
+„Für die da drüben wäre das dasselbe.“
+
+„Für die da drüben wäre ich verboten. Das wäre eine interessante Erfahrung.“
+
+Taron zog den Knoten fest. Kummer sah ihn an, als habe er etwas Besseres verdient als einen Pfosten in einer Stadt ohne Geräusche, und Taron konnte ihm nicht widersprechen.
+
+„Sie nehmen den Leuten die Glocken, damit nichts wach wird“, sagte er. „Und du nimmst mir Antworten. Ist das derselbe Grund?“
+
+Es dauerte zu lang, bis die Stimme antwortete. Nicht so lang wie an den Tagen, an denen sie gar nicht kam. Lang genug, dass Taron es merkte.
+
+„Nein“, sagte der Erzähler. „Aber es ist dieselbe Ausrede.“
+
+Das war mehr, als er sonst gab. Taron wusste nicht, was er damit anfangen sollte, also nahm er es mit in die Gasse, wie man einen Stein in die Tasche steckt, den man später ansehen will.
+
+Vor einer Tür saß eine alte Frau und flickte ein Netz, obwohl Ellingen weit von jedem ernsthaften Wasser entfernt lag.
 
 „Schreiberin Ansel“, sagte Brokk.
 
@@ -113,11 +128,11 @@ Oswin nickte knapp. „Gute Sicherung.“
 
 Das Zimmer hinter der Stube war niedriger als die anderen. Nicht weil es so gebaut worden war, sondern weil Regale jede Wand bedeckten und sogar von der Decke hingen. Rollen, Wachstafeln, Holzbrettchen, Stoffstreifen mit Schrift. Manche waren in Öl getränkt, manche in Wachs eingeschlagen. Ein Regal war leer. Davor lag Staub in der Form fehlender Glocken.
 
-„Sie haben hier gesucht“, sagte Elva.
+Taron sah den Staub an. „Sie haben hier gesucht.“
 
 Ansel hob eine Schulter. „Sie fanden, was ich ihnen ließ.“
 
-Taron sah sie mit neuem Respekt an. „Du hast Rugar belogen?“
+„Ihr habt Rugar belogen?“
 
 „Nein. Ich habe einem Hauptmann eine wahre Liste gegeben, auf der nicht alles stand.“
 
@@ -127,7 +142,7 @@ Ansel sah auf Tarons Brust. „Du trägst einen davon.“
 
 „Das sagt mir inzwischen fast jeder.“
 
-„Dann tragst du ihn sichtbar.“
+„Dann trägst du ihn sichtbar.“
 
 „Unter dem Hemd.“
 
@@ -193,13 +208,11 @@ Ansel sah ihn an, als habe sie mit der Frage gerechnet und trotzdem gehofft, sie
 
 „Ich habe mich zuerst gelesen.“ Sie sah kurz auf. „Das ist der Unterschied, und junge Leute halten ihn immer für Feigheit.“
 
-Elva sagte: „Ich nicht.“
+„Ich nicht“, sagte der Erzähler.
 
-Ansel sah sie an, länger als alle anderen an diesem Abend.
+Taron hätte beinahe gelacht. Es wäre das falsche Geräusch in diesem Haus gewesen. „Nein“, sagte er stattdessen laut. „Ich auch nicht.“
 
-„Nein“, sagte sie. „Du nicht.“
-
-
+Ansel sah ihn an, länger als alle anderen an diesem Abend, und Taron hatte den Eindruck, dass sie das „auch“ gehört hatte und beschloss, nicht danach zu fragen.
 
 Sie nahm eine kleine Handglocke aus einer Schublade. Oswin trat sofort zur Tür. Brokk hob warnend die Hand.
 
@@ -207,7 +220,7 @@ Ansel läutete einmal.
 
 Der Ton war winzig. Nicht feierlich. Eher wie der Anfang einer Frage.
 
-Unter Tarons Hemd antwortete der Menschenschlüssel. Bei Brokk klang Metall gegen Leder. Elva presste die Hand auf ihren Mantel.
+Unter Tarons Hemd antwortete der Menschenschlüssel. Bei Brokk klang Metall gegen Leder. Oswins Hand ging an seine Seite, wo unter dem Mantel das Stoffbündel hing, und blieb dort.
 
 Auf der Tischplatte erschienen Linien aus schwachem Licht. Drei Rillen liefen auf einen gezeichneten Kreis zu. Dann flackerte eine vierte Linie auf, dünn und schief, wie ein fremder Schnitt.
 
@@ -255,22 +268,17 @@ Ansel sah ihn an.
 
 „Es hat jemand gemerkt“, sagte Ansel und tippte auf ihre Regale. „Und aufgeschrieben. Aufschreiben ist nicht dasselbe wie merken. Das haben wir in diesem Beruf noch nicht gelöst.“
 
-
 Merlan wäre glücklich gewesen, diesen Satz zu hören. Taron beschloss, ihn später falsch wiederzugeben, damit Merlan wenigstens Arbeit hatte.
 
-„Die dritte Hand“, sagte Elva.
+„Die dritte Hand“, sagte Taron. „Sie steht in keiner Abschrift, die wir kennen.“
 
-Ansel nickte. „Sie steht in keiner offiziellen Abschrift. Weder in menschlichen noch in zwergischen.“
-
-„Warum nicht?“, fragte Taron.
-
-„Weil offizielle Abschriften von Leuten gemacht werden, die Macht in lesbarer Form bevorzugen.“
+„In keiner offiziellen“, sagte Ansel. „Weder in menschlichen noch in zwergischen. Offizielle Abschriften werden von Leuten gemacht, die Macht in lesbarer Form bevorzugen.“
 
 Der Erzähler sagte: „Ich fühle mich beruflich angegriffen und sachlich bestätigt.“
 
 Ansel breitete ein brüchiges Blatt aus. „Menschenschlüssel, Zwergenschlüssel, Schutzschlüssel. Keiner darf allein entscheiden. Zwei dürfen warnen. Drei dürfen öffnen. Aber nur, wenn jemand spricht, der nicht für Krone, Hammer oder Schutz allein steht.“
 
-„Was passiert, wenn trotzdem ein König spricht?“, fragte Elva.
+Taron dachte an Rugar, der selbst gekommen war, als es angeblich nur um Metall ging. „Und wenn trotzdem ein König spricht?“
 
 Ansel sah zu Brokk.
 
@@ -294,7 +302,7 @@ Alle sahen Taron an.
 
 „Nein“, sagte Taron.
 
-Elva hob eine Augenbraue.
+Oswin hob eine Augenbraue. Von ihm war das eine ganze Rede.
 
 „Ich meine, vermutlich ja, aber ich wollte es der Form halber versuchen.“
 
@@ -324,7 +332,9 @@ Ansel hob den Kopf. Ihre Augen waren wirklich sehr klar.
 
 „Es ist nicht gut“, sagte sie. „Es heißt, dass dein Vorfahr nie einer war. Er hat den Schlüssel weggetragen, ohne dass ihn jemand dazu bestellt hatte. Das ist entweder das Schlimmste in dieser Geschichte oder das Beste, und ich habe vierzig Jahre gebraucht und weiß es noch nicht.“
 
-Elva fragte: „Was denkt Ihr an guten Tagen?“
+Taron wollte fragen, was sie glaubte. Dann fiel ihm ein, dass Leute, die vierzig Jahre über etwas nachgedacht hatten, selten eine Meinung hatten, sondern eher Tage.
+
+„Was denkt Ihr an guten Tagen?“
 
 „An guten Tagen denke ich, dass ein Eid, den nur bestellte Leute sprechen dürfen, kein Eid ist, sondern ein Amt.“
 
@@ -332,14 +342,13 @@ Elva fragte: „Was denkt Ihr an guten Tagen?“
 
 „An schlechten denke ich an die Hebamme.“
 
-
 Oswin trat vom Fenster zurück. „Varga ist in der Stadt.“
 
 Diesmal kam die Gefahr nicht als Hornruf. Sie kam als Ordnung. Auf dem Platz wurden Menschen zur Seite geschickt. Zwei Zwerge gingen von Stand zu Stand und fragten ruhig nach Fremden. Ein dritter hielt ein Tuch in der Hand, auf dem etwas Dunkles gezeichnet war: kein Gesicht, nur ein Umriss. Taron erkannte den Vogel nicht sofort, weil er nicht stolz flog, sondern den Kopf senkte.
 
 Falkenried.
 
-„Sie suchen nicht nur die Schlüssel“, sagte Elva.
+Es dauerte einen Atemzug, bis er begriff, was das Tuch bedeutete. Man suchte keine Schlüssel mit einem Vogel. Man suchte einen Namen.
 
 „Sie suchen dich“, sagte Oswin.
 
@@ -347,35 +356,19 @@ Falkenried.
 
 „Zu spät.“
 
-Elva stand sehr still.
+Taron stand sehr still. Der Graben fiel ihm ein. Die Frauen und der Junge mit dem Bein, das Brot, und er, der sie nach dem Weg gefragt hatte. Nach Ellingen. Vor drei Leuten, die nichts mehr hatten außer dem, was sie jemandem erzählen konnten.
 
-„Der Graben“, sagte sie.
-
-Taron sah sie an.
-
-„Die Frauen im Graben. Ich habe sie nach dem Weg gefragt. Nach Ellingen. Vor drei Leuten, die nichts mehr hatten außer dem, was sie jemandem erzählen konnten.“
-
-Oswin sagte nichts, was Antwort genug war.
+Er sah zu Oswin. Oswin sagte nichts, was Antwort genug war.
 
 „Du hast es gewusst.“
 
 „Ich habe es vermutet.“
 
-„Und nichts gesagt.“
-
-„Du hattest es schon gesagt.“
-
-Elva sah auf ihre Hände. Taron kannte den Blick nicht an ihr. Er kannte ihn von sich.
-
-„Ich wollte ihnen etwas geben“, sagte sie. „Es gab nichts zu geben. Also habe ich sie gefragt. Es war das Klügste, was ich den ganzen Tag gemacht habe, und es hat Varga hergebracht.“
-
 „Er wäre gekommen“, sagte Brokk.
 
-„Morgen. Übermorgen. Nicht heute.“
+„Morgen. Übermorgen.“ Taron sah durch den Fensterriss auf das Tuch. „Nicht heute.“
 
-Niemand widersprach ihr, weil sie recht hatte.
-
-Taron sah durch den Fensterriss auf das Tuch mit dem Vogel.
+Niemand widersprach ihm. Der Erzähler auch nicht, und Taron hätte in diesem Augenblick lieber gehört, dass er sich irrte.
 
 Es war kein gutes Bild. Wer es gezeichnet hatte, hatte einen Falken nie aus der Nähe gesehen: Der Kopf war zu rund, die Krallen zu kurz. Aber die Haltung stimmte, und die Haltung war das, was sie brauchten.
 
@@ -386,7 +379,6 @@ Brokk sah kurz hin. „Von einer Wand in Abendriss.“
 „Dann war ihr Späher tiefer unten, als wir dachten.“
 
 „Ja.“
-
 
 Ansel schob die Papiere zusammen. „Dann habt ihr wenig Zeit. Er sucht die Glocken.“
 
@@ -412,7 +404,6 @@ Ansel sah ihn an. „Dann hört ihr es an derselben Glocke. Sie unterscheidet da
 
 „Ich hatte mich nicht getäuscht. Das ist schlimmer.“
 
-
 „Das ist eine sehr alte-Frau-Antwort.“
 
 „Ja.“
@@ -429,17 +420,7 @@ Ansel stand auf, und dabei sah man ihr Alter zum ersten Mal.
 
 „Und wenn sie diesmal genauer fragen?“
 
-„Dann antworte ich diesmal genauer.“ Sie sagte es ohne Heldenhaftigkeit, so wie man sagt, dass man abends noch Wasser holen muss. „Ihr habt die Glocke. Das ist der Teil, der weiter muss.“
-
-„Er ist meinetwegen heute hier“, sagte Elva.
-
-Ansel sah sie an, und sie machte es nicht weicher.
-
-„Er ist wegen des Schlüssels hier. Du hast ihm einen Tag gespart.“
-
-„Das ist kein Trost.“
-
-„Es sollte keiner sein.“ Ansel nahm den Faden wieder auf. „Wer hilft, macht Fehler, die man sehen kann. Wer nicht hilft, macht welche, die man nicht sieht. Ich habe neunundzwanzig Jahre die zweite Sorte gemacht. Geh.“
+„Dann antworte ich diesmal genauer.“ Sie sagte es ohne Heldenhaftigkeit, so wie man sagt, dass man abends noch Wasser holen muss. „Ihr habt die Glocke. Das ist der Teil, der weiter muss. Geh.“
 
 Brokk sagte etwas auf Zwergisch. Es war kurz, und Ansel antwortete in derselben Sprache, langsamer und mit einem Fehler, den Brokk hörte und stehen ließ.
 
@@ -451,20 +432,25 @@ Brokk sagte etwas auf Zwergisch. Es war kurz, und Ansel antwortete in derselben 
 
 „Ich habe dich gezählt.“
 
-
 Ansel führte die Gruppe durch einen Hinterhof zu einem schmalen Tor.
 
-Der Hinterhof war voller Dinge, die niemand mehr benutzen durfte: Glockenklöppel ohne Glocken, Ketten, zerbrochene Pfannen, ein kleines Windspiel aus Knochen und Keramik, dem alle Plättchen fehlten. Ansel ging daran vorbei, ohne hinzusehen. Elva blieb kurz bei einer Wiege stehen. Daran hing kein Spielzeug, nur ein leerer Faden.
+Der Hinterhof war voller Dinge, die niemand mehr benutzen durfte: Glockenklöppel ohne Glocken, Ketten, zerbrochene Pfannen, ein kleines Windspiel aus Knochen und Keramik, dem alle Plättchen fehlten. Ansel ging daran vorbei, ohne hinzusehen. Taron blieb an einer Wiege hängen. Daran hing kein Spielzeug, nur ein leerer Faden.
 
-„Haben sie sogar das genommen?“, fragte sie.
+„Haben sie sogar das genommen?“
 
 „Es klang im Wind“, sagte Ansel.
 
-Elvas Gesicht wurde hart.
+Taron ging weiter. Er sah nicht noch einmal hin, und der Erzähler bemerkte es.
 
-Taron merkte sich diesen Blick. Nicht weil er Angst vor ihr bekam. Weil er hoffte, ihn später nicht gegen sich zu haben, wenn er wieder versuchte, etwas Wichtiges durch Ausweichen zu lösen.
+„Du siehst nicht hin.“
 
-„Nach Hohensteg“, sagte sie. „Wenn Graufinger noch lebt, wird er euch erklären, was ich nur bewahre.“
+„Nein.“
+
+„Das ist neu. Früher hast du weggesehen, weil du Angst hattest. Jetzt siehst du weg, weil du es dir merken willst.“
+
+Taron antwortete nicht. Er wollte nicht wissen, ob die Stimme recht hatte, und hatte den Verdacht, dass sie es wusste.
+
+„Nach Hohensteg“, sagte Ansel am Tor. „Wenn Graufinger noch lebt, wird er euch erklären, was ich nur bewahre.“
 
 „Ihr kennt Merlan auch?“, fragte Taron.
 
@@ -482,6 +468,10 @@ Taron nahm den Stab nicht. Er nickte nur.
 
 Das Mädchen sah ihn an, als sei er langsamer, als sein Alter erlaubte. „Allen, die Glocken klauen.“
 
+Taron nickte noch einmal. Nicht freundlich im weichen Sinn. Eher wie jemand, der versprach, den Satz nicht fallen zu lassen.
+
+Dann schloss sich das kleine Tor hinter ihnen, lautlos, weil sogar seine Angeln gelernt hatten.
+
 Auf dem ersten Hügel hinter der Stadt sah Taron zurück.
 
 Ellingen lag ordentlich in seiner Mulde. Die Dächer geflickt, die Gassen sauber, die Felder bestellt, soweit man das von hier sehen konnte. Es sah aus wie ein Ort, in dem es den Leuten nicht schlecht ging, und genau darin lag der Trick. Taron begriff mit Verzögerung, dass man einen solchen Ort in einem Bericht nach Waldkirch mit vollem Recht friedlich nennen konnte.
@@ -494,12 +484,9 @@ Ellingen lag ordentlich in seiner Mulde. Die Dächer geflickt, die Gassen sauber
 
 „Ja.“
 
+Sie ritten weiter. Brokks Leute verteilten sich am Hang, Oswin nahm die Spitze, und Taron blieb für eine Weile allein mit Kummer, dem Hügel und dem Gewicht in seinem Beutel.
 
-Elva lächelte dem Mädchen zu. Nicht freundlich im weichen Sinn. Eher wie jemand, der versprach, den Satz nicht fallen zu lassen.
-
-Dann schloss sich das kleine Tor hinter ihnen, lautlos, weil sogar seine Angeln gelernt hatten.
-
-Nur die kleine in Tarons Beutel bewegte sich bei jedem Schritt.
+Die kleine Glocke bewegte sich bei jedem Schritt.
 
 Sie klang nicht.
 

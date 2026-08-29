@@ -26,13 +26,13 @@ Taron sah auf den Zettel und aß weiter, weil ihm nichts Besseres einfiel. „An
 
 „Ich habe ihn gefüttert. Man bestraft keine Boten. Man liest nur nicht alles, was sie bringen, mit der Haltung, die der Absender sich wünscht.“
 
-Elva sah den Zettel an, als wolle sie prüfen, ob dieselbe Hand ihn geschrieben hatte wie den Erlass, den sie abgeschrieben hatte. Dann drehte sie ihn um, ohne ihn zu lesen.
+Taron kannte die Worte. Obhut. Geleiten. Elva hatte sie in Grauwehr aus einer hastigen Abschrift vorgelesen, mit Waldkircher Siegel oben, schlecht nachgezeichnet. Malchior hatte seit Wochen denselben Satz und verteilte ihn inzwischen auf immer mehr Papier. Taron drehte den Zettel um, ohne ihn ganz zu lesen.
 
-Brokk aß im Stehen. Oswin aß am Fenster. Elva aß erst, nachdem sie gesehen hatte, dass alle anderen eine Schale hatten. Taron bemerkte es und sagte nichts, weil manche Wahrheiten durch Aussprechen kleiner wurden. Merlan gab ihr trotzdem die größte Portion, ohne hinzusehen. Vielleicht war er nicht warm. Aber er war aufmerksam, und das war in seinem Haus fast dasselbe.
+Brokk aß im Stehen. Oswin aß am Fenster. Merlan gab Taron die größte Portion, ohne hinzusehen. Vielleicht war er nicht warm. Aber er war aufmerksam, und das war in seinem Haus fast dasselbe.
 
 Draußen ging Regen gegen die Scheiben. Hohensteg wirkte durch das Glas wie ein Ort, der beschlossen hatte, heute nicht in alte Angelegenheiten verwickelt zu werden. Das war klug von Hohensteg und völlig wirkungslos.
 
-Elva stellte den Schutzschlüssel auf den Tisch, noch in Stoff gewickelt.
+Oswin legte den Schutzschlüssel auf den Tisch, noch in Stoff gewickelt, und nahm die Hand nicht sofort weg.
 
 Brokk legte den Zwergenschlüssel daneben.
 
@@ -61,8 +61,6 @@ Brokk betrachtete die Kreide. „Zwergische Binder hätten Salz genommen.“
 „Ich hatte welches“, sagte Merlan. „Dann kam ein Winter, und Menschen brauchten Suppe.“
 
 Brokk nickte. Das war kein sentimentaler Moment, aber ein ehrlicher. In Zeiten von Hunger wurde selbst Schutzkreis-Material politisch.
-
-„Was sind sie?“, fragte Elva.
 
 Merlan setzte sich nicht. Er ging um den Tisch, als könne er die Antwort aus einem besseren Winkel weniger gefährlich machen.
 
@@ -96,7 +94,7 @@ Oswin sah vom Fenster her. „Das ist derselbe Satz wie bei mir und der Beute im
 
 Niemand widersprach ihm, was schlimmer war als Widerspruch.
 
-Elva fragte: „Wenn Ihr nach Karndorn zurückkehrt und ihn hinlegt, ist es dann wieder gut?“
+„Wenn Ihr nach Karndorn zurückkehrt und ihn hinlegt“, fragte Taron, „ist es dann wieder gut?“
 
 „Wenn ich ihn hinlege, nimmt Rugar ihn“, sagte Brokk. „Und wenn ich ihn behalte, bin ich ein Zwerg, der den Eid seines Volkes in einer Holzschale in einem Menschenhaus liegen lässt.“
 
@@ -114,9 +112,7 @@ Brokk hob den Kopf.
 
 „Das“, sagte er nach einer Weile, „ist tatsächlich etwas.“
 
-„Und der Schutzschlüssel?“, fragte Elva.
-
-Merlan sah auf die eingewickelte Form. „Der gefährlichste. Er spricht nicht für Menschen oder Zwerge. Er spricht für die Bindung selbst. Er kann bewahren, aber auch festhalten. Er kann lösen, aber auch freisetzen.“
+Merlan sah auf die eingewickelte Form vor Oswin. „Der gefährlichste. Er spricht nicht für Menschen oder Zwerge. Er spricht für die Bindung selbst. Er kann bewahren, aber auch festhalten. Er kann lösen, aber auch freisetzen.“
 
 „Du benutzt absichtlich Worte, die in beide Richtungen schneiden“, sagte Oswin.
 
@@ -148,13 +144,11 @@ Taron hob den Kopf. „Bitte sag nicht, der Wein war absichtlich.“
 
 „Ungefähr.“
 
-Elva beugte sich über die Stelle. „Wenn jemand die Prophezeiung fälschen wollte, warum so unordentlich?“
+Taron beugte sich über die Stelle. Er hatte den Fleck schon einmal angesehen, in diesem Haus, als er noch geglaubt hatte, es gehe um eine Krone. „Wenn jemand die Prophezeiung fälschen wollte, warum so unordentlich?“
 
 „Weil eine Lücke besser ist als ein falsches Wort“, sagte Merlan. „Ein falsches Wort kann widerlegt werden. Eine Lücke wird von Wünschen gefüllt.“
 
-Brokk sah auf den Fleck. „Menschen lasen Freiheit für Lichtenhain.“
-
-„Zwerge Freiheit für Karndorn“, sagte Elva.
+Brokk sah auf den Fleck. „Menschen lasen Freiheit für Lichtenhain. Wir Freiheit für Karndorn.“
 
 Taron sah auf die drei Schalen. „Und Niemand las Freiheit für sich.“
 
@@ -206,7 +200,7 @@ Merlan sah ihn milde an. „Steine nicht. Eide schon, wenn genug Blut, Namen und
 
 Brokk beugte sich über die Schalen. „Rugar will damit Karndorn befreien.“
 
-„Von was?“, fragte Elva.
+„Von was?“, fragte Taron.
 
 Niemand antwortete sofort.
 
@@ -232,11 +226,9 @@ Merlan zog ein weiteres Blatt hervor. Darauf standen alte Begriffe: Hüter, Eidt
 
 Es wurde still am Tisch.
 
-Elva sagte als Erste, was alle gleichzeitig gedacht hatten und niemand aussprechen wollte.
+Der Erzähler sagte es als Erster, leise und nur für Taron: „Dann kann man auch mich lösen.“
 
-„Dann kann man auch Tarons lösen.“
-
-Taron hatte das Wort nicht erwartet, obwohl es zwei Sätze lang auf ihn gewartet hatte.
+Taron hatte den Satz nicht von ihm erwartet, obwohl er zwei Sätze lang auf dem Tisch gelegen hatte. Er gab ihn weiter, so genau er konnte. „Er sagt, dann kann man auch ihn lösen.“
 
 „Theoretisch“, sagte Merlan.
 
@@ -288,7 +280,7 @@ Der Erzähler sagte nur: „Sag: die andere Stimme.“
 
 Brokk schloss die Augen. „Niemand.“
 
-„Wenn Niemand Rugar einredet, dass Schutz ohne Zustimmung erlaubt ist“, sagte Elva, „dann kann er alles rechtfertigen.“
+„Wenn Niemand Rugar einredet, dass Schutz ohne Zustimmung erlaubt ist“, sagte Taron langsam, „dann kann er alles rechtfertigen.“
 
 „Ja“, sagte Merlan. „Und wenn er die Schlüssel bekommt, kann er aus Rechtfertigung Handlung machen.“
 
@@ -298,7 +290,7 @@ Brokk starrte ihn an. „Dann kann Rugar gerettet werden.“
 
 Taron kannte dieses Vielleicht inzwischen. Es war das Lieblingswort von Leuten, die einem eine Leiter in einen Brunnen reichten und unten nicht nachgesehen hatten, ob Schlangen darin lagen.
 
-„Und wenn der andere nicht gerettet werden will?“, fragte Elva.
+Taron wollte die nächste Frage nicht stellen. Er stellte sie trotzdem. „Und wenn der andere nicht gerettet werden will?“
 
 Merlan sah zum Schutzschlüssel.
 
@@ -312,11 +304,43 @@ Der Erzähler sagte: „Ich begrüße diesen Beitrag der Küche. Er fasst die La
 
 Merlan nahm den Topf vom Feuer. Niemand lachte, aber Taron merkte, dass alle wieder atmeten.
 
-In dieser Nacht schliefen sie nicht viel. Merlan schrieb, Brokk zeichnete Eidzeichen aus Erinnerung nach, Elva ordnete Ansels Abschriften, und Oswin stand am Fenster. Taron saß vor den drei Schalen und spürte, dass die Schlüssel einander kannten.
+In dieser Nacht schliefen sie nicht viel. Merlan schrieb und ordnete Ansels Abschriften, Brokk zeichnete Eidzeichen aus Erinnerung nach, und Oswin stand am Fenster. Taron saß vor den drei Schalen und spürte, dass die Schlüssel einander kannten.
+
+Irgendwann schliefen die anderen doch. Brokk auf dem Boden, den Rücken an der Wand, die eiserne Hand im Schoß. Oswin im Stuhl am Fenster, mit geschlossenen Augen, was bei ihm nicht dasselbe war wie Schlaf. Merlan über seinen Blättern, die Brille noch auf der Nase, die Feder noch in der Hand.
+
+Taron blieb am Tisch sitzen. Drei Schalen, drei Kreise, eine Lücke nach Süden.
+
+„Waldkirch liegt da hinten“, sagte er leise, in die Lücke hinein.
+
+„Zwei Tage. Bei deinem Tempo drei.“
+
+„Ich hatte gehofft, du sagst etwas Tröstliches.“
+
+„Ich habe die Entfernung berichtigt. Das ist eine Form von Fürsorge.“
+
+Taron sah auf den Menschenschlüssel. Als er Waldkirch verlassen hatte, war Elva an der Gerbermauer stehen geblieben, neben einem toten Dornbusch mit einem roten Tuch daran, und hatte gesagt, jemand müsse dort bleiben, der zuhört. Ihr Küchenmesser steckte immer noch in seinem Gürtel, neben Brodas Dolch, und war immer noch besser für Käse. Er fragte sich, was sie inzwischen gehört hatte. Dann fragte er sich, ob er das wissen wollte.
+
+„Du denkst zu laut“, sagte der Erzähler.
+
+„Dann hör weg.“
+
+„Das ist bei uns baulich nicht vorgesehen.“
+
+Taron legte die Hände flach auf den Tisch, links und rechts von seiner Schale, ohne den Schlüssel zu berühren. Das Holz war kühl. Unter dem Holz war Boden, unter dem Boden Stein, und der Stein reichte, wenn man ihm lange genug folgte, bis unter eine Burg, in der man ihn einmal in ein Loch geworfen hatte.
+
+„Der Fleck“, sagte er. „Auf der Prophezeiung. War das dein Wein?“
+
+Der Erzähler antwortete nicht.
+
+„Das war ein Scherz.“
+
+„Ich weiß.“
+
+„Du hast trotzdem zu lange gebraucht.“
 
 Kurz nach Mitternacht begann die kleine Handglocke aus Ellingen in Tarons Beutel zu zittern.
 
-Sie gab keinen Ton von sich. Nur ein feines Beben, das durch Leder und Stoff bis in den Tisch wanderte. Merlan hob sofort den Kopf. Er sah nicht aus wie ein Mann, der geweckt wurde. Er sah aus wie ein Mann, der gehofft hatte, ein Problem warte bis zum Morgen, und nun persönlich enttäuscht wurde.
+Sie gab keinen Ton von sich. Nur ein feines Beben, das durch Leder und Stoff bis in den Tisch wanderte. Merlan hob den Kopf. Er sah nicht aus wie ein Mann, der geweckt wurde. Er sah aus wie ein Mann, der gehofft hatte, ein Problem warte bis zum Morgen, und nun persönlich enttäuscht wurde.
 
 „Alle still“, sagte er.
 
@@ -330,7 +354,7 @@ Der Erzähler sagte nichts. Taron spürte ihn wie eine Hand knapp vor einer Flam
 
 Die Schlüssel bewegten sich wieder. Der Menschenschlüssel drehte sich nach Osten. Der Zwergenschlüssel nach Norden. Der Schutzschlüssel blieb, wo er war. In der Kreidelücke nach Süden erschien ein dunkler Punkt.
 
-Brokk beugte sich vor. „Waldkirch.“
+Brokk stand neben dem Tisch, bevor Taron ihn hatte aufstehen hören. „Waldkirch.“
 
 „Oder darunter“, sagte Merlan.
 
@@ -340,9 +364,7 @@ Für einen Augenblick hörte er etwas aus weiter Ferne: kein Brüllen, kein Horn
 
 Der Hunger von Waldkirch.
 
-Elva griff nach seiner Hand. „Taron?“
-
-„Er ist wach.“
+„Er ist wach“, sagte Taron.
 
 Niemand fragte, wer.
 
@@ -392,7 +414,7 @@ Gegen Morgen sagte Merlan: „Ihr müsst nach Waldkirch.“
 
 Vorher schrieb er drei Abschriften derselben Warnung. Eine für Waldkirch, eine für Ellingen, eine für Karndorn, falls Karndorn jemals wieder bereit war, Papier aus Menschenhand nicht sofort als Beleidigung zu betrachten. Jede begann anders und endete gleich: Kein Schutz ohne Stimme des Geschützten.
 
-„Das ist der Kern?“, fragte Elva.
+„Das ist der Kern?“, fragte Taron.
 
 „Im Moment“, sagte Merlan. „Kerne haben die unangenehme Eigenschaft, später Bäume zu werden.“
 
@@ -420,7 +442,7 @@ Taron sah es und verstand es zu langsam, wie er inzwischen die meisten Dinge ver
 
 Merlan sah durch den Raum. Vier Regale, ein Herd, ein Tisch mit Brandflecken, an dem er sechsundzwanzig Jahre gesessen hatte. Er nahm nicht die wertvollsten Rollen mit. Er nahm die, die niemand anders lesen konnte.
 
-„Und das Übrige?“, fragte Elva.
+„Und das Übrige?“, fragte Taron.
 
 „Wird von jemandem gefunden, der entweder klug oder gründlich ist. Ich kann das nicht beeinflussen, und es ist erstaunlich, wie erleichternd das ist.“
 
@@ -429,7 +451,8 @@ Bevor er zur Tür ging, legte er ein Blatt auf den Tisch, sichtbar, in der Mitte
 „Was steht darauf?“, fragte Taron.
 
 „Wo man anfangen soll.“
- Seine Hände zitterten nicht. Das fiel Taron auf. Merlan hatte Angst, sicher. Aber er war in seinem eigenen Gebiet angekommen: Worte gegen falsche Worte, Abschriften gegen Lücken, Tinte gegen Blut, soweit Tinte es eben schaffte.
+
+Seine Hände zitterten nicht. Das fiel Taron auf. Merlan hatte Angst, sicher. Aber er war in seinem eigenen Gebiet angekommen: Worte gegen falsche Worte, Abschriften gegen Lücken, Tinte gegen Blut, soweit Tinte es eben schaffte.
 
 Bevor er die Tasche schloss, streckte Merlan die Hand aus.
 
@@ -483,13 +506,13 @@ Merlan schob Taron die Schachtel wieder zu.
 
 Taron nahm sie nicht sofort. „Warum immer noch ich?“
 
-„Weil Oswin sie zu früh taktisch einsetzen würde, Brokk sie für zu zwergisch wertvoll halten könnte, Elva bereits den klügeren Teil dieser Gruppe trägt, und du eine bemerkenswerte Begabung hast, Dinge genau so lange nicht zu benutzen, bis alle nervös werden.“
+„Weil Oswin sie zu früh taktisch einsetzen würde, Brokk sie für zu zwergisch wertvoll halten könnte, und du eine bemerkenswerte Begabung hast, Dinge genau so lange nicht zu benutzen, bis alle nervös werden.“
 
 „Das war sehr spezifisch beleidigend.“
 
 „Danke.“
 
-Elva nahm die Schachtel, steckte sie in Tarons Beutel und zog den Riemen fest. „Er verliert sie sonst beim Nachdenken.“
+Merlan nahm die Schachtel wieder, steckte sie selbst in Tarons Beutel und zog den Riemen fest. „Er verliert sie sonst beim Nachdenken“, sagte er zu Oswin.
 
 „Ich stehe direkt hier.“
 
@@ -508,6 +531,8 @@ Oswin sah Taron ernst an. „Nicht werfen, weil du Angst hast.“
 Der Satz blieb auf dem Tisch liegen, schwerer als die Schachtel. Taron nickte, ohne eine spitze Antwort zu finden. Der Erzähler hätte eine gehabt, sagte sie aber nicht.
 
 Das machte sie leider wichtiger.
+
+Zuletzt nahm Merlan den Schutzschlüssel aus seiner Schale, ohne den Stoff zu öffnen, und legte ihn in eine gefütterte Holzkapsel. Er reichte sie Oswin. Oswin steckte sie in seine Satteltasche, als sei sie ein schlafender Feind, und zog den Riemen zweimal nach.
 
 Oswin sah aus dem Fenster. „Wenn wir nach Waldkirch gehen, laufen wir zwischen beide Heere.“
 

@@ -1,5 +1,5 @@
-- Brokk fuehrt Taron, Oswin und Elva als "Gaeste mit schlechten Optionen" durch das Grenzland, ohne ihnen die Waffen abzunehmen.
-- Ein zweiter Zwergentrupp unter Varga taucht auf. Varga hat einen neuen Befehl aus Karndorn: Taron soll lebend zum Zwergenkoenig, Oswin bei Widerstand tot, Elva nach Ermessen.
+- Brokk fuehrt Taron und Oswin als "Gaeste mit schlechten Optionen" durch das Grenzland, ohne ihnen die Waffen abzunehmen. Taron traegt Elvas Kuechenmesser; sie selbst ist in Waldkirch geblieben.
+- Ein zweiter Zwergentrupp unter Varga taucht auf. Varga hat einen neuen Befehl aus Karndorn: Taron soll lebend zum Zwergenkoenig, Oswin bei Widerstand tot.
 - Dadurch wird bestaetigt, dass der Zwergenspaher aus Abendriss genug gemeldet hat: Die Zwerge wissen oder vermuten stark, dass Taron den Menschenschluessel traegt.
 - Taron will erstmals die Rauchkugel einsetzen, scheitert aber fast an der Lederschlaufe und macht Laerm; Brokk muss sich offen zeigen und die Lage mit Autoritaet retten.
 - Varga sagt, sein Auftrag komme von `Niemand`. Brokk erkennt darin den direkten Einfluss der Stimme auf den Zwergenkoenig und widerspricht vorsichtig, aber klar.
@@ -8,9 +8,10 @@
 - Brokk erklaert, dass Taron wichtig ist, weil seine Stimme ihn noch widersprechen laesst. Er sieht darin eine gefaehrliche Hoffnung fuer Koenig Rugar.
 - Am Ende fuehrt Brokk die Gruppe auf einen alten Pfad tiefer ins Grenzland, Richtung Schutzschluessel.
 
-- Varga steigt ins Bachbett und mustert die "Beute": Taron ohne Fesseln, Oswin ohne abgenommenes Schwert, Elva ohne Messer. Oswin verweigert seine Zahl, Varga nennt seine eigene (vierhundertelf) und sagt, sie mache ihn nicht besser.
-- Elva antwortet auf Vargas Aufforderung, ihm einen Anlass zu geben, mit "Ich koche". Es funktioniert.
+- Varga steigt ins Bachbett und mustert die "Beute": Taron ohne Fesseln, Oswin ohne abgenommenes Schwert. Oswin verweigert seine Zahl, Varga nennt seine eigene (vierhundertelf) und sagt, sie mache ihn nicht besser.
+- Taron erzaehlt selbst von Marta Grubenlicht (duenne Suppe, dickes Brot: aus neun Wochen dreizehn) und behaelt die groessere Brothaelfte, ohne es Oswin erklaeren zu koennen.
 - Doppelte Bedeutung von `Niemand`: Varga meint erst den Namen, dann die Auskunft, dass niemand neben dem sprechenden Koenig stand. Brokk hoert den Unterschied.
 - Der Laeufer Torv sieht die Spuren im Laub und meldet sie nicht sofort.
 - Brokk begruendet seine Hoffnung mit Rugar in Hollbrand und mit Riedwacht: Tarons Stimme laesst sich widersprechen, deshalb fehlt nicht der Streit, sondern jemand, der widerspricht.
 - Brokk musste sich zeigen, weil Tarons Knie ins Laub brach. Der Bruch waere sonst spaeter und an einem Ort seiner Wahl gekommen.
+- Neuer Schluss: Taron reitet allein am Ende des Trupps und fragt den Erzaehler nach dem erschrockenen "Ah". Der Erzaehler weicht aus (Namen, die man ablegt, und Namen, die man abgenommen bekommt); Taron merkt, dass niemand ihn gefragt hat, Brokk aber wenigstens seine Leute.

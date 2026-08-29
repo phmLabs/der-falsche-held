@@ -5,7 +5,7 @@
 - Rugar sagt sinngemaess, ein Koenig, der nur seine Eigenen schuetzt, sei nur ein groesserer Hauptmann.
 - Brokk berichtet von Riedwacht: Unter der alten Kapelle lag der Zwergenschluessel. Als Rugar ihn beruehrte, sah er erstmals zu einer leeren Stelle und hoerte etwas.
 - Danach veraenderte sich Rugar: erst Misstrauen gegen Menschen, dann Suche nach Menschenschluessel und Schutzschluessel, dann der Satz, die Schluessel brächten Freiheit.
-- Taron und Elva erkennen, dass damals niemand laut genug fragte, fuer wen diese Freiheit bestimmt war.
+- Taron stellt die Frage, die damals niemand laut genug stellte: fuer wen diese Freiheit bestimmt war. In einer Nachtszene allein mit dem Erzaehler haelt er der Stimme vor, dass auch sie ihn nie gefragt hat; der Erzaehler antwortet knapp und ausweichend, aber ehrlich.
 - Ein Spaeher meldet, dass Varga die Wachgrube mit mindestens dreissig Zwergen erreicht hat. Die Gruppe kann nicht kaempfen und muss tiefer ins alte Grenzland.
 - Am Ende spuert Taron in einer Innenfalte seines Mantels kurz etwas Hartes, wird aber durch die Nachricht von Licht im Norden unterbrochen. Der Mantel-Payoff wird vorbereitet.
 

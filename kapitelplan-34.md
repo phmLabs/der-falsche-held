@@ -51,11 +51,14 @@ den Menschenschlüssel zu holen.
 Taron redet, ohne ihn zu kennen. Nachts fällt in der Schankstube sein Name.
 
 **11. Elvas Warnung.** Elva hat aus der Schreibstube einen Erlass abgeschrieben:
-Taron soll bei seiner Rückkehr in „Obhut“ genommen werden. Sie schließt sich an.
+Taron soll bei seiner Rückkehr in „Obhut“ genommen werden. Sie geht mit zurück
+nach Waldkirch.
 
 **12. Der Auftritt.** Taron spielt in Waldkirch den Auserwählten, um wieder
-aufbrechen zu dürfen. Er bekommt ein Reisesiegel statt eines Reichseids.
-Malchior schickt Botenraben hinterher.
+aufbrechen zu dürfen. Er bekommt ein Reisesiegel statt eines Reichseids. Elva
+bleibt in Waldkirch – bei Marta, der Küche und der Schreibstube – und gibt Taron
+ihr Küchenmesser. Malchior schickt Botenraben hinterher. Taron ist wieder allein
+mit der Stimme.
 
 **13. Graue Mäntel.** Brokks Trupp stellt sie an der alten Südbrücke. Taron wirft
 nicht die Rauchkugel, sondern den Menschenschlüssel, und verschafft sich damit
@@ -79,6 +82,7 @@ ihre Zahlen. In Eidgrund liegt der Schutzschlüssel.
 **18. Die dritte Hand.** Die Inschrift von Eidgrund zeigt: Weder Menschen noch
 Zwerge haben den Eid allein gebrochen. Rugar hat die Warnung entfernt: Kein
 Schutz ohne Stimme des Geschützten. Erstmals fällt das Wort vom „anderen“.
+Oswin trägt den Schutzschlüssel.
 
 **19. Der Erzähler schweigt falsch.** Taron fragt direkt. Der Erzähler gibt zu,
 dass er es weiß und dass er gehen müsste, wenn er es sagt.
@@ -91,9 +95,13 @@ kleine Handglocke.
 einem Tisch. Das Eidenschloss ist kein Werkzeug, sondern ein Gefängnis. Der
 Eidstein unter Waldkirch erwacht. Merlan reist mit.
 
-**22. Was Elva gehört hat.** Elva sagt Taron, was sie wirklich gehört hat: Für
-Albrecht und Malchior ist sein Leiden „tragbar“. Sie ist nicht wegen des Helden
-gekommen, sondern wegen Taron.
+**22. Was Elva gehört hat.** Waldkirch aus Elvas Sicht. Hunger, dünne Suppe,
+Botenraben. In der Schreibstube liest sie die neue Anordnung für Tarons Rückkehr,
+sieht, wie Kessas Warnung sorgfältig aufgeschrieben und dann nicht gelesen wird,
+und hört im kleinen Saal, dass Tarons Leiden für Albrecht und Malchior „tragbar“
+ist. Malchior findet heraus, wer den Erlass abgeschrieben hat, und nimmt Elva
+freundlich in „Obhut“: eine Kammer im Bergfried, zu ihrem Schutz. Schutz ohne
+Zustimmung – Elva erkennt das Muster.
 
 **23. Der Schutzdämon.** Merlan erklärt beim Gehen, wie Schutzdämonen gebunden
 werden und warum die dritte Frage – Schutz um welchen Preis – niemand allein
@@ -116,8 +124,10 @@ drei Tage später liegt kein Eintrag vor. Danach warten sie auf ein Zeichen.
 
 ## Teil 3 – Waldkirch
 
-**25. Rückkehr nach Waldkirch.** Eine Burg voller Hunger, Angst und roter
-Stoffstreifen. Elva sagt Albrecht ins Gesicht, was sie gehört hat. Dann bläst
+**25. Rückkehr nach Waldkirch.** Eine Burg voller Hunger und Angst. Marta sagt
+Taron, dass Elva oben in „Obhut“ ist. Im Rittersaal fordert Taron zuerst Elva,
+dann erst wird über Schlüssel gesprochen. Elva sagt Albrecht ins Gesicht, was
+sie gehört hat, und bekommt den Schutzschlüssel und Ansels Handglocke. Dann bläst
 das Horn.
 
 **26. Der Krieg beginnt.** Rugar spricht vor der Mauer und nennt echte Not, um

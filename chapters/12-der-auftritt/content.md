@@ -486,7 +486,41 @@ Das war schwerer zu tragen als der Schlüssel.
 
 „Ich hätte fast geglaubt, was ich gesagt habe“, sagte er.
 
-Oswin kam mit den Pferden. Er sah Elva, dann das Siegel, dann den Weg nach Südosten.
+Elva gab ihm das Siegel zurück. Sie hatte es richtig gelesen, mit dem Finger unter der Zeile, so wie sie den Erlass gelesen hatte.
+
+„Ich bleibe hier“, sagte sie.
+
+Taron brauchte einen Moment. Auf dem Weg von der Burg herunter hatte er mehrere Gespräche mit ihr geführt, alle im Kopf, und in keinem war dieser Satz vorgekommen.
+
+„Du wolltest mit.“
+
+„Ich wollte dich warnen. Das habe ich.“ Sie deutete mit dem Kinn zur Burg hoch. „Marta hat Mehl für drei Wochen und tut so, als wären es sechs. Die Ziegen geben weniger. Und in der Schreibstube liegt jeden Tag ein neues Blatt, das jemand lesen sollte, der nicht dafür bezahlt wird, es gut zu finden.“
+
+„Das ist gefährlich.“
+
+„Suppe tragen ist nicht gefährlich. Niemand sieht Leute an, die Suppe tragen. Das ist der Punkt.“
+
+Taron setzte zu einem Widerspruch an. Diesmal hatte er ihn wirklich fertig, mit Verantwortung und Gefahr und der Frage, wer sie herausholen würde, wenn Malchior anfing, Blätter zu zählen. Dann merkte er, worum es ihm eigentlich ging. Er wollte nicht allein reiten.
+
+Das war kein Grund. Das war ein Wunsch, und Wünsche waren auf dieser Reise bisher schlecht bezahlt worden.
+
+Er ließ den Satz weg. Es wurde langsam eine Gewohnheit.
+
+„Wenn du zurückkommst“, sagte Elva, „hängt das Tuch hier. Solange ich es aufhängen kann.“
+
+„Und wenn nicht?“
+
+„Dann hat jemand aufgehört, mich Suppe tragen zu lassen.“
+
+Sie sagte es wie eine Wetterfrage. Taron kannte inzwischen den Unterschied zwischen ihrer Ruhe und ihrer Angst. Er saß in den Schultern. Die Schultern waren heute ruhig. Fast.
+
+Elva griff in den Mantel und drückte ihm etwas in die Hand. Ihr Küchenmesser. Kurz, mit einem Holzgriff, der vom vielen Waschen glatt und hell geworden war.
+
+„Das brauchst du selbst.“
+
+„Ich habe eine Küche voller Messer. Du hast einen Ritter, der nicht überall gleichzeitig stehen kann.“
+
+Oswin kam mit den Pferden. Er sah Elva, dann das Messer in Tarons Hand, dann den Weg nach Südosten. Wenn er eine Meinung dazu hatte, dass die Gruppe kleiner wurde, behielt er sie dort, wo er die meisten seiner Meinungen aufbewahrte.
 
 „Wir müssen fort.“
 
@@ -498,11 +532,15 @@ Auf dem inneren Turm stieg ein schwarzer Vogel auf. Dann ein zweiter. Botenraben
 
 Taron stieg auf Kummer.
 
-Elva kletterte hinter ihm auf, weil es kein drittes Pferd gab und weil Kummer in dieser Frage nicht gefragt wurde. Das Pferd drehte den Kopf und sah Taron an, als sei sein Vertrauen endgültig verspielt.
+Das Pferd drehte den Kopf, sah, dass niemand hinter Taron aufkletterte, und atmete hörbar aus. Es war das erste Mal an diesem Tag, dass Kummer mit einer Entscheidung einverstanden war. Taron war es nicht.
 
-„Ich weiß“, sagte Taron. „Mir gefällt es auch nicht.“
+Elva stand neben dem toten Dornbusch und hob nicht die Hand. Sie zog nur den Knoten am roten Tuch fester.
 
-„Sprichst du mit dem Pferd oder mit mir?“, fragte Elva.
+„Praktische Leute bleiben, wo die Töpfe sind“, sagte der Erzähler. „Du wirst dich daran gewöhnen müssen, wieder nur mit mir zu reden.“
+
+„Ich habe nie aufgehört, mit dir zu reden.“
+
+„Doch. Seit Grauwehr. Es war sehr erholsam.“
 
 Sie ritten los, diesmal nicht als Rückkehr.
 

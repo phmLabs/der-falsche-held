@@ -3,8 +3,8 @@
 - Der Erzaehler nennt seinen ersten Auftrag (den Traeger des Menschenschluessels bewahren) und erklaert, warum er mit einem Kind im Stall redete: Das Dach hatte ein Loch, und niemand kam.
 - Dorf mit vier bewohnten Haeusern; ein Alter schnitzt Falken mit gesenktem Kopf. Die Hueterzeichen kommen wieder heraus.
 - Marta hat dem Kind im Stall geglaubt: zwei Schalen, eine mit Tuch abgedeckt.
-- Taron findet Arvens Zettel in der Mantelfalte. Elva erkennt den Stallbogen im R: dieselbe Hand, mit der man sie Rueben zaehlen liess.
+- Taron findet Arvens Zettel in der Mantelfalte. Er erkennt den Stallbogen im R von den Listen am Stallnagel: die Schrift fuer Dinge, die man besitzt.
 - Am Feuer: Was der andere ist. Ein Schutzdaemon, der Schutz ohne Zustimmung fuer wirksamer hielt; gebannt von mueden Leuten, vergessen. Vergessen ist fuer solche Wesen ein Raum ohne Licht. Der Erzaehler hat seine zehn Jahre mit dem Gedanken an Martas Linsensuppe ueberstanden. Namen ziehen an; "Niemand" ist eine Stelle, die niemand rufen kann. Merlan: Der andere braucht die drei Schluessel und eine Schlacht.
 - Traum von Arven, dem Messer und dem Erzaehler, der recht gibt und trotzdem aufhaelt.
-- Elva: "Wenn du etwas tust, das nicht zu deinem Gesicht passt, sage ich es. Laut."
-- Der Bote Niko: Die Zwerge marschieren, Rugar fuehrt sie selbst, vier Banner, also die unteren Hallen. Aufbruch nach Waldkirch. Rauch im Westen: Bauern brennen Felder ab. "Dann muessen wir leiser werden?" "Nein. Genauer."
+- Taron allein mit der Stimme: Wenn der Erzaehler ihn aufhaelt, merkt er es nicht. Er verlangt, dass der Erzaehler es ihm sagt; der verspricht nichts, hoert aber zu. Taron denkt kurz an Elva in Waldkirch, die sein Gesicht gekannt haette.
+- Der Bote Niko: Die Zwerge marschieren, Rugar fuehrt sie selbst, vier Banner, also die unteren Hallen. Aufbruch nach Waldkirch. Rauch im Westen: Bauern brennen Felder ab. Taron: "Dann muessen wir leiser werden?" Oswin: "Nein. Genauer."

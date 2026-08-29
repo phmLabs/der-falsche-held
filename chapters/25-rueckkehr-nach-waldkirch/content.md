@@ -12,19 +12,19 @@ Taron kannte manche Gesichter. Das war schlimmer, als Fremde zu sehen. Fremde ko
 
 Der Bäckerjunge Jost, der ihm früher einmal absichtlich verbrannte Brotrinden gegeben hatte, trug jetzt einen Speer, der zu lang für ihn war. Frau Ebel vom Brunnen hatte drei Kinder an einer Schnur zusammengebunden, damit keines im Gedränge verlorenging. Ein alter Knecht, der Taron früher jeden Morgen ausgelacht hatte, weil Taron mit Kummer sprach, saß auf einem Sack Hafer und weinte leise.
 
-„Das ist keine Festung“, sagte Elva.
+„Das ist keine Festung“, sagte Taron.
 
 Oswin sah auf die Mauern. „In diesem Augenblick schon.“
 
 „Nein. Das sind Leute, die hoffen, dass Stein für sie entscheidet.“
 
-Der Ritter antwortete nicht. Vielleicht, weil sie recht hatte. Vielleicht, weil eine Festung genau das war.
+Der Ritter antwortete nicht. Vielleicht, weil Taron recht hatte. Vielleicht, weil eine Festung genau das war.
 
-„Das ist schlimmer“, sagte Elva.
+Der Erzähler sagte: „Das ist schlimmer.“
 
 „Ja“, sagte Taron.
 
-Der Erzähler schwieg. Vielleicht fand selbst er keinen trockenen Winkel an dieser Wahrheit.
+Es war das erste Mal seit Tagen, dass die Stimme einen Satz ohne Widerhaken abgab. Taron hätte lieber einen mit gehabt.
 
 Am Tor erkannte man Oswin sofort, und die Speere hoben sich ein Stück. Dann erkannte man Brokk, und die Speere sanken wieder.
 
@@ -66,19 +66,25 @@ Vor Martas Backstube roch es nicht nach frischem Brot. Das traf Taron härter al
 
 Marta stand vor der Backstube.
 
-Sie sah Taron, legte eine Hand an den Mund und kam nicht sofort zu ihm. Neben ihr standen zwei Kinder mit leeren Körben.
+Sie sah Taron, legte eine Hand an den Mund und kam dann doch. Drei Schritte, mehr ließen die Soldaten nicht zu. Neben ihr blieben zwei Kinder mit leeren Körben stehen.
 
-Taron wollte zu ihr gehen.
+„Sie haben Elva“, sagte Marta. Leise, so wie sie sonst Preise nannte, die niemand zahlen konnte. „Oben, in der Kammer über der Kapelle. Sie nennen es Obhut.“
 
-Oswin sagte leise: „Nicht stehen bleiben.“
+Taron blieb stehen.
 
-„Ich weiß.“
+Elva, die jeden knarrenden Stufenabsatz dieser Burg kannte, saß hinter einer Tür, die von außen zuging. Weil sie ihn gewarnt hatte.
 
-„Später.“
+Oswin sagte leise: „Später.“
 
-Taron nickte. Später war ein Wort, das viel versprach und wenig garantierte.
+„Nein.“
 
-Marta rief ihm nicht nach. Sie hob nur die Hand, nicht hoch, nicht dramatisch. Eine kleine Bewegung, die sagte: Ich sehe dich. Iss, wenn du kannst. Stirb nicht, wenn es sich vermeiden lässt. Marta konnte mit einer Handbewegung mehr sagen als Malchior mit drei Abschriften.
+„Taron.“
+
+„Nein.“
+
+Marta sah ihn an, lange genug, um zu sehen, was in seinem Gesicht vorging, und offenbar gefiel es ihr. „Ich bring ihr Suppe. Sie isst. Sie zählt Stufen und beschwert sich über den Riegel. Es geht ihr gut genug, um wütend zu sein.“ Dann wurde ihre Stimme wieder die alte. „Geh. Sag es ihm ins Gesicht, nicht mir.“
+
+Sie hob die Hand, nicht hoch, nicht dramatisch. Eine kleine Bewegung, die sagte: Ich sehe dich. Iss, wenn du kannst. Stirb nicht, wenn es sich vermeiden lässt. Marta konnte mit einer Handbewegung mehr sagen als Malchior mit drei Abschriften.
 
 Taron hob die Hand zurück.
 
@@ -108,7 +114,37 @@ Der Erzähler sagte: „Gewagte Diplomatie. Endlich ein Stil.“
 
 Taron ignorierte ihn.
 
-Brokk legte den Zwergenschlüssel nicht auf den Tisch. Elva hielt den Schutzschlüssel, Oswin den Blick auf die Türen. Merlan erklärte. Nicht schön. Nicht kurz. Aber geordnet: Eidenschloss, dritte Hand, Schutzdämon, Rugar, Niemand, die Gefahr einer Schlacht.
+„Wo ist Elva?“
+
+Albrecht brauchte einen Augenblick, um den Namen einzuordnen. Das sagte mehr über die Burg als jede Speicherliste.
+
+„Das Küchenmädchen ist in Sicherheit.“
+
+„Dann holt sie. Bevor hier jemand ein Wort über Schlüssel sagt.“
+
+Malchior trat einen halben Schritt vor. „Sie ist in Obhut. Die Zwerge marschieren, und sie hat sich in Angelegenheiten gedrängt, die …“
+
+„Ihr habt sie eingesperrt, weil sie mich gewarnt hat.“ Taron hörte seine eigene Stimme und erkannte sie nicht ganz. Sie klang wie jemand, der eine Rechnung vorlas. „Nennt es, wie Ihr wollt. Holt sie.“
+
+Hinter ihm bewegte sich niemand. Oswin stand so still, dass seine Stille als Zustimmung durchging. Brokk hatte die eiserne Hand auf den Stab gelegt und sah den König an, wie Zwerge Männer ansahen, die zu lange über eine einfache Sache nachdachten.
+
+Der Erzähler sagte: „Du hast einem König eine Bedingung gestellt, bevor er dir eine stellen konnte. Ich hätte dir das nicht zugetraut, und ich sage das nicht als Lob.“
+
+Albrecht sah zu Oswin. Oswin sagte nichts. Genau das war die Antwort.
+
+Der König nickte einem Wächter zu.
+
+Sie warteten. Niemand sprach über Schlüssel. Malchior betrachtete ein Fenster. Merlan ordnete Blätter, die keine Ordnung brauchten.
+
+Dann kam Elva.
+
+Sie kam nicht wie jemand, der gerettet wurde. Sie kam wie jemand, der zu einem Tisch gerufen worden war, den man längst hätte abräumen sollen, mit gerader Haltung, Mehl am Ärmel und einem Wächter hinter sich, der aussah, als sei er auf dem Weg dreimal zurechtgewiesen worden. Sie sah Taron an, kurz und prüfend, wie man einen Topf prüft, der zu lange auf dem Feuer gestanden hat. Dann sah sie den König an.
+
+„Bist du …“, begann Taron.
+
+„Siebzehn Stufen. Die vierte knarrt“, sagte Elva. „Später.“
+
+Brokk legte den Zwergenschlüssel nicht auf den Tisch. Oswin hielt den Schutzschlüssel und den Blick auf die Türen. Merlan erklärte. Nicht schön. Nicht kurz. Aber geordnet: Eidenschloss, dritte Hand, Schutzdämon, Rugar, Niemand, die Gefahr einer Schlacht.
 
 Merlan legte Ansels Blatt vor den König. Albrecht betrachtete es, als könne Papier untreu werden, wenn man es zu lange ansah. Malchior beugte sich dazu, wollte etwas sagen, fand aber offenbar keinen passenden Angriffspunkt und hasste den Augenblick dafür.
 
@@ -126,9 +162,9 @@ Der Erzähler sagte: „Das erklärt einiges und entschuldigt wenig.“
 
 Taron gab es nicht weiter. Er hatte genug eigene schlechten Entscheidungen zur Verfügung.
 
-Elva trat einen Schritt vor. „Ich habe gehört, wie Ihr über ihn gesprochen habt.“
+Elva trat einen Schritt vor. „Ich habe gehört, wie Ihr über ihn gesprochen habt. Im kleinen Saal. Ich hatte einen Topf in der Hand, und Ihr habt weitergeredet.“
 
-Malchior wurde blass.
+Malchiors Gesicht bewegte sich nicht. Er hatte diesen Satz erwartet, nur nicht hier und nicht vor Zeugen.
 
 Albrecht sah sie an. „Küchenmädchen sollten wissen, wann sie schweigen.“
 
@@ -291,6 +327,30 @@ Merlan nickte, als habe er eine Auskunft bekommen, und ging weiter.
 „Ist das genug?“
 
 „Heute.“
+
+Oswin, der vor ihnen ging, blieb auf dem Absatz stehen und nahm die gefütterte Holzkapsel aus seiner Tasche. Er hielt sie Elva hin, ohne Vorrede, so wie er alles tat, was ihm wichtig war.
+
+„Was ist das?“
+
+„Der dritte Schlüssel.“ Oswin sah sie an. „Er gehört zu niemandem, der etwas will.“
+
+„Ich will ziemlich viel.“
+
+„Nichts davon für dich.“
+
+Elva nahm die Kapsel, wog sie kurz in der Hand und steckte sie in ihre Schürzentasche, als sei das der einzige vernünftige Ort für alte Mächte.
+
+Taron zog die kleine Handglocke aus seinem Beutel. Er hatte sie seit Ellingen kein einziges Mal geläutet.
+
+„Eine Schreiberin in Ellingen hat sie mir gegeben“, sagte er. „Klang weckt alte Eide. Ich habe die Hände dafür nicht.“
+
+„Du hast Hände.“ Elva nahm die Glocke und hielt den Klöppel mit dem Daumen fest. „Du zögerst nur mit ihnen.“
+
+„Ist das ein Vorwurf?“
+
+„Heute nicht.“
+
+Der Erzähler sagte: „Sie hat gerade zwei der drei gefährlichsten Gegenstände dieser Burg in eine Schürze gesteckt. Ich finde das beruhigender, als ich sollte.“
 
 
 Der nächste Hornstoß kam von der Mauer.

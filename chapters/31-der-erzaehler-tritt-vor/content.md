@@ -400,7 +400,7 @@ Er wollte wütend bleiben. Es war nicht schwer. Aber unter der Wut lag jetzt ein
 
 Der Erzähler antwortete nicht mit einer Zahl.
 
-Elva hatte die halbe Unterhaltung gehört. Das war ihr Zustand seit Grauwehr: neben einem Menschen zu stehen, der mit niemandem sprach, und die Antworten aus seinem Gesicht zu lesen.
+Elva hatte die halbe Unterhaltung gehört. Sie hatte in wenigen Tagen gelernt, was andere in Wochen nicht begriffen: neben einem Menschen zu stehen, der mit niemandem sprach, und die Antworten aus seinem Gesicht zu lesen.
 
 „Was hat er gesagt?“, fragte sie.
 

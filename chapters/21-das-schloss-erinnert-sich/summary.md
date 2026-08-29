@@ -3,3 +3,6 @@
 - Der Weinfleck in der Prophezeiung wird wichtiger: verdeckt ist nicht, dass Freiheit kommt, sondern wem sie gilt.
 - Das Eidenschloss erscheint nicht als Werkzeug, sondern als Gefaengnis, das sich an seine Schluessel erinnert.
 - Malchiors Botenraben aus Kapitel 12 kommen an: Merlan zeigt den Zettel (Obhut bei Antreffen). Der Wirt konnte nicht lesen und hat seinen Raben gebraten; Merlan hat seinen gefuettert.
+- Oswin traegt den Schutzschluessel; Merlan legt ihn zuletzt in eine gefuetterte Holzkapsel, die in Oswins Satteltasche kommt.
+- Der Erzaehler sagt als Erster, dass man auch ihn loesen koennte; er weiss selbst nicht, ob er das will.
+- Nachtszene: Taron allein mit den drei Schalen und der Stimme, Waldkirch zwei Tage entfernt, Elva dort zurueckgeblieben. Dann zittert Ansels Glocke, und der Hunger unter Waldkirch ist wach.

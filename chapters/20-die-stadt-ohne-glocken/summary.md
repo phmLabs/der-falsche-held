@@ -1,5 +1,6 @@
 - Die Gruppe erreicht Ellingen, ein unterworfenes Nachbarland ohne Glocken.
 - Die Stadt wirkt friedlich, aber alle Glocken wurden entfernt, weil ihr Klang alte Eidzeichen weckt.
-- Zwischen Hunger, Besatzung und stillen Bewohnern finden sie Hinweise auf das Eidenschloss.
-- Eine alte Schreiberin bestaetigt, dass die drei Schluessel einst nur gemeinsam benutzt werden durften.
-- Elva begreift, dass ihre Frage nach dem Weg im Graben (Kapitel 19) Varga einen Tag frueher nach Ellingen gebracht hat. Ansel macht es nicht weicher: "Wer hilft, macht Fehler, die man sehen kann."
+- In der stillen Stadt ist die Stimme das Einzige, was in Tarons Kopf klingt; der Erzaehler gibt zu, dass Glockenverbot und sein Schweigen nicht denselben Grund, aber dieselbe Ausrede haben.
+- Die Schreiberin Ansel bestaetigt, dass die drei Schluessel einst nur gemeinsam benutzt werden durften, und gibt Taron eine kleine Handglocke.
+- Beim Laeuten antwortet der Schutzschluessel an Oswins Seite.
+- Taron begreift, dass seine Frage nach dem Weg im Graben (Kapitel 19) Varga einen Tag frueher nach Ellingen gebracht hat; niemand widerspricht ihm.

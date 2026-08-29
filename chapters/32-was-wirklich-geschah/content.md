@@ -842,7 +842,7 @@ Das war es, was ihn erreichte, und nicht die Zeichen auf seinem König. Zeichen 
 
 Aber auf der Hand einer menschlichen Küchenmagd stand die offene Hand des Schutzeids, und sie stand dort, weil sie den Schlüssel getragen hatte, den keine Seite hätte tragen dürfen.
 
-„Sie hat ihn gehalten“, sagte Brokk. „Tagelang. Sie hat ihn nicht benutzt.“
+„Sie hat ihn getragen“, sagte Brokk. „Seit dem Rittersaal. Sie hat ihn nicht benutzt.“
 
 Elva hielt die Hand nicht hoch. Sie ließ sie nur, wo sie war.
 

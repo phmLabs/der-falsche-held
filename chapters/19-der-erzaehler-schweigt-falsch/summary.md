@@ -1,4 +1,6 @@
-- Taron stellt den Erzaehler nach Eidgrund direkt zur Rede.
-- Der Erzaehler weicht aus, aber sein Ausweichen ist diesmal kein Spott, sondern sichtbare Bindung.
-- Taron begreift, dass manche Wahrheiten fuer den Erzaehler Eidbruch waeren.
-- Der Erzaehler gibt zu, dass er Taron verlassen muesste, wenn er bestimmte Regeln bricht.
+- Taron stellt den Erzaehler nach Eidgrund direkt zur Rede; Oswin traegt den Schutzschluessel, in Stoff gewickelt.
+- Der Erzaehler weicht aus, aber sein Ausweichen ist diesmal kein Spott, sondern sichtbare Bindung: Sagt er, was der andere ist, muss er gehen.
+- Taron findet selbst die Technik, am Verbot vorbeizufragen: nicht was etwas ist, sondern was es tut. "Klang erinnert Dinge, die keine Augen haben."
+- Taron, nicht Oswin oder Brokk, haelt bei den Menschen im Graben an; er schneidet Brot wie Marta und fragt sie nach dem Weg, um ihnen etwas zu geben, ohne es ihnen zu nehmen.
+- Allein an der Mauer vor Ellingen: Der Erzaehler gibt zu, dass er Schutz mit Kontrolle verwechselt hat, sagt, was mit Taron passiert, wenn er geht, und bestaetigt Tarons eigene Schuld: Nicht-Wollen ist ein Anfang, kein Ort zum Wohnen.
+- Eine alte Frau auf einem Karren gibt Taron eine Bronzescheibe mit gesenktem Falken.

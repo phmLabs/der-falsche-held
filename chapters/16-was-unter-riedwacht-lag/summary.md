@@ -1,11 +1,11 @@
 - Brokk fuehrt die Gruppe in alte Schaechte unter dem Grenzland, die weder eindeutig menschlich noch zwergisch sind und aus einer Zeit vor Waldkirch stammen.
 - In den Schaechten finden sie Zeichen einer alten Eidstelle: Drei Linien fuehren zu einem Kreis, dazu der Satz `Drei tragen. Einer bindet. Einer loest. Einer bewahrt.`
-- Die Gruppe erkennt, dass die drei Eidschluessel nicht einfach Besitzstuecke sind, sondern Aufgaben oder Rollen innerhalb eines alten Eidsystems.
+- Taron erkennt selbst, dass die drei Eidschluessel nicht einfach Besitzstuecke sind, sondern Aufgaben oder Rollen innerhalb eines alten Eidsystems.
 - Eine groessere Kammer erinnert Brokk an Riedwacht. Dort wurden vor zehn Jahren nicht nur der Zwergenschluessel, sondern auch Listen und Linien zu weiteren Eidstellen gefunden.
-- Brokk erklaert, dass eine dieser Linien nach Waldkirch fuehrte. Taron und Elva verbinden das mit dem Hunger von Waldkirch und Merlans Vermutung, dass manche alten Wesen urspruenglich Waechter waren.
+- Brokk erklaert, dass eine dieser Linien nach Waldkirch fuehrte. Taron verbindet das mit dem Hunger von Waldkirch und Merlans Vermutung, dass manche alten Wesen urspruenglich Waechter waren.
 - Der Erzaehler warnt Taron vorsichtig vor dem Wort `Schloss`, weil bestimmte Begriffe Erinnerungen oder Bindungen ausloesen koennen. Er kann weiter nicht frei sprechen.
 - Brokk stellt den Unterschied zwischen Tarons Stimme und Niemand heraus: Tarons Stimme warnt und ringt um Worte, Niemand befiehlt.
-- Varga ist ihnen in die Schaechte gefolgt und hat Krail gefangen genommen. Brokk muss die Gruppe durch einen alten Wasserlauf herausfuehren.
+- Varga ist ihnen in die Schaechte gefolgt und hat Krail gefangen genommen. Oswin haelt Taron davon ab, sich anzubieten. Brokk fuehrt die Gruppe durch einen alten Wasserlauf heraus; im kalten Wasser haelt der Erzaehler Taron mit `Zehn Schritte` in Bewegung.
 - In einer Hoehle reagiert der Menschenschluessel auf ein altes Schutzzeichen. Der Schutzschluessel liegt offenbar zwischen Waldkirch und Karndorn, in der Senke von Eidgrund.
 - Brokk erklaert, dass Eidgrund einst ein Ort war, an dem Menschen und Zwerge gemeinsam schworen, nie wieder allein ueber alte Macht zu entscheiden. Die Gruppe zieht verfolgt weiter nach Sueden.
 

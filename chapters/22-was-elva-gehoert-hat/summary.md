@@ -1,5 +1,11 @@
-- Elva sagt Taron endlich vollstaendig, was sie in Waldkirch gehoert hat.
-- Koenig Albrecht und Malchior sehen Taron als notwendiges Opfer, nicht als Menschen.
-- Taron wird dadurch nicht mutiger, sondern klarer verletzt.
-- Elva macht deutlich, dass sie ihn nicht wegen einer Prophezeiung gesucht hat, sondern weil er Taron ist.
-- Elvas Riss wird benannt: Milch und Wegfrage sind dasselbe Muster. Sie tut etwas Kleines, weil es richtig aussieht, und die Welt wird groesser und schlechter. "Zweimal, von dem ich weiss." Sie geht trotzdem mit, weil sie den Fehler sonst nicht einmal sieht.
+- Elva-POV in Waldkirch (Muster wie Kap. 9 und 24, kein Erzaehler-Kommentar), Zeitraum: vierte bis sechste Woche nach Tarons Abritt.
+- Hunger konkret: Elva zaehlt Brote, Marta macht die Suppe duenner und das Brot dicker und erklaert nie, wie; rote Stoffstreifen an den Tueren.
+- Elva schreibt wieder Listen bei Bruder Helmbrecht und liest Malchiors neue Anordnungen fuer Tarons Rueckkehr (geleitet empfangen, Thronsaal reinigen, Eidstein belueften, Begleiter getrennt unterbringen). Sie schreibt nichts mehr ab.
+- Elvas Riss: Milch und Erlass sind dasselbe Muster; der Erlass hat Malchiors Raben groesser gemacht statt ihn zu stoppen. "Zweimal, von dem sie wusste." Holzknopf mit Riss bleibt ihr Denk-Gegenstand.
+- Kessa (Kap. 24) im unteren Hof: ein junger Priester schreibt die Warnung der Hueter sorgfaeltig auf; Elva schickt sie zu Martas Holzschuppen. Drei Tage spaeter "kein Eintrag". Elva findet das herausgeschnittene Blatt unter alten Bestandslisten, mit Malchiors Vermerk "Geprueft. Nicht belegt." Sie legt es obenauf, am Morgen liegt es wieder unten.
+- Kleiner Saal, live: Berichte, dass Taron mit Zwergen reist (Eisenhand). Malchior: Wunder naehrt mehr als Korn; stirbt er, ist es traurig, aber beweiskraeftig; ein Auserwaehlter ist kein Besitz seiner Mutter, seines Dorfes, seiner Angst. Albrecht widerspricht nicht: Sein Name ist ein Geschenk, auch wenn es blutet.
+- Kernbeat: Der Kessel schlaegt an, Malchior laesst Wein bringen und redet weiter. Elva begreift sofort: Sie zaehlt nicht. Sie gesteht sich ein, dass sie Taron "tragbar" aus kleiner Feigheit nie erzaehlt hat, und beschliesst, es Albrecht und Malchior selbst zu sagen.
+- Entdeckung: Malchior rechnet zusammen (Taron kannte "Obhut" zu frueh, kam ueber Grauwehr, die Kueche hatte zwei Tage kein Maedchen). Freundlich, ohne Vorwurf. Helmbrecht hatte gesagt, niemand sei in der Stube gewesen; Malchior: "Niemand, der zaehlt."
+- "Obhut": Kammer ueber der Kapelle im Bergfried, trocken, Fenster zum inneren Hof, Riegel aussen (braucht zwei Anlaeufe). Malchior glaubt, es sei Schutz: "Du hast ihn gewarnt. Also haengt er an dir. Also bist du hier sicherer als irgendwo sonst." Das Wort Pfand sagt niemand. Marta darf Suppe bringen; Jost (Speer zu lang) bedient morgens den Riegel, ein aelterer Wachmann abends.
+- Nachts klirren die Ketten unter der Burg lauter und anders als frueher (Eidstein erwacht, nicht erklaert). Elva will es Taron und dem Zwerg mit der eisernen Hand erzaehlen.
+- Elva zaehlt Stufen (17, die vierte knarrt, die elfte ist locker), Wachwechsel (kleine Glocke; dann so lange, wie man braucht, ein Brot in acht Stuecke zu schneiden), Riegelklang. Roter Tuchstreifen im Mantelsaum. Malchior meldet am vierten Abend: Taron ist zwei Tage oestlich gesehen worden.

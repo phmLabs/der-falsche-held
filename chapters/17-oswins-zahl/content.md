@@ -4,7 +4,7 @@ Er war eine Reihe von schlechten Vorschlägen, die das Gelände nacheinander mac
 
 Taron setzte einen Fuß vor den anderen und versuchte, seine Zehen zu spüren. Das gelang ihm nicht. Er hielt es für möglich, dass seine Zehen inzwischen eigene politische Entscheidungen getroffen hatten und sich von ihm trennten. Der linke Stiefel war ihnen darin voraus. Er hatte von Anfang an einem anderen Mann gehört, war eine Handbreit zu groß und nahm bei jedem Schritt Wasser auf, als hätte er sonst nichts zu tun.
 
-Elva ging vor ihm. Sie hatte den Saum ihres Kleides hochgebunden, ohne dabei auch nur den Versuch zu machen, sittsam auszusehen. Sittsamkeit war in diesem Wetter ein Konzept für Leute mit Dächern.
+Taron ging in der Mitte. Das war die Stelle, an der man Dinge trug, die man nicht verlieren wollte, und er bemühte sich, das nicht als Kompliment zu verstehen.
 
 Brokk führte.
 
@@ -18,15 +18,15 @@ Der Erzähler sagte: „Es ist erfreulich, wenn zwei erfahrene Männer ihre Abne
 
 „Für die Geschichte. Sie liebt Zweckmäßigkeit, solange niemand ihr dafür dankt.“
 
-Elva sah über die Schulter. „Spricht er wieder?“
+„Zweckmäßig“, sagte Taron in den Nebel.
 
-„Leider.“
+Niemand drehte sich um. Brokk hatte an der Südbrücke begriffen, dass Taron mit Niemand sprach, und behandelte es seither wie Husten: Man hörte es, man erwähnte es nicht. Oswin hatte es nie anders gehalten.
 
-„Sagt er etwas Nützliches?“
+„Du hättest gern ein anderes Wort?“
 
-„Er nennt unser Elend zweckmäßig.“
+„Ich hätte gern trockene Füße.“
 
-„Dann nicht.“
+„Das wäre eine andere Geschichte. Eine kürzere.“
 
 Sie gingen weiter.
 
@@ -56,7 +56,7 @@ Wärme konnte man für Magie halten. Schwere für Verantwortung.
 
 Brokk legte die eiserne Hand auf den stehenden Stein. „Wir sind nah.“
 
-„Wie nah?“, fragte Elva.
+„Wie nah?“, fragte Taron.
 
 „Nah genug, dass wir nicht rufen sollten.“
 
@@ -90,7 +90,7 @@ Oswin richtete sich auf. „Ich sehe Spuren.“
 
 „Nein.“ Brokks Stimme wurde leiser. „Du zählst Tote.“
 
-Taron sah zu Elva. Elva sah nicht zurück. Sie beobachtete Oswin und Brokk, als könne eine falsche Bewegung hier gefährlicher sein als Vargas ganzer Trupp.
+Taron merkte, dass er sich nicht mehr bewegte. Er beobachtete Oswin und Brokk, wie man zwei Hunde beobachtet, die einander noch nicht angesehen haben, und begriff, dass eine falsche Bewegung hier gefährlicher sein konnte als Vargas ganzer Trupp.
 
 Oswin wischte Moos von seinen Fingern. „Man sollte wissen, auf welchem Boden man steht.“
 
@@ -121,8 +121,6 @@ Oswin schwieg.
 Der Wald hielt ebenfalls den Mund und gewann dadurch keinen einzigen Vorzug.
 
 „Wie viele Zwerge hast du getötet?“, fragte Brokk.
-
-Elva sagte: „Brokk.“
 
 „Nein“, sagte Oswin.
 
@@ -194,17 +192,17 @@ Oswins Blick ging zu ihm hoch. „Auch.“
 
 Die beiden sahen einander an. Taron wusste nicht, was er tun sollte. Eine kluge Bemerkung wäre hier gestorben. Eine dumme vermutlich auch, nur lauter.
 
-Elva trat neben Oswin. „Warum zählst du?“
+Taron hörte sich fragen, bevor er entschieden hatte, ob er es durfte: „Warum zählst du?“
 
-Oswin sah sie nicht an. „Weil ein Priester mir einmal sagte, namenlose Tote seien leichter zu tragen.“
+Oswin sah ihn nicht an. „Weil ein Priester mir einmal sagte, namenlose Tote seien leichter zu tragen.“
 
 „Und?“
 
 „Er hatte recht.“
 
-Elva verstand zuerst nicht. Dann wurde ihr Gesicht weicher.
+Taron verstand zuerst nicht. Er wartete auf den Rest des Satzes, auf die Stelle, an der ein Ritter erklärte, warum er es trotzdem anders machte. Der Rest kam nicht. Stattdessen kam ihm der Stall in Waldkirch in den Sinn, in dem er einmal eine kranke Ziege ohne Namen hatte sterben sehen, und eine mit Namen, und wie verschieden das gewesen war.
 
-„Darum gibst du ihnen Zahlen.“
+„Darum gibst du ihnen Zahlen“, sagte er.
 
 „Darum nehme ich ihnen nicht die letzte.“
 
@@ -344,13 +342,17 @@ Oswin stand auf. „Ja.“
 
 Taron hob vorsichtig einen Finger. „Ist das wieder Streit oder schon Kameradschaft?“
 
-Elva sagte: „Bei Männern mit Waffen ist der Unterschied oft schlecht beschriftet.“
+Niemand antwortete ihm. Broda gab ein kurzes Geräusch von sich, das vielleicht ein Lachen war, und ging weiter. Manche Fortschritte erschreckte man besser nicht.
 
-Broda gab ein kurzes Geräusch von sich, das vielleicht ein Lachen war. Niemand fragte nach. Manche Fortschritte erschreckte man besser nicht.
+„Bei Männern mit Waffen ist der Unterschied oft schlecht beschriftet“, sagte der Erzähler.
+
+„Du kennst dich aus?“
+
+„Ich habe mehr Männer mit Waffen gesehen als du Ziegen. Die Beschriftung war selten das Problem.“
 
 Sie verließen die Grenzsteine und stiegen tiefer in die Senke. Der Boden wurde weicher. Wasser sammelte sich in flachen Mulden, und unter dem Gras lagen alte Pflastersteine, die immer wieder zwischen Erde und Wurzeln auftauchten. Taron erkannte Reste eines Weges. Nicht breit genug für eine Heerstraße. Nicht schmal genug für einen Wildpfad.
 
-„Pilgerweg?“, fragte Elva.
+„Pilgerweg?“, fragte Taron.
 
 Brokk schüttelte den Kopf. „Eidweg.“
 
@@ -383,8 +385,6 @@ Brokk blieb nicht stehen, aber sein Schritt wurde langsamer.
 Brokk brummte. „Dann sag es, weil es wahr ist.“
 
 Oswin sah nach vorn. „Sechsundachtzig.“
-
-Elva atmete leise ein.
 
 Taron sah zu Boden.
 
@@ -422,7 +422,7 @@ Der Menschenschlüssel lag auf seiner Brust und rührte sich nicht.
 
 Aus dem Nebel kam ein zweiter Ruf. Diesmal eine Antwort von rechts. Varga hatte sie nicht nur eingeholt. Er teilte seine Leute.
 
-„Wir schaffen es nicht ungesehen“, sagte Elva.
+„Wir schaffen es nicht ungesehen“, sagte Taron.
 
 „Nein“, sagte Brokk.
 
@@ -444,14 +444,6 @@ Taron bereute die Frage sofort.
 
 „Ah“, sagte er. „Schrecklich.“
 
-Elva zog ihr Messer. „Ich bleibe bei Taron.“
-
-„Das war nicht der Plan“, sagte Taron.
-
-„Du hast keinen.“
-
-„Das ist verletzend genau.“
-
 Brokk zeigte auf zwei flache Steine links. „Dort. Enger Durchgang. Zwei können halten.“
 
 Oswin nickte. „Broda, rechts von mir?“
@@ -466,35 +458,33 @@ Taron stand plötzlich in der Mitte einer sehr kleinen Schlachtordnung und wüns
 
 „Was mache ich?“, fragte er.
 
-Oswin sagte: „Du gehst mit Elva bis zu den Steinen dort vorn. Wenn etwas leuchtet, rufst du nicht sofort begeistert.“
+Oswin sagte: „Du gehst allein bis zu den Steinen dort vorn. Wenn etwas leuchtet, rufst du nicht sofort begeistert.“
 
-„Das ist verletzend spezifisch.“
+„Allein.“
 
-„Du hast Muster.“
+„Du hast Muster. Allein sind sie kleiner.“
 
-Brokk sagte: „Und wenn du den Schutzschlüssel siehst, berührst du ihn nicht allein.“
+Brokk sagte: „Und wenn du den Schutzschlüssel siehst, berührst du ihn nicht, bevor ich da bin.“
 
 „Ich wollte gerade fragen, ob irgendjemand mir zutraut, aus Fehlern zu lernen.“
 
-Elva nahm ihn am Ärmel. „Später. Jetzt laufen.“
+Niemand hielt das für eine Frage. Oswin drehte sich bereits zum Durchgang, und Brokk stellte die eiserne Hand an den Stab, als richte er ein Werkzeug aus.
 
-Sie liefen.
+Taron lief.
 
-Hinter ihnen traf der erste Zwerg aus Vargas Trupp auf Oswins Klinge. Metall klang auf Metall, hart und kurz. Brokk bellte einen Befehl auf Zwergisch. Broda antwortete mit einem Laut, der keine Angst enthielt, sondern nur schlechte Laune über ungünstige Winkel.
+Hinter ihm traf der erste Zwerg aus Vargas Trupp auf Oswins Klinge. Metall klang auf Metall, hart und kurz. Brokk bellte einen Befehl auf Zwergisch. Broda antwortete mit einem Laut, der keine Angst enthielt, sondern nur schlechte Laune über ungünstige Winkel.
 
 Taron wollte sich umdrehen.
 
-Elva zog ihn weiter.
+„Nicht schauen“, sagte der Erzähler.
 
-„Nicht schauen.“
+„Sie kämpfen wegen mir.“
 
-„Sie kämpfen wegen uns.“
+„Sie kämpfen, damit du tust, weswegen sie kämpfen. Wenn du stehen bleibst, kämpfen sie umsonst. Lauf.“
 
-„Sie kämpfen, damit wir tun, weswegen sie kämpfen.“
+Vermutlich war es ein sehr guter Satz. Taron hatte nur gerade keine Verwendung für gute Sätze, die ihn schneller machten, und noch weniger dafür, dass die Stimme ihn ohne jede Ironie gesagt hatte.
 
-Vermutlich war es ein sehr guter Satz. Taron hatte nur gerade keine Verwendung für gute Sätze, die ihn schneller machten.
-
-Sie erreichten die inneren Steine von Eidgrund.
+Er erreichte die inneren Steine von Eidgrund.
 
 Hier war der Nebel dichter. Die Luft roch nach nassem Gras, altem Eisen und etwas Bitterem, das Taron nicht kannte. Zwischen den Steinen lag ein runder Platz, halb eingesunken, mit drei flachen Rillen, die zur Mitte führten.
 
@@ -522,7 +512,7 @@ Das war diesmal keine Weigerung.
 
 Es war Angst.
 
-Hinter ihnen rief Oswin: „Einer!“
+Hinter ihm rief Oswin: „Einer!“
 
 Brokk brüllte: „Keiner tot!“
 
@@ -530,9 +520,9 @@ Ein Schlag. Ein Fluchen. Dann Oswins Stimme, scharf vor Anstrengung: „Einer ge
 
 Brokk antwortete: „Zwei zurück!“
 
-Taron sah zu Elva.
+Taron drehte den Kopf, um zu sehen, ob jemand anderes es gehört hatte.
 
-Sie hatte es auch gehört.
+Neben ihm stand niemand. Nebel, Gras, drei Rillen im Boden. Er merkte erst jetzt, wie selten er in den letzten Wochen ohne jemanden gewesen war, dem man einen Blick zuwerfen konnte, wenn die Welt sich um ein Wort verschob. Elva hätte es gehört. Sie hätte nichts gesagt und trotzdem genickt.
 
 Die Zahlen hatten sich verändert.
 
@@ -540,9 +530,11 @@ Nicht verziehen. Nicht geheilt. Nicht schön gemacht.
 
 Aber verändert.
 
-Elva kniete langsam am Rand der mittleren Rille nieder. „Taron.“
+Taron kniete langsam am Rand der mittleren Rille nieder. Seine Knie fanden nasses Gras und darunter Stein. Der Schutzschlüssel lag eine Armlänge entfernt. Er hätte ihn nehmen können. Nichts hielt ihn auf außer zwei Sätzen von Leuten, die gerade hinter ihm ihre Haut hinhielten, und einer Stimme, die aus Angst verstummt war.
 
-„Ich berühre ihn nicht allein.“
+„Ich berühre ihn nicht allein“, sagte er halblaut.
+
+Die Stimme kam zurück. Leise, vorsichtiger als sonst, als prüfe sie erst, ob der Boden sie trug.
 
 „Gut.“
 

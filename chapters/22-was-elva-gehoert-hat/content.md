@@ -1,536 +1,285 @@
-Sie brachen vor Sonnenaufgang auf.
+Während Taron Falkenried in Hohensteg vor drei Schalen saß und darauf wartete, dass Schlüssel etwas taten, stand in Waldkirch ein Mädchen vor einem Regal und zählte Brote.
 
-Merlan kam mit.
+Es waren vierzehn.
 
-Das war die erste schlechte Nachricht des Tages, jedenfalls für Merlan. Er trug zwei Taschen, drei Rollen, eine Kiste mit Phiolen und den Gesichtsausdruck eines Mannes, der Reisen weiterhin für einen Denkfehler hielt, aber beschlossen hatte, dass manche Denkfehler persönliche Aufsicht brauchten.
+Elva zählte sie jeden Morgen, bevor Marta herunterkam, und jeden Abend, nachdem der Saal gegessen hatte. Vierzehn Brote am Morgen hießen: neun für den Saal, drei für die Wachen, zwei für die Backstube, in der sie gebacken worden waren. Vierzehn Brote am Abend hießen, dass jemand die Rechnung nicht verstanden hatte. Das kam selten vor. Marta verstand Rechnungen.
 
-„Ich werde langsam“, sagte er.
+Die Brote waren dicker geworden, seit Taron fort war. Nicht besser. Dicker. Marta streckte den Teig mit gemahlenen Bucheckern, gekochten Rüben und einer Handvoll Sägemehl, von der sie behauptete, es sei Kleie, und niemand fragte nach, weil das Brot morgens auf dem Tisch lag und morgens Leute dankbarer waren. Die Suppe wurde abends dünner. Abends merkte man das, aber abends war man müde, und Müdigkeit war eine Art Sättigung, die nichts kostete.
 
-„Du warst vorher nicht schnell“, sagte Oswin.
+Marta erklärte nie, wie sie es machte. Elva hatte sie einmal gefragt, im letzten Winter, als aus Vorräten für neun Wochen dreizehn geworden waren und der Vogt es als Wunder der Sparsamkeit in seine Listen eintrug.
 
-„Das war Absicht.“
+„Wenn ich es erkläre“, hatte Marta gesagt, „schreibt es jemand auf. Und dann rechnet jemand damit.“
 
-„Dann bleibt alles beim Alten.“
+Elva hatte das damals für Sturheit gehalten. Inzwischen hielt sie es für die klügste Verwaltungsregel, die sie kannte.
 
-Taron ging neben Elva, etwas hinter den anderen. Waldkirch lag noch zwei Tagesmärsche entfernt, aber der Gedanke daran war bereits schneller gewesen und wartete in seiner Brust. Er wollte nicht zurück. Er wollte sehr zurück. Beides war wahr, was ihn ärgerte.
+Es war die vierte Woche, seit Taron auf einem beleidigten Pferd nach Südosten geritten war, und Waldkirch hatte in dieser Zeit drei Dinge gelernt: dass die Ziegen weniger Milch gaben, wenn man ihnen das Heu kürzte; dass rote Stoffstreifen an Türen keinen Regen abhielten, aber gut gegen Fragen halfen; und dass ein Mädchen aus der Küche überall hinkam, wenn es nur etwas trug.
 
-Elva trug den Schutzschlüssel nicht mehr. Merlan hatte ihn in eine gefütterte Holzkapsel gelegt, die nun in Oswins Satteltasche steckte. Oswin hatte die Tasche angenommen, als wäre sie ein schlafender Feind.
+Elva trug viel in diesen Wochen.
 
-„Du musst mir noch etwas sagen“, sagte Taron.
+Sie trug Eimer zu den Ziegen, deren Meckern im Stall hohler klang als früher, weil zwei Tiere fehlten. Sie trug Marta Mehl aus dem Burgspeicher hinunter in die Unterstadt und Brot von der Backstube wieder hinauf, weil der Vogt entschieden hatte, dass Marta die besseren Öfen habe. Sie trug Töpfe in den kleinen Saal und leere Töpfe wieder heraus. Und sie trug, wenn Bruder Helmbrecht sie rief, Tinte.
 
-Elva sah nicht überrascht aus.
+Bruder Helmbrecht war fast siebzig und hatte Hände, die nur noch morgens ruhig waren. Er schrieb deshalb morgens die Dinge, die sauber sein mussten, und ließ nachmittags abschreiben, was ohnehin niemand las: Bestandslisten, Namen von Knechten, die Zahl der Pfeile im Torhaus, die Zahl der Säcke im Speicher, die Zahl der Säcke, die laut Liste im Speicher hätten sein sollen. Elva schrieb langsam und ohne Fehler. Das war selten in Waldkirch, wo das Lesen den Priestern gehörte und das Schreiben den Priestern und einem Vogt, der beides nur als Bedrohung empfand.
 
-„Ja.“
+„Du hast eine gute Hand“, sagte Helmbrecht oft. Er sagte es jedes Mal, als sei es ihm neu.
 
-„In Waldkirch. Was du gehört hast.“
+Nach dem Erlass war sie nicht mehr in die Schreibstube gegangen. Zwei Wochen lang nicht. Sie hatte gewartet, dass jemand fragte, wo die Abschrift geblieben war, oder warum eine Küchenmagd wusste, was Obhut hieß. Niemand fragte. Helmbrecht ließ sie rufen, weil die Listen sich stapelten, und sah sie an wie einen Wetterumschwung, der wieder vorbei war.
 
-Sie gingen ein Stück weiter, bis die anderen vor ihnen um eine Biegung verschwanden.
+Also schrieb sie wieder Listen.
 
-„Ich wollte es dir früher sagen“, begann Elva.
+Und las, was durchging.
 
-„Das ist meistens der Anfang von Sätzen, die später nicht besser werden.“
+In den Listen stand Waldkirchs Hunger sehr ordentlich. Zwölf Schweine im Frühjahr, vier im Sommer, drei jetzt. Haferrationen für die Pferde gekürzt, dann für die Knechte. Ein Sack Salz, den es laut Liste gab und laut Marta nicht. Und dazwischen, auf besserem Papier, mit Malchiors Hand, Dinge, die keine Listen waren.
 
-„Nein. Werden sie nicht.“
+Eine Anordnung an die Torwachen: Der Auserwählte sei bei seiner Rückkehr geleitet und nicht gefragt zu empfangen. Eine zweite an den Vogt: Der alte Thronsaal sei zu reinigen und der Eidstein darunter zu belüften, was auch immer das bedeutete. Eine dritte, kürzer, an den Hauptmann der Wache: Wer mit dem Auserwählten reise, sei bis zur Klärung getrennt unterzubringen. Gäste, hieß es. Nicht Gefangene.
 
-Sie blieb stehen. Taron blieb ebenfalls stehen. Der Weg war schmal, links eine Hecke, rechts ein Graben mit altem Wasser. Kein würdiger Ort für eine Wahrheit. Aber Taron hatte langsam den Verdacht, dass würdige Orte überbewertet wurden.
+Elva schrieb sie nicht ab.
 
-„König Albrecht und Malchior wussten, dass du sterben könntest“, sagte Elva. „Nicht nur bei der Prüfung. Auf dem ganzen Weg.“
+Sie las sie zweimal, legte sie zurück an genau die Stelle, an der sie gelegen hatten, und schrieb dann eine Liste über Pfeile.
 
-„Das wusste jeder.“
+Sie hatte lange darüber nachgedacht, auf dem Weg zwischen Speicher und Backstube, mit einem Sack auf der Schulter. Beim ersten Mal hatte sie abgeschrieben, weil sie sicher gewesen war, dass es half. Es hatte geholfen. Taron war zurückgekommen, hatte gewusst, was ihn erwartete, und war wieder gegangen, mit Siegel und Segen und ohne Reichseid. Noch in derselben Stunde waren die Raben aufgestiegen, und seitdem stand in jedem Dorf, das lesen konnte, dass der Auserwählte bei Antreffen in Obhut zu nehmen sei. Malchior hatte den Erlass nicht zurückgezogen. Er hatte ihn größer gemacht.
 
-„Sie fanden es tragbar.“
+So lief das bei ihr. Sie tat etwas Kleines, weil es richtig aussah, und die Welt wurde größer und schlechter, und sie stand daneben mit einem Eimer.
 
-Das Wort war schlimmer als grausam. Grausam hätte wenigstens Zähne gehabt. Tragbar klang nach einem Sack Mehl, den man von einem Wagen auf den anderen hob.
+Zweimal, von dem sie wusste.
 
-„Tragbar“, sagte Taron.
+Beim ersten Mal war es Milch gewesen.
 
-Elva nickte. „Malchior sagte, ein Auserwählter sei kein Besitz seiner Mutter, seines Dorfes oder seiner eigenen Angst. Wenn dein Leiden Lichtenhain Freiheit bringt, müsse Lichtenhain stark genug sein, es anzunehmen.“
+Sie trug noch den Holzknopf an ihrem Ärmel, den mit dem Riss. Er war von der Küchenschürze und hätte längst abfallen sollen. Manchmal drehte sie ihn zwischen zwei Fingern, wenn sie nachdachte. Marta hatte es bemerkt und nichts gesagt, was bei Marta hieß, dass sie es sich merkte.
 
-Taron sah in den Graben.
+In der fünften Woche kam ein Mädchen aus dem Westen.
 
-Das Wasser stand still. Einige Blätter lagen darauf. Eins sank langsam, ohne dass jemand ihm einen Titel gab.
+Elva sah sie zuerst nicht als Mädchen, sondern als Sohlen. Sie stand im unteren Hof, wo seit dem Erlass ein junger Priester an einem Pult saß und in ein Buch schrieb, wer etwas wollte. Das Pult war Malchiors Idee. Früher hatte man an die Küchentür geklopft, wenn man etwas vom König wollte, und die Küche hatte entschieden, ob es sich lohnte, jemanden zu wecken. Jetzt gab es ein Buch. Das Buch war sehr sauber.
 
-„Und der König?“
+Das Mädchen war vielleicht siebzehn, trug einen Mantel, der für die Straße zu dünn war, und Stiefel, deren Sohlen sich an den Zehen vom Leder lösten. Sie sprach leise. Elva hörte nur, dass sie aus dem Westen kam und eine Warnung brachte, und dann das Wort Hüter, und dann den Namen eines Ortes, den sie aus Tarons Mund kannte.
 
-„Er widersprach nicht. Er sagte, dein Name sei ein Geschenk, das man nicht zurückweisen dürfe.“
+Der Priester schrieb. Er schrieb sorgfältig, mit der Zunge zwischen den Zähnen, wie jemand, dem man beigebracht hat, dass Sorgfalt eine Form von Gehorsam ist. Dann lächelte er und sagte, das sei bemerkenswert, man werde es prüfen, sie möge sich in drei Tagen wieder melden.
 
-Der Erzähler sagte nichts.
+Das Mädchen sah ihn an, als habe sie erwartet, dass etwas geschehe. Dann ging sie.
 
-Taron war dankbar dafür. Das merkte er erst, als keine Bemerkung kam.
+Elva stellte ihren Eimer ab, was sie nie tat, und ging ihr bis zum Tor nach.
 
-„Mein Name“, sagte er.
+„Wo schläfst du?“
 
-„Taron...“
+Das Mädchen drehte sich um. Sie hatte ein Gesicht, das lange unter der Erde gewesen war; Elva kannte solche Gesichter von den Knechten, die im Winter in den Gängen unter dem Hof arbeiteten. „Ich weiß nicht.“
 
-„Nein, schon gut. Ich wollte immer einmal ein Geschenk sein. Ich hatte nur gehofft, dass mich vorher jemand einwickelt.“
+„Unten, neben der Backstube, ist ein Schuppen mit Holz. Er ist trocken. Wenn Marta fragt, sag, dass du Sohlen brauchst.“
 
-Der Satz kam trocken heraus. Er klang fast wie der Erzähler. Taron mochte das nicht.
+„Wer ist Marta?“
 
-Elva trat näher. „Ich habe dich mit der Milch in diese Sache gestoßen.“
+„Die, die dich fragt.“
 
-„Du hast Milch verschüttet.“
+Das Mädchen nickte, sagte nicht Danke, was Elva an ihr mochte, und ging.
 
-„Ich habe gelacht. Ich habe es weitererzählt. Ich dachte, es sei ein Küchenwitz, und dann standen plötzlich Priester da.“
+Elva ging zurück zu ihrem Eimer. Sie hatte nicht gefragt, was die Warnung war. Am Abend ärgerte sie das, aber am Abend hatte sie den Weg in die Unterstadt nicht mehr in den Beinen.
 
-Sie sah auf den Graben.
+Drei Tage später sah sie das Mädchen noch einmal im unteren Hof. Am Pult saß ein anderer Priester. Er blätterte, blätterte zurück, sagte, es liege kein Eintrag vor. Das Mädchen stritt nicht. Sie sah nur das Buch an, lange, wie man eine Tür ansieht, an der man schon geklopft hat, und ging dann wieder Richtung Westen.
 
-„Und im Graben vor Ellingen habe ich nach dem Weg gefragt, weil ich drei Frauen etwas geben wollte, und dann stand Varga in der Stadt, und Ansel sitzt jetzt in einem Haus mit Drähten an der Tür.“
+Am Nachmittag fand Elva das Blatt.
 
-„Das war –“
+Es lag in der Schreibstube unter einem Stapel Bestandslisten aus dem Vorjahr, den niemand mehr brauchte, den aber niemand verbrannte, weil Verbrennen eine Entscheidung gewesen wäre. Es war herausgelöst worden, sauber, mit einem Messer. Die Schrift war die des jungen Priesters. Elva las: Warnung, überbracht durch ein Mädchen aus dem Westen, im Namen der Hüter von Abendriss. Der zweite Schlüssel bringe Krieg. Der dritte etwas Schlimmeres. Der Träger des ersten sei zu warnen, nicht zu halten.
 
-„Sag nicht, das war nichts.“ Ihre Stimme wurde nicht laut. Sie wurde genau. „Ich mache das. Ich tue etwas Kleines, weil es richtig aussieht, und danach ist die Welt größer und schlechter, und ich stehe daneben mit einem Eimer.“
+Darunter, in Malchiors Hand, klein: Geprüft. Nicht belegt.
 
-Taron wusste, dass es Sätze gab, die man nicht wegreden durfte, weil derjenige, der sie sagte, sie schon zu lange getragen hatte, um sie sich abnehmen zu lassen.
+Elva legte das Blatt obenauf.
 
-„Zweimal“, sagte er.
+Am nächsten Morgen lag es wieder unten.
 
-„Zweimal, von dem ich weiß.“
+Sie ließ es dort. Einmal musste man so etwas versuchen, um zu wissen, mit wem man es zu tun hatte. Ein zweites Mal wäre Trotz gewesen, und Trotz ließ sich in Waldkirch schlecht essen.
 
-„Und trotzdem gehst du weiter mit.“
+Am Ende der fünften Woche gab Marta ihr den Kessel.
 
-„Ja.“ Sie sah ihn an. „Weil ich das eine gelernt habe: Wenn ich stehen bleibe, macht jemand anders den Fehler, und ich sehe ihn nicht einmal.“
+Linsensuppe. Mehr Wasser als Linsen, aber Marta hatte Lorbeer hineingetan und tat so, als sei das Absicht. Der Kessel sollte in den kleinen Saal. Dort aß der König jetzt, seit der Rittersaal zu groß geworden war für die Zahl der Leute, die noch mit ihm aßen.
 
-„Elva.“
+Elva nahm ihn am Holzgriff, weil das Eisen zu heiß war, und ging den Weg, den sie kannte: durch die Küche, den Gang mit den drei knarrenden Stufen, an der Kapelle vorbei, deren Kerzen weniger geworden waren, weil Wachs auch aus Fett gemacht wurde und Fett fehlte. Der kleine Saal hatte zwei Türen, eine für Gäste und eine für Töpfe. Sie nahm die für Töpfe.
 
-„Ich bin nicht gekommen, weil du ein Held bist.“
+Sie war schon einmal in dieser Tür gestanden. Vor dem Erlass, mit einem anderen Kessel, und hatte gehört, wie über Obhut gesprochen wurde. Damals hatte sie gedacht, sie habe das Schlimmste gehört.
 
-Er sah sie an.
+Der König stand am Fenster. Malchior stand am Tisch. Auf dem Tisch lag eine Abschrift, klein, auf ungebleichtem Papier, und daneben, in Malchiors Hand, mehr Papier als Prophezeiung.
 
-Sie wirkte wütend. Nicht auf ihn. Auf Waldkirch. Auf sich. Auf die ganze Art, wie Mächte Menschen zu Zeichen machten und dann beleidigt waren, wenn sie bluteten.
+Elva wartete im Türrahmen. Man läuft nicht in einen Satz hinein, in dem der König das Wort hat. Das hatte sie mit acht gelernt und seitdem nie vergessen.
 
-„Ich bin gekommen, weil sie über dich sprachen, als wärst du schon halb tot und nur noch nützlich. Und weil du Taron bist.“
+„Ein Bericht aus Grauwehr“, sagte Malchior. „Und einer von der alten Südbrücke. Er reist mit Zwergen.“
 
-Der Name stand anders zwischen ihnen als in Albrechts Mund. Nicht wie ein Beweis. Nicht wie ein Siegel. Nur wie etwas, das jemand kannte und nicht hergeben wollte.
+Der König sagte nichts.
 
-Taron schluckte.
+„Nicht als Gefangener. Ein Fuhrmann hat gesehen, wie sie gemeinsam aßen. Ein Zwerg mit eiserner Hand. Hauptmann Eisenhand, wenn die Beschreibung stimmt, und sie stimmt meistens, wenn Leute Angst hatten.“
 
-„Das ist kein besonders guter Grund, in alte Schlüsselsachen zu geraten.“
+„Dann hat er den Verstand verloren“, sagte Albrecht.
 
-„Für mich schon.“
+„Oder gefunden.“ Malchior klang nicht spöttisch. Er klang, als wäge er beides. „Es ist nicht wichtig. Er kommt zurück. Er hat den Schlüssel, er hat das Siegel, und er hat etwas, das ihn zurückzieht. Ich habe nie einen Menschen gesehen, der so ungern ging und so sicher wiederkam.“
 
-„Du bist sehr sicher.“
+Der König sah aus dem Fenster. „Wie lange halten die Speicher?“
 
-„Ich habe in Küchen gelernt, dass die besten Gründe meistens praktisch sind. Jemand hat Hunger. Jemand blutet. Jemand wird verkauft, ohne gefragt zu werden. Dann geht man.“
+„Bis zum zweiten Schnee. Wenn die Verteilung streng bleibt.“
 
-Taron sah nach vorn. Merlan war stehen geblieben und tat so, als untersuche er eine Pflanze. Oswin tat so, als sehe er Merlan nicht dabei. Brokk tat gar nicht erst so.
+„Streng ist ein Wort, das man den Leuten nur verkauft, wenn man ihnen gleichzeitig etwas anderes gibt.“
 
-„Ich weiß nicht, ob ich Waldkirch retten will“, sagte Taron.
+„Ja, Majestät.“
 
-Elva nickte.
+„Und was gebe ich ihnen?“
 
-„Aber ich will nicht, dass es wegen einer Lüge stirbt.“
+Malchior legte die Hand auf die Abschrift. Nicht auf die vier Zeilen. Auf seine halbe Seite daneben.
 
-„Das reicht vielleicht.“
+„Ein Wunder zur rechten Zeit nährt mehr als Korn. Das habt Ihr selbst gesagt, im Frühjahr, und es war richtig. Die Leute sind unruhig. Hunger macht anfällig für Zweifel, und Zweifel frisst schneller als Hunger. Wenn er zurückkommt, mit dem Schlüssel, mit Zwergen im Gefolge, mit einer Geschichte, die schon jetzt sieben Ungeheuer hat, obwohl es keines gab, dann ist das mehr wert als drei Wochen Brot.“
 
-„Für einen Helden?“
+„Und wenn er dabei stirbt?“
 
-„Für dich.“
+Elva hörte, wie ihr eigenes Blut in den Ohren ging.
 
-Taron atmete aus. Er war noch verletzt. Das würde nicht verschwinden, nur weil Elva die Wahrheit gesagt hatte. Vielleicht war das sogar der Punkt. Wahrheiten waren keine Salben. Sie waren Messer, wenn man Glück hatte saubere.
+„Dann ist es traurig“, sagte Malchior. „Aber beweiskräftig. Wenn er überlebt, ist es beweiskräftiger. Ein Auserwählter ist kein Besitz seiner Mutter, seines Dorfes oder seiner eigenen Angst. Wenn sein Leiden Lichtenhain Freiheit bringt, muss Lichtenhain stark genug sein, es anzunehmen.“
 
-Sie gingen nicht sofort weiter. Das war nicht geplant. Aber Pläne hatten in den letzten Tagen eine so schlechte Trefferquote gehabt, dass niemand ihnen viel schuldete.
+Der König widersprach nicht.
 
-Am Rand des Weges stand eine verfallene Bildsäule. Ein alter Heiliger ohne Nase hielt ein Buch, aus dem Regen eine Ecke gebrochen hatte. Darunter lagen abgelegte Dinge: ein Stück Schnur, zwei Eicheln, ein verkohlter Löffel. Kleine Bitten von Leuten, die nichts Größeres entbehren konnten.
+Er sagte nach einer Weile: „Sein Name ist ein Geschenk. Man weist ein Geschenk nicht zurück.“
 
-Taron sah die Sachen länger an, als er wollte.
+„Nein, Majestät.“
 
-Er hatte solche Sockel sein ganzes Leben gesehen und immer angenommen, dort werde etwas geopfert. Jetzt fiel ihm auf, dass niemand etwas opferte, was er noch brauchte, und dass genau das die Auskunft war. Ein Stück Schnur hieß: Ich habe Schnur. Ein verkohlter Löffel hieß: Ich habe nichts, was noch funktioniert.
+„Auch wenn es blutet.“
 
-Er tastete in seinen Taschen. Er hatte einen Menschenschlüssel, eine Rauchkugel, eine Handglocke, ein Pergament von einem Vorfahren und drei Fusseln.
+„Gerade dann.“
 
-Nichts davon durfte er hierlassen.
+Der Kessel wurde schwer. Elva merkte es zu spät, weil ihre Arme längst wussten, was sie taten, und ihr Kopf gerade woanders war. Der Griff rutschte, sie fing ihn, und der Eisenboden schlug gegen die Kante der Anrichte. Es war kein lauter Ton. In diesem Raum war er laut genug.
 
-„Du suchst etwas zum Ablegen“, sagte Elva.
+Beide Männer drehten sich um.
 
-„Ich stelle fest, dass ich nur Dinge besitze, die anderen Leuten gehören.“
+Malchior lächelte.
 
-Elva zog einen Knopf von ihrem Ärmel. Es war ein Holzknopf, abgegriffen, mit einem Riss.
+„Elva. Gut. Bring uns danach Wein, wenn noch welcher da ist.“
 
-„Der ist von der Küchenschürze“, sagte sie und legte ihn auf den Sockel. „Ich brauche ihn nicht mehr. Ich trage die Schürze nicht mehr.“
+Und dann sprach er weiter. Nicht leiser. Nicht anders. Er sprach über die Reinigung des Thronsaals, über den Eidstein, der zu belüften sei, über die Frage, ob ein Reichseid an einem Sonntag mehr wiege als an einem Werktag, und Elva stellte den Kessel auf den Tisch, nahm den leeren vom Vortag und ging durch die Tür für Töpfe hinaus, ohne dass jemand aufgehört hätte zu reden.
 
-„Ist das nicht schade?“
+Auf dem Gang mit den drei Stufen blieb sie stehen.
 
-„Nein“, sagte Elva. „Das ist der Punkt.“
+Beim ersten Mal, vor dem Erlass, hatte sie das für Vertrauen gehalten. Malchior redete vor ihr, also traute er ihr. Sie war stolz gewesen, für einen halben Tag, bevor sie begriff, was sie gehört hatte.
 
+Diesmal brauchte sie keinen halben Tag.
 
-Elva setzte sich auf den niedrigen Sockel. „Als ich das in der Küche hörte, wollte ich zuerst nur weg.“
+Er redete vor ihr, weil sie nicht zählte. Nicht so, wie Wachen zählten oder der Vogt oder ein Fuhrmann aus Grauwehr. Sie war etwas, das Töpfe brachte. Man sprach vor Töpfen, wie man vor Wänden sprach. Ein Küchenmädchen konnte hören, was es wollte; es gab niemanden, dem es das hätte sagen können, ohne dass die Frage wichtiger wurde, woher es das wusste, als was es wusste.
 
-„Von Waldkirch?“
+Sie brachte den Wein. Es war noch welcher da. Sie goss ein, ohne zu zittern, und Malchior nickte ihr zu, freundlich, wie man einem Tier zunickt, das seine Arbeit gut macht.
 
-„Von der Tür. Von Malchiors Stimme. Von mir.“
+Danach ging sie zu den Ziegen, weil bei den Ziegen niemand fragte, warum jemand lange blieb.
 
-Taron sagte nichts.
+Sie saß auf dem umgedrehten Eimer und drehte den Knopf.
 
-„Marta hatte mir einen Topf gegeben“, sagte Elva. „Linsensuppe. Mehr Wasser als Linsen, aber sie tat so, als sei das Absicht. Ich sollte ihn in den kleinen Saal bringen. Dort standen Albrecht und Malchior. Ich dachte, sie reden über Vorräte. Alle redeten über Vorräte.“
+Tragbar. Malchior hatte das Wort nicht gesagt, nicht heute. Er hatte es vor Wochen gesagt, im selben Raum, mit derselben Stimme, und sie hatte es Taron nicht erzählt. Nicht in Grauwehr, nicht an der Gerbermauer. Sie hatte ihm den Erlass gegeben, weil ein Erlass ein Stück Papier war, das man jemandem unter die Nase halten konnte. Das andere war nur gehört. Gehörtes half niemandem, der reisen musste.
 
-Sie erzählte es genauer, als Taron gewollt hätte.
+Das hatte sie sich gesagt.
 
-Der kleine Saal habe zwei Türen: eine für Gäste und eine für Töpfe. Elva sei durch die für Töpfe gekommen, den Kessel an einem Holzgriff, weil das Eisen zu heiß gewesen sei, und sie habe im Türrahmen gewartet, weil man nicht in einen Satz hineinläuft, in dem der König das Wort hat.
+Jetzt saß sie im Stall und wusste, dass es auch Feigheit gewesen war. Nicht die große Sorte. Die kleine, mit der man Sätze aufschiebt, weil man dabei zusehen müsste, wie jemand sie hört.
 
-Auf dem Tisch habe eine Abschrift gelegen. Nicht die große aus der Kapelle; eine kleinere, auf ungebleichtem Papier, mit Malchiors eigener Hand daneben.
+Wenn er zurückkam, würde sie es sagen. Nicht ihm zuerst. Dem, der es gesagt hatte. Und dem, der nicht widersprochen hatte.
 
-„Hat er sie verändert?“, fragte Taron.
+Die Ziegen sahen ihr dabei zu und kauten.
 
-„Nein.“ Elva schüttelte den Kopf. „Das ist das Merkwürdige. Er hat nichts verändert. Er hat daneben geschrieben, was sie bedeutet, und die Deutung war länger als der Text.“
+Es dauerte noch vier Tage.
 
-„Wie viel länger?“
+Malchior kam nicht in die Küche. Er ließ sie auch nicht holen. Er saß in der Schreibstube, als sie mit der Tinte kam, an Helmbrechts Platz, und Helmbrecht stand daneben mit den Händen eines Mannes, der es nachmittags nicht mehr ruhig hielt.
 
-„Vier Zeilen Prophezeiung. Eine halbe Seite Malchior.“
+„Setz dich“, sagte Malchior.
 
-Der König habe am Fenster gestanden und nicht auf das Papier gesehen. Er habe gefragt, wie lange die Speicher hielten. Malchior habe gesagt: bis zum zweiten Schnee, wenn die Verteilung streng bleibe. Dann habe Albrecht gesagt, streng sei ein Wort, das man den Leuten nur verkaufen könne, wenn man ihnen gleichzeitig etwas anderes gebe.
+Sie setzte sich.
 
-„Und Malchior gab ihm mich“, sagte Taron.
+Er hatte einen Stapel vor sich. Bestandslisten. Ihre Hand. Er blätterte, ohne zu lesen.
 
-„Malchior gab ihm eine Erklärung“, sagte Elva. „Das ist bei ihm nicht dasselbe, und ich glaube, er merkt den Unterschied wirklich nicht.“
+„Bruder Helmbrecht sagt, du schreibst besser als der Vogt. Das ist kein hohes Lob, aber ein wahres. Ich habe mich immer gefreut, dass wir ein Mädchen in der Küche haben, das lesen kann. Es ist selten. Es ist nützlich.“
 
-Sie habe den Kessel dann abgestellt, weil ihre Arme nachgegeben hätten, und das Geräusch sei zu laut gewesen. Beide Männer hätten sich umgedreht.
+Elva sagte nichts. Bei Malchior war Schweigen keine Antwort, aber immerhin kein Fehler.
 
-Taron spürte, wie sich sein Magen zusammenzog. „Sie haben dich gesehen.“
+„Als Taron zurückkam“, sagte Malchior, „wusste er ein Wort, das ich noch nicht zu ihm gesagt hatte. Ich habe damals gedacht, sein Ritter habe es erraten. Ritter erraten solche Wörter. Sie haben sie oft genug gehört.“ Er legte den Stapel ab. „Dann habe ich mich gefragt, warum er über Grauwehr gekommen ist und nicht über Hohensteg. Und warum die Küche in jener Woche für zwei Tage kein Mädchen hatte, das Tinte bringt.“
 
-„Ja.“
+Helmbrecht sah auf seine Hände.
+
+„Ich mache dir keinen Vorwurf“, sagte Malchior, und das Schlimme war, dass er es meinte. „Du hast einen Freund gewarnt. Das ist ein guter Grund. Die meisten schlechten Dinge geschehen aus guten Gründen. Ich habe das in dreißig Jahren Beichte gelernt, und es ist der einzige Satz, der mir daraus geblieben ist.“
+
+„Was geschieht jetzt?“, fragte Elva.
+
+„Jetzt kommen die Zwerge.“ Er sagte es wie eine Wetterlage. „Nicht morgen. Aber sie kommen, und wenn sie kommen, wird Waldkirch nicht mehr die Zeit haben, auf Küchenmädchen zu achten, die Wege kennen. Du hast ihn gewarnt. Also hängt er an dir. Also bist du hier sicherer als irgendwo sonst. Das ist alles, was ich tue: Ich sorge dafür, dass du hier bist.“
+
+„Wo ist hier?“
+
+„Die Kammer über der Kapelle. Sie ist trocken. Sie hat ein Fenster.“
+
+„Und einen Riegel.“
+
+„Außen. Ja.“ Er faltete die Hände. „Das ist kein Kerker, Elva. Ein Kerker hat keinen Riegel, den man wegnehmen kann. Es ist Obhut.“
+
+Sie sah ihn an, lange genug, dass Helmbrecht sich räusperte.
+
+Sie dachte an einen Erlass, in dem dieses Wort gestanden hatte, und an ihre eigene Hand, die es beim Abschreiben in Anführungszeichen gesetzt hatte, weil sie nicht anders gekonnt hatte. Sie dachte an Taron im Dungeon, den niemand gefragt hatte. An Malchiors Deutung neben der Prophezeiung, die länger war als der Text. An das Blatt unter den Bestandslisten: Der Träger sei zu warnen, nicht zu halten.
+
+Malchior glaubte, was er sagte. Das war das Genaue an ihm. Er würde den Riegel nicht als Drohung benutzen, weil er ihn nicht als Drohung sah. Er würde nur, wenn Taron zurückkam, erwähnen, dass Elva in Sicherheit sei. Freundlich. Als gute Nachricht. Und Taron würde es verstehen, und Malchior würde sich wundern, warum der Junge so still wurde.
+
+Niemand würde das Wort Pfand sagen. Es brauchte niemand.
+
+„Darf Marta kommen?“, fragte Elva.
+
+„Natürlich. Es ist Schutz. Schutz hat Suppe.“
+
+„Dann gut“, sagte Elva und stand auf.
+
+Helmbrecht begleitete sie. Nicht als Wache; Helmbrecht hätte niemanden bewachen können, der schneller war als ein Gedanke. Er ging neben ihr die Treppe hinauf, langsam, und auf der vierten Stufe, die knarrte, seit Elva denken konnte, sagte er: „Ich habe ihm gesagt, es sei niemand in der Stube gewesen.“
+
+„Ich weiß.“
+
+„Er hat gesagt: Niemand, der zählt.“ Der alte Mann blieb stehen und holte Luft. „Ich habe das jahrelang für einen Scherz gehalten.“
+
+„Es ist keiner.“
+
+„Nein.“ Helmbrecht sah die Stufen hinauf. „Ich fürchte, es ist eine Verwaltungsregel.“
+
+Die Kammer über der Kapelle war trocken, wie versprochen. Sie hatte ein Bett, das aus einer Truhe und drei Decken bestand, einen Schemel, einen Krug und ein Fenster, das auf den inneren Hof ging. Unten sah man den Brunnen, der schief stand, das Loch im Pflaster, das niemand flickte, und ein Stück der Mauer, auf der Wachen gingen, seltener als früher, weil auch Wachen Brot brauchten.
+
+Der Riegel wurde vorgelegt, als Helmbrecht gegangen war. Elva hörte ihn. Es war ein alter Riegel, Eisen in Eisen, und er brauchte zwei Anläufe.
+
+Sie setzte sich auf die Truhe.
+
+Marta kam am Abend. Sie durfte. Jost vom Tor, der jetzt einen Speer trug, der zu lang für ihn war, öffnete den Riegel für sie, ohne Elva anzusehen, und stellte sich dann so vor die Tür, als könne er damit etwas gutmachen. Marta brachte Suppe, dünn, und Brot, dick, und setzte sich auf den Schemel, ohne etwas zu sagen. Sie sagte auch danach eine Weile nichts. Marta hielt Schweigen für eine Arbeit, die man ordentlich verrichten konnte oder schlampig.
+
+„Malchior hat mich gefragt, ob ich das Mädchen aus dem Westen gesehen habe“, sagte sie schließlich.
 
 „Und?“
 
-„Malchior hat gelächelt und gesagt, ich solle Wein bringen.“
-
-„Das ist alles?“
-
-„Das ist alles.“ Elva sah auf ihre Hände. „Er hat nicht aufgehört zu reden. Er hat weitergesprochen, während ich im Raum war. Das habe ich zuerst für Vertrauen gehalten. Am Abend habe ich begriffen, was es war.“
-
-„Was war es?“
-
-„Ich habe nicht gezählt.“
-
-
-Taron sah auf die Opfergaben am Sockel. Ein verkohlter Löffel war eine sehr kleine Sache, bis man sich vorstellte, dass jemand ihn nicht mehr hatte.
-
-„Malchior sagte, die Leute würden unruhig“, fuhr Elva fort. „Der Hunger mache sie anfällig für Zweifel. Und der König sagte, ein Wunder zur rechten Zeit könne mehr nähren als Korn.“
-
-„Ich bin ein schlechtes Korn.“
-
-„Ich fand den Satz damals schon falsch. Aber ich verstand erst später, wie falsch. Malchior sagte, wenn du im Dungeon stirbst, sei das traurig, aber beweiskräftig. Wenn du überlebst, sei es beweiskräftiger. So oder so würde Waldkirch eine Antwort bekommen.“
-
-Taron spürte, wie seine Finger kalt wurden.
-
-„Also war ich nicht einmal das Risiko“, sagte er. „Ich war das Ergebnis.“
-
-Elva sah ihn an. „Ja.“
-
-Das Ja war nicht grausam. Es war nur mutig genug, nicht weich zu werden.
-
-„Und du bist trotzdem gekommen.“
-
-„Gerade deshalb.“
-
-Auf dem Weg vor ihnen stand Merlan noch immer bei der Pflanze und machte inzwischen nicht einmal mehr glaubwürdig den Eindruck, sie interessiere ihn. Oswin hatte ihm vermutlich schon dreimal gesagt, dass Tarnung auch Bewegung enthalten dürfe. Brokk wartete mit dem Gesicht eines Zwergs, der persönliche Gespräche für notwendig hielt und genau deshalb misstrauisch betrachtete.
-
-„Ich weiß nicht, was ich mit Albrecht mache, wenn wir zurückkommen“, sagte Taron.
-
-„Du musst nicht wissen, was du mit einem König machst.“
-
-„Das ist beruhigend falsch.“
-
-„Du musst wissen, was du nicht mehr mit dir machen lässt.“
-
-Taron sah zu ihr.
-
-Elva hielt seinem Blick stand. „Das ist etwas anderes.“
-
-Der Erzähler sagte leise: „Eine Küchenweisheit von gefährlicher Brauchbarkeit.“
-
-„Er stimmt dir zu“, sagte Taron.
-
-„Dann soll er aufpassen. Ich gewöhne mich sonst daran.“
-
-Taron steckte die Hände in die Manteltaschen. In einer fand er nur Fusseln. In der anderen den Rand einer alten Naht, die er vor Tagen schon einmal gespürt hatte. Er tastete darüber, aber der Stoff gab nicht nach.
-
-„Was ist?“, fragte Elva.
-
-„Nichts. Mein Mantel führt offenbar ein eigenes Leben.“
-
-„Dann passt er zu dir.“
-
-Er wollte antworten, doch von vorn rief Oswin: „Wenn ihr fertig seid, bevor der Krieg vorbei ist, wäre das für die Reiseplanung angenehm.“
-
-Elva stand auf. „Er sorgt sich.“
-
-„So klingt Sorge?“
-
-„Bei Oswin ja.“
-
-Sie gingen zu den anderen zurück. Taron fühlte sich nicht leichter. Eher genauer verwundet. Aber die Wunde hatte jetzt Ränder. Man konnte sie ansehen, statt nur um sie herum zu stolpern.
-
-Sie gingen weiter.
-
-Am Abend fanden sie Schutz in einer Scheune, die nur noch halb Dach hatte und trotzdem mehr Gastfreundschaft bot als manche Burg. Ein Bauer erlaubte ihnen zu bleiben, nachdem Oswin bezahlte, Brokk draußen wartete und Elva dem Mann zeigte, wie man aus seinen letzten Rüben eine Suppe machte, die nicht wie Kapitulation schmeckte.
-
-Der Bauer erkannte Taron beim Essen.
-
-„Du bist der aus Waldkirch.“
-
-Taron senkte den Löffel. „Das kommt darauf an, welche Geschichte Ihr gehört habt.“
-
-„Die, in der du ein Held bist.“
-
-„Dann nein.“
-
-Der Bauer kaute lange auf dieser Antwort. „Gut. Helden essen viel.“
-
-Er hieß Wendt und hatte zwei Söhne, von denen einer in Waldkirch als Bogenschütze eingezogen war und einer im letzten Winter gestorben war, und er erzählte beides in derselben Tonlage, weil er es zu oft erzählt hatte.
-
-„Wenn die Zwerge kommen“, sagte Oswin, „bleibt Ihr nicht hier.“
-
-„Wohin?“
-
-„Nach Osten.“
-
-„Da ist mein Land nicht.“
-
-„Da ist auch kein Krieg.“
-
-Wendt schöpfte sich Suppe nach. „Ich habe im letzten Krieg vier Wochen in einem Wald gesessen. Als ich zurückkam, stand mein Haus, und in meinem Bett schlief ein Fremder, und er hatte mehr Recht als ich, weil er zuerst da war und ich nichts Schriftliches hatte.“
-
-„Und dann?“
-
-„Dann haben wir uns geeinigt.“ Wendt kaute. „Er ist der, der im Winter gestorben ist.“
-
-Niemand sagte etwas dazu. Elva stand auf und stellte den Topf noch einmal aufs Feuer, obwohl er nicht kalt war.
-
-
-Taron wusste nicht, ob er beleidigt worden war. Der Erzähler begann zu sprechen, überlegte es sich aber offenbar anders. Das war eine bemerkenswerte Entwicklung, die Taron misstrauisch machte.
-
-Später, als die anderen ruhten, saß Elva am Scheunentor und sah nach Osten. Taron setzte sich neben sie.
-
-„Du hättest in Waldkirch bleiben können“, sagte er.
-
-„Ja.“
-
-„Marta hätte dich versteckt.“
-
-„Vielleicht.“
-
-„Du wärst sicherer gewesen.“
-
-Elva sah ihn an. „Sicherer ist nicht dasselbe wie richtig.“
-
-„Oswin sagt, richtig kann teuer sein.“
-
-„Oswin hat recht.“
-
-„Das wird ihm nicht guttun, wenn er es erfährt.“
-
-Sie lächelte kurz, dann wurde sie wieder ernst. „Ich hatte Angst, dass du mir nicht glaubst.“
-
-„Ich wollte dir nicht glauben.“
-
-„Das ist ehrlich.“
-
-„Ich werde davon krankhaft befallen.“
-
-Elva zog die Knie an. „Wenn wir in Waldkirch sind, werden sie versuchen, dich wieder zu benutzen. Vielleicht netter. Vielleicht mit besseren Worten. Aber sie werden es versuchen.“
-
-Taron sah hinaus. In der Dunkelheit bewegte sich nichts, aber seit Eidgrund wusste er, dass Unsichtbares keine Entwarnung war.
-
-„Dann erinnerst du mich daran.“
-
-„Woran?“
-
-„Dass ich Taron bin. Offenbar vergesse ich es leicht, wenn genug Leute andere Namen für mich haben.“
+„Ich habe nein gesagt.“ Marta sah auf ihre Hände. „Sie hat zwei Nächte im Holzschuppen geschlafen. Ich habe ihr Sohlen aufgenäht. Sie hat gefragt, ob du die bist, die den Eimer abgestellt hat.“
 
 Elva nickte.
 
-Der Erzähler sagte leise: „Eine Aufgabe von erheblichem Umfang.“
+„Dann war das nicht nichts“, sagte Marta und stand auf. „Iss, solange es warm ist. Kalt merkt man das Wasser.“
 
-„Ich habe in Waldkirch größere Töpfe getragen“, sagte Elva.
+Nachts war es still in der Kammer, und deshalb hörte Elva es zum ersten Mal richtig.
 
-Als sie die anderen erreichten, sagte Oswin: „Fertig?“
+Sie hatte es immer gehört, ihr ganzes Leben, wie alle in Waldkirch: dass unten, unter dem Hof, unter den Gängen, in die keiner mehr wollte, nachts Ketten klirrten, die niemand mehr besaß. Man erzählte es Neuen, und dann hörte man auf, es zu hören. Es gehörte zur Burg wie der schiefe Brunnen.
 
-„Nein“, sagte Taron. „Aber weiter.“
+Jetzt war es lauter.
 
-Brokk nickte, als sei das eine Marschordnung, mit der ein Zwerg arbeiten konnte.
+Nicht viel. Aber sie kannte den Ton, und der Ton hatte sich verändert, so wie sich ein Topf verändert, wenn das Wasser kurz vor dem Kochen ist. Ein Rhythmus. Ein Nachgeben. Etwas unter Waldkirch, das jahrelang gleich geklungen hatte, klang jetzt, als habe es etwas gehört, worauf es gewartet hatte.
 
-Und Waldkirch wartete.
+Elva lag auf der Truhe und hörte zu, bis es aufhörte. Es hörte gegen Morgen auf.
 
-Am nächsten Morgen war der Weg hart gefroren. Das machte ihn leichter zu gehen und schwerer zu mögen. Taron hatte schlecht geschlafen. Immer wenn er die Augen geschlossen hatte, sah er Albrecht im kleinen Saal, Malchior mit der Abschrift, Elva an der Tür mit einem Topf Suppe in den Händen. In der Erinnerung stand sie still. In Wirklichkeit musste sie gezittert haben.
+Sie beschloss, es Taron zu erzählen, wenn er kam. Und dem Zwerg mit der eisernen Hand, falls es den gab. Und Marta nicht, weil Marta es wusste.
 
-„Warum bist du nicht zu Marta gegangen?“, fragte er, als sie wieder nebeneinander gingen.
+Am zweiten Tag begann sie zu zählen.
 
-Elva brauchte keine Erklärung. „Weil Marta mich gehalten hätte.“
+Nicht Brote. Stufen. Zwischen der Kammer und dem Gang zur Kapelle waren es siebzehn, die vierte knarrte, die elfte war lockerer, als sie sein sollte. Der Riegel brauchte zwei Anläufe und klang beim zweiten höher als beim ersten. Die Wache wechselte, wenn die kleine Glocke am äußeren Wachhaus geschlagen wurde, und danach dauerte es so lange, wie man brauchte, um ein Brot in acht Stücke zu schneiden, bis jemand unter ihrem Fenster vorbeiging. Jost kam morgens. Ein Älterer, den sie nur vom Sehen kannte, kam abends und aß dabei.
 
-„Das klingt nach Marta.“
+Sie hatte noch einen Streifen rotes Tuch. Er war vom selben Stück wie der am toten Dornbusch an der Gerbermauer, und sie hatte ihn in den Saum des Mantels genäht, ohne zu wissen wofür. Sie ließ ihn dort. Man wusste bei Zeichen selten vorher, wofür sie gut waren. Man wusste es hinterher, und dann war es besser, sie zu haben.
 
-„Und weil ich dann hätte erklären müssen, warum ich fortwill. Wenn ich es laut gesagt hätte, wäre es vielleicht zu groß geworden.“
+Am vierten Abend kam Malchior noch einmal.
 
-Taron nickte. Er kannte das. Manche Entscheidungen musste man treffen, bevor man sie vollständig verstand. Sonst gaben sie einem zu viel Zeit, feige zu werden.
+Er blieb in der Tür stehen, mit Jost hinter sich, und sah in die Kammer wie jemand, der prüft, ob ein Versprechen gehalten wurde. Trocken. Fenster. Suppe.
 
-„Ich habe Brot gestohlen“, sagte Elva.
+„Es geht dir gut“, sagte er. Es war keine Frage.
 
-„Was?“
+„Ich werde satt.“
 
-„Aus der Küche. Zwei Laibe. Einen für mich, einen für unterwegs. Ich dachte, das sei mein schlimmster Teil der Flucht.“ Sie lachte kurz. „Dann traf ich Zwerge, alte Schlüssel und dich in Lebensgefahr. Meine Maßstäbe haben gelitten.“
-
-„Marta wusste es vermutlich.“
-
-„Sicher.“
-
-„Dann war es kein Diebstahl.“
-
-„Ja. Marta hätte nur besser gestohlen.“
-
-Elva sah zu Taron. „Sag ihm, er soll nicht so tun, als verstehe er Küchen.“
-
-„Sie sagt, du sollst nicht so tun, als verstehst du Küchen.“
-
-„Ich verstehe Küchen als Orte, an denen wichtige Leute selten lange genug bleiben, um die Folgen ihrer Befehle zu riechen.“
-
-Elva schwieg.
-
-„Das war nicht falsch“, sagte sie dann.
-
-Taron merkte, dass sie beide wieder an Waldkirch dachten. An Marta. An leere Töpfe. An einen König, der ein Reich trug und vielleicht nie selbst einen Kessel vom Feuer genommen hatte, wenn unten nichts als Wasser darin war.
-
-„Wenn wir zurückkommen“, sagte Taron, „will ich zuerst zu Marta.“
-
-„Wenn wir zurückkommen, wirst du zuerst zum König müssen.“
-
-„Dann will ich danach zu Marta.“
-
-„Das ist ein Plan.“
-
-„Ein kleiner.“
-
-„Kleine Pläne überleben manchmal besser.“
-
-Elva wurde danach still. Nicht traurig still, eher rechnend. Taron hatte sie inzwischen oft genug beobachtet, um den Unterschied zu erkennen. Traurigkeit senkte ihren Blick. Rechnen machte ihn scharf.
-
-„Was?“, fragte er.
-
-„Marta wird schon wissen, dass etwas kommt.“
-
-„Weil sie allwissend ist?“
-
-„Weil sie Vorratslisten besser liest als Malchior Prophezeiungen.“
-
-Der Erzähler sagte: „Ein unfairer Vergleich. Vorratslisten enthalten meistens weniger Wein.“
-
-Elva ging weiter. „Wenn die Zwerge Waldkirch einschließen, ist Brot das Erste. Nicht Mauern. Brot. Wer verteilt, entscheidet, wer ruhig bleibt.“
-
-Brokk hatte den ganzen Vormittag zugehört, ohne es zuzugeben.
-
-An einer Furt, wo sie die Pferde trinken ließen, trat er zu Elva und sagte ohne Umschweife: „Der Priester hat weitergeredet, weil du kein Zeuge warst.“
-
-Elva sah ihn an. „Ja.“
-
-„Bei uns heißt das: unter der Bank stehen. Wer unter der Bank steht, hört alles und kann nichts bezeugen, weil er nicht eingetragen ist.“
-
-„Und wer trägt ein?“
-
-„Der Hallenschreiber. Auf Antrag.“
-
-„Und wer stellt den Antrag?“
-
-Brokk schwieg kurz. „Meistens niemand.“
-
-Elva nickte langsam, als bestätige sich etwas, mit dem sie gerechnet hatte. „Dann ist es überall dasselbe Verfahren.“
-
-„Ja“, sagte Brokk. „Nur die Bänke sind anders geschnitten.“
-
-Oswin prüfte die Sattelgurte und sagte, ohne aufzusehen: „In der Westmark hatten wir Feldschreiber. Sie schrieben auf, wer fiel. Nicht, wer geredet hatte.“
-
-„Und wenn jemand einen falschen Befehl gab?“
-
-„Dann fiel jemand“, sagte Oswin, „und das wurde aufgeschrieben.“
-
-
-Taron dachte an Marta in ihrer Backstube, an ihre Hände, an den Ofen, an die dünne Suppe. Er hatte sie immer als Zuflucht gesehen. Elva sah sie als Versorgungslinie. Beides war wahr. Vielleicht war das der Unterschied zwischen jemandem, der in der Küche Schutz suchte, und jemandem, der dort gearbeitet hatte.
-
-„Albrecht weiß das“, sagte Taron.
+„Das können nicht alle sagen.“ Er nickte, zufrieden, als sei damit etwas bewiesen. „Ein Reiter hat sie gesehen. Zwei Tage östlich. Ein Ritter, der Stallbursche, ein Gelehrter, der zu Fuß geht, weil er offenbar meint, das mache ihn leichter. Und Zwerge. Der Reiter hat aufgehört zu zählen, als er den ersten Bart sah.“ Er lächelte kurz. „Er kommt, Elva. Wie ich gesagt habe.“
 
 „Ja.“
 
-„Dann wird er Marta benutzen.“
+„Dann ist bald alles in Ordnung.“
 
-Elva sah ihn an. „Er wird es versuchen.“
+Er ging. Der Riegel brauchte zwei Anläufe.
 
-„Und Marta?“
+Elva saß noch lange am Fenster. Unten ging der ältere Wachmann vorbei und aß dabei. Die kleine Glocke schlug. Sie zählte mit, ohne es zu wollen, wie lange es dauerte, bis wieder jemand kam. Acht Stücke Brot. Es stimmte.
 
-„Wird so tun, als gehorche sie, und dabei die wichtigere Sache tun.“
-
-Taron musste lächeln. „Das klingt nach ihr.“
-
-„Ich habe von ihr gelernt.“
-
-„Brot zu stehlen?“
-
-„Unter anderem.“
-
-Sie sah nicht stolz aus, aber auch nicht beschämt. „In der Küche gab es eine Regel: Wenn der Saal zu viel nimmt, versteckst du etwas für die, die nach dem Saal kommen.“
-
-„Das ist Diebstahl.“
-
-„Ja.“
-
-„Und?“
-
-„Manche Regeln sind für Leute geschrieben, die schon gegessen haben.“
-
-Der Erzähler sagte: „Ich werde diese Küche eines Tages in ein moralphilosophisches Lehrbuch schmuggeln.“
-
-„Bitte nicht“, sagte Taron. „Malchior könnte es lesen und eine Steuer daraus machen.“
-
-Elva lachte kurz. Dann wurde ihr Gesicht wieder ernst. „Wenn wir Waldkirch retten, retten wir nicht nur Mauern. Wir müssen auch verhindern, dass sie danach wieder so tun, als gehöre Rettung denen, die oben sitzen.“
-
-Taron sah zu ihr. „Du planst schon die Zeit danach?“
-
-„Jemand muss.“
-
-„Ich war noch bei dem Teil, in dem wir vorher nicht sterben.“
-
-„Das ist auch auf der Liste.“
-
-„Sehr weit oben?“
-
-„Mit Ausrufezeichen.“
-
-Der Erzähler schwieg dazu. Taron nahm es als Zustimmung, weil er für etwas anderes zu müde war.
-
-Am Mittag holten sie Merlan ein, der inzwischen aufgegeben hatte, nicht zu lauschen. Er räusperte sich und sagte: „Persönliche Wahrheiten verändern politische Entscheidungen häufig stärker als umgekehrt.“
-
-Oswin sah ihn an. „Du hast wirklich an einer Pflanze gelauscht.“
-
-„Ich habe neben einer Pflanze gewartet. Das ist botanisch ein Unterschied.“
-
-Am Abend holte Merlan eine Rolle heraus, ohne zu fragen, ob jemand sie sehen wollte.
-
-„Deine Abschrift“, sagte er zu Elva.
-
-Elva sah auf. „Ihr habt sie behalten?“
-
-„Ich behalte alles, was jemand unter Gefahr geschrieben hat. Es ist eine schlechte Sammelleidenschaft und die einzige, die ich mir leiste.“ Er strich das Blatt glatt. „Ihr habt einen Fehler gemacht.“
-
-„Wo?“
-
-„Hier. Ihr habt in Obhut in Anführungszeichen gesetzt.“
-
-„Das stand da nicht?“
-
-„Nein. Das ist Eure Meinung, mitten in einer Abschrift.“ Merlan sah sie über die Brille an. „Es ist der beste Fehler, den ich seit Jahren gesehen habe, und Ihr dürft ihn nie wieder machen, wenn Ihr wollt, dass man Euch glaubt.“
-
-Elva nahm das Blatt und sah lange darauf.
-
-„Was mache ich stattdessen?“
-
-„Ihr schreibt ab, was dasteht, und darunter, was Ihr gehört habt, und Ihr schreibt darunter, dass Ihr es gehört habt und nicht gelesen.“ Merlan setzte sich schwerfällig auf einen Balken. „Dann kann man Euch nicht widerlegen, ohne Euch zu nennen. Das ist der ganze Trick, und er ist zweitausend Jahre alt.“
-
-
-Elva schüttelte den Kopf, aber ihre Schultern waren weniger hart als zuvor. Taron merkte, dass die Wahrheit zwischen ihnen nicht kleiner geworden war, aber tragbarer. Nicht im Sinn von Albrecht und Malchior. Tragbar, weil man sie zu zweit anders hielt.
-
-Der Weg stieg danach an. Von oben sahen sie im Westen den ersten Rauch über Waldkirchs Land. Keine Schlacht noch. Nur Bauern, die feuchte Äste verbrannten, vielleicht um Felder zu räumen, vielleicht um sich selbst zu zeigen, dass sie noch Feuer machen konnten.
-
-„Wenn wir zu spät kommen?“, fragte Taron.
-
-Elva sah den Rauch an. „Dann kommen wir trotzdem.“
-
-Das war keine Beruhigung.
-
-Es war besser.
+Der Riegel wurde von außen vorgelegt. Das hieß, dass er von außen auch wieder weg konnte. Sie merkte sich, wie er klang.

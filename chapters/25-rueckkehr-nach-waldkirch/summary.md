@@ -1,6 +1,10 @@
 - Taron entscheidet, nicht weiter Artefakten hinterherzulaufen, sondern nach Waldkirch zurueckzukehren.
 - Waldkirch ist hungernder, angespannter und kriegsbereiter als zuvor.
+- Marta sagt Taron vor der Backstube, dass Elva im Bergfried sitzt: "Sie nennen es Obhut." Taron weigert sich, das auf spaeter zu verschieben.
+- Im Rittersaal fordert Taron zuerst Elva, bevor ueber Schluessel gesprochen wird. Albrecht gibt nach; Elva kommt mit gerader Haltung, nicht gerettet ("Achtundvierzig Stufen. Spaeter.").
+- Elva sagt Albrecht ins Gesicht, was sie im kleinen Saal gehoert hat: Tarons Leiden war "tragbar".
 - Koenig Albrecht sammelt Truppen, weil die Zwerge wieder marschieren.
 - Taron merkt, dass er seine Heimat retten will, obwohl sie ihn geopfert haette.
 - Albrecht laesst die Speicherlisten holen, hoert die tatsaechliche Zahl fuer die Unterstadt und oeffnet den mittleren Speicher gegen Malchiors Widerspruch. Das macht ihn laut Elva nicht gut, sondern brauchbar.
 - Merlan fragt Malchior, ob seine drei geweihten Schreiber nacheinander oder nebeneinander abgeschrieben haben, und laesst die Frage nach dem Original unbeantwortet stehen.
+- Auf der Treppe gibt Oswin Elva den Schutzschluessel ("Er gehoert zu niemandem, der etwas will."), Taron gibt ihr Ansels Handglocke aus Ellingen.

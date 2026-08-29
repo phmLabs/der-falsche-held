@@ -1,38 +1,22 @@
-Der Weg zum Schutzschlüssel begann mit einem Streit über Sitzordnung.
+Der Weg zum Schutzschlüssel begann ohne Horn.
 
-Das war nicht episch. Taron wusste das. Er hatte inzwischen genug über alte Eide, erwachende Schlüssel und bewegte Reiche gehört, um anzunehmen, dass der nächste Abschnitt seiner Reise wenigstens mit einem fernen Horn, einem düsteren Himmel oder einer bedeutungsvollen Krähe beginnen sollte. Stattdessen begann er damit, dass Elva hinter ihm auf Kummer saß und Kummer der festen Meinung war, dies sei gegen irgendein Pferderecht.
+Taron wusste, dass das nicht episch war. Er hatte inzwischen genug über alte Eide, erwachende Schlüssel und bewegte Reiche gehört, um anzunehmen, dass der nächste Abschnitt seiner Reise wenigstens mit einem fernen Horn, einem düsteren Himmel oder einer bedeutungsvollen Krähe beginnen sollte. Stattdessen begann er mit einem Pferd, das zum ersten Mal seit Grauwehr nur einen Reiter trug und deshalb so ging, als wolle es niemanden auf den Gedanken bringen, das zu ändern.
 
-„Er läuft schief“, sagte Elva.
+„Er läuft schief“, sagte Taron.
 
-„Er läuft immer schief.“
+„Er läuft immer schief“, sagte Oswin.
 
-„Nein, jetzt läuft er beleidigt.“
+„Nein, jetzt läuft er zufrieden. Das ist bei ihm schwer zu unterscheiden.“
 
-„Das ist seine natürliche Gangart.“
+Oswin ritt neben ihm und sah aus, als könne er jede weitere Bemerkung zur Pferdehaltung körperlich spüren.
 
-Oswin ritt neben ihnen und sah aus, als könne er jede weitere Bemerkung zur Pferdehaltung körperlich spüren.
-
-„Wir brauchen ein drittes Pferd“, sagte Taron.
-
-„Wir brauchen zehn Dinge“, sagte Oswin. „Ein drittes Pferd ist eines der weniger blutenden.“
+„Wir brauchen zehn Dinge“, sagte er, ohne dass jemand gefragt hätte. „Ein Packpferd ist eines der weniger blutenden.“
 
 „Schön formuliert.“
 
 „Nein.“
 
-Der Erzähler sagte: „Ich finde, es hatte etwas Karges.“
-
-„Niemand wurde gefragt.“
-
-Elva beugte sich leicht vor. „Hat er gerade etwas gesagt?“
-
-„Er findet Oswin karg.“
-
-„Das ist nicht falsch.“
-
-Oswin sah nicht zu ihnen.
-
-Das war seine Art, recht zu behalten, ohne Aufwand zu verschwenden.
+Der Erzähler fand, es habe etwas Karges gehabt. Taron gab ihm nicht recht, und der Erzähler erklärte, das sei der Zustand, in dem er am meisten sage. Oswin sah zu keinem von beiden. Das war seine Art, recht zu behalten, ohne Aufwand zu verschwenden.
 
 Sie ritten nach Südosten, weg von Waldkirch, weg vom direkten Weg nach Grauwehr und hin zu einer alten Straße, die auf keiner neueren Karte groß genug gezeichnet war, um wichtig zu wirken. Laut dem Königssiegel durften sie im Auftrag Waldkirchs reisen. Laut Taron bedeutete das, dass sie bei Bedarf Hilfe verlangen konnten. Laut Oswin bedeutete es vor allem, dass jeder, der lesen konnte, wusste, wen er vor sich hatte.
 
@@ -44,27 +28,13 @@ Beide hatten vermutlich recht. Taron hätte das gern gehasst, aber dafür war er
 
 Der Menschenschlüssel lag unter seinem Hemd, das Reisesiegel im Beutel, die Rauchkugel getrennt davon in Leder gewickelt. Taron hatte die Dinge inzwischen so sorgfältig voneinander getrennt, als könne Ordnung verhindern, dass sie gemeinsam eine Katastrophe planten.
 
-„Wohin genau?“, fragte Elva.
+„Wohin genau?“, fragte er.
 
-Taron sah zu Oswin.
-
-Oswin sah zurück.
-
-„Das war keine gute Frage“, sagte Taron.
-
-„Ihr wisst es nicht.“
-
-„Wir wissen ungefähr.“
-
-„Ungefähr ist kein Ort.“
-
-„Bei Prophezeiungen schon.“
+Oswin sah zu ihm. Taron hatte nicht ihn gefragt, und Oswin wusste das inzwischen. Er sah wieder auf die Straße.
 
 Der Erzähler sagte: „Der Schutzschlüssel liegt zwischen altem Anspruch und alter Schuld.“
 
 Taron wartete.
-
-Elva wartete ebenfalls, obwohl sie nur Tarons Gesicht sah und nicht hörte, was gesagt worden war.
 
 „Und?“
 
@@ -74,11 +44,33 @@ Elva wartete ebenfalls, obwohl sie nur Tarons Gesicht sah und nicht hörte, was 
 
 „Es ist eine sehr alte Wegbeschreibung. Sie wurde nur noch nicht durch nützliche Informationen beschädigt.“
 
-Taron rieb sich die Stirn.
+Taron rieb sich die Stirn. Zwischen altem Anspruch und alter Schuld. Also überall.
 
-„Er sagt, zwischen altem Anspruch und alter Schuld.“
+Vor der letzten Kuppe ritt Oswin voraus, um die Straße zu sehen, bevor die Straße ihn sah. Taron blieb mit Kummer im Schatten einer Erle zurück und merkte, wie leise es ohne den Ritter wurde.
 
-Elva sah zur Straße. „Also überall.“
+Und ohne Elva. Von Grauwehr bis Waldkirch hatte sie hinter ihm auf dem Pferd gesessen und ihn am Ärmel gezogen, wenn er dabei war, etwas Dummes zu tun. Jetzt hing ihr Küchenmesser an seinem Gürtel, und der Griff war noch zu glatt für seine Hand. Ein Messer zum Käseschneiden. Sie hatte es ihm an der Gerbermauer in die Hand gedrückt, als sei das eine Antwort auf etwas, das er nicht gefragt hatte.
+
+„Du denkst zu laut“, sagte der Erzähler.
+
+„Ich denke gar nicht.“
+
+„Dann ist der Lärm bemerkenswert.“
+
+Taron sah der Straße nach, auf der Oswin klein wurde. „Sie wäre mitgekommen.“
+
+„Ja.“
+
+„Du hast nichts dazu gesagt.“
+
+„Ich sage zu vielem nichts. Das ist mein Beruf. Wenn ich zu allem etwas sagte, würdest du gar nicht mehr zuhören.“
+
+„Du hast in den letzten Tagen gelernt, dass es Leute gibt, die antworten, wenn man mit ihnen redet. Das verdirbt einen.“
+
+Taron wollte etwas Scharfes sagen. Es fiel ihm nichts ein, was nicht zugleich zugegeben hätte, dass die Stimme recht hatte. Da war nur noch ein Pferd, das seine Meinung über Taron nicht mehr änderte, und eine Stimme, die sie nie geändert hatte. Elva hatte gesagt, jemand müsse dort bleiben, der zuhört. Der Erzähler gab ihr recht. Er gab Leuten oft recht, sagte er, meistens, wenn sie nicht da waren. Das sei sicherer.
+
+Oben auf der Kuppe hob Oswin die Hand. Nicht als Warnung. Als Aufforderung, endlich zu kommen.
+
+Taron trieb Kummer an. Das Messer schlug leise gegen sein Bein.
 
 Gegen Mittag erreichten sie die alte Südbrücke.
 
@@ -86,9 +78,7 @@ Sie führte über einen schmalen Fluss, der früher eine Grenze gewesen war und 
 
 Taron stieg ab.
 
-Elva rutschte hinter ihm vom Pferd und streckte die Beine. Kummer wirkte sofort, als habe er eine jahrelange Belagerung überstanden.
-
-„Das Zeichen“, sagte Taron.
+„Das Zeichen“, sagte er.
 
 Oswin betrachtete den Stein. „Alt.“
 
@@ -100,23 +90,19 @@ Oswin betrachtete den Stein. „Alt.“
 
 Der Erzähler sagte: „Niemand vermisst sie mehr als ich. Ich bin umgeben von Leuten, die mit drei Worten Häuser bauen und dann behaupten, es sei Architektur.“
 
-Elva strich mit dem Finger über das Zeichen, ohne es wirklich zu berühren. „Das war vor Waldkirch.“
+Taron sah das Zeichen länger an. Er kannte den Falken Waldkirchs von Türen, Fässern, Brotlaiben und dem Wachs im eigenen Beutel. Wo Waldkirch hinkam, kam der Falke mit.
 
-„Woher weißt du das?“
+„Das war vor Waldkirch“, sagte er.
 
-„Weil Waldkirch überall seinen Falken hinmacht. Dieses Zeichen sieht aus, als hätte noch niemand den Drang gehabt, Besitz darauf zu schreiben.“
+Oswin sah ihn an.
 
-Taron sah sie an.
+„Hier hat noch niemand den Drang gehabt, Besitz draufzuschreiben.“
 
-„Was?“
+Der Erzähler sagte: „Das war beinahe klug.“
 
-„Das war klug.“
+„Beinahe?“
 
-„Ich bin oft klug.“
-
-„Ja, aber diesmal passte es zur Handlung.“
-
-Elva zog die Hand zurück. „Sag so etwas noch einmal und ich gehe zu Fuß.“
+„Es passte zur Handlung. Das macht mich misstrauisch.“
 
 Oswin war währenddessen auf die andere Seite der Brücke gegangen. Dort blieb er stehen.
 
@@ -136,8 +122,6 @@ Der Ritter ging in die Hocke und betrachtete den Boden. Dann die Böschung. Dann
 
 Taron spürte, wie sein Mund trocken wurde.
 
-Elva trat neben ihn.
-
 „Zwerge?“
 
 Oswin stand auf. „Sechs. Vielleicht sieben. Schwere Stiefel. Keine Wagen. Graue Mäntel, wenn die Flüchtlinge recht hatten.“
@@ -156,7 +140,7 @@ Oswin sah ihn an.
 
 „Gut. Nein.“
 
-Elva sagte: „Wir könnten umkehren.“
+Der Erzähler sagte: „Wir könnten umkehren.“
 
 Taron sah zur Brücke. Zur Straße nach Waldkirch. Dann zum alten Zeichen.
 
@@ -168,11 +152,9 @@ An den Moment, in dem er gesagt hatte, er müsse weiter, und beinahe daran gegla
 
 „Nein.“
 
-Das Wort kam schneller, als er erwartet hatte.
+Das Wort kam schneller, als er erwartet hatte, und laut genug, dass Oswin es hörte. Der Ritter fragte nicht, wem es galt.
 
-Elva sah ihn an.
-
-„Nein?“
+„Nein?“, fragte der Erzähler.
 
 „Wenn wir umkehren, sind die Zwerge trotzdem unterwegs.“
 
@@ -218,11 +200,9 @@ Taron blieb fast stehen.
 
 „Nicht jetzt. Aber früher als beim Sterben.“
 
-Taron sagte nichts.
+Taron sagte nichts. Dann sagte er es doch, halblaut, weil manche Sätze zu schwer waren, um sie allein zu halten.
 
-Elva merkte es. „Was sagt er?“
-
-„Dass ich die Rauchkugel benutzen soll.“
+„Er meint, ich soll die Rauchkugel benutzen.“
 
 Oswin blieb stehen.
 
@@ -248,11 +228,7 @@ Dann dachte er an den Saal in Abendriss. An Oswins blutende Stirn. An den alten 
 
 „Vielleicht diesmal.“
 
-Elva sagte: „Vielleicht ist ein gefährliches Wort.“
-
-Oswin sah kurz zu ihr.
-
-„Ich weiß“, sagte sie. „Ihr hattet offenbar einen guten Satz.“
+Der Erzähler merkte an, dass Vielleicht ein gefährliches Wort sei. Taron erinnerte ihn daran, von wem er es gelernt hatte, und bekam keine Antwort, die als Antwort durchging.
 
 Der Hinterhalt kam fünfzig Schritte später.
 
@@ -262,7 +238,7 @@ Taron hatte längst den Verdacht, dass die Welt Gespräche abwartete, bis sie ei
 
 Ein Stein rollte vom Hang.
 
-Nicht groß. Gerade groß genug, dass Kummer den Kopf hochriss und Elva nach Tarons Mantel griff.
+Nicht groß. Gerade groß genug, dass Kummer den Kopf hochriss und Taron nach dem Sattel griff.
 
 Oswin zog das Schwert.
 
@@ -310,8 +286,6 @@ Taron erstarrte.
 
 Oswins Schwertspitze senkte sich ein wenig.
 
-Elva sagte leise: „Taron.“
-
 Der Zwerg trat einen Schritt näher.
 
 „Mit wem?“
@@ -352,19 +326,13 @@ Brokks Mund bewegte sich kaum. Vielleicht war es ein Lächeln. Vielleicht hatte 
 
 „Das sagen Menschen, wenn sie Dinge behalten.“
 
-Elva trat vor. „Und Zwerge sagen was, wenn sie Dinge wollen?“
-
-Brokk sah sie an.
+„Und was sagen Zwerge, wenn sie Dinge wollen?“
 
 „Meistens weniger.“
 
-„Das passt.“
-
-Taron wollte Elva hinter sich ziehen und wusste sofort, dass das gefährlicher war, als die Zwerge zu beleidigen.
-
 Oswin sagte: „Karndorn?“
 
-Brokk sah wieder zu ihm.
+Brokk sah zu ihm.
 
 „Ja.“
 
@@ -398,7 +366,7 @@ Sein Gesicht veränderte sich nicht, aber etwas in ihm zog sich zusammen.
 
 Oswin sah ihn an und sagte nichts.
 
-Elva sog leise Luft ein. Taron begriff erst später, dass dieses Schweigen keine Weigerung war, sondern ein Preis, den Oswin vor Zeugen nicht zahlen wollte.
+Taron begriff erst später, dass dieses Schweigen keine Weigerung war, sondern ein Preis, den Oswin vor Zeugen nicht zahlen wollte.
 
 Brokk hielt den Blick auf Oswin.
 
@@ -446,9 +414,7 @@ Er griff nicht danach.
 
 Das war vielleicht keiner.
 
-Elva sah seine Hand.
-
-Oswin sah sie auch.
+Oswin sah seine Hand.
 
 „Taron“, sagte der Ritter.
 
@@ -463,10 +429,6 @@ Oswins Gesicht blieb hart.
 Brokk sagte: „Ihr habt Rauch.“
 
 „Vielleicht“, sagte Taron.
-
-Elva flüsterte: „Vielleicht.“
-
-„Ich weiß.“
 
 Brokks Blick wurde schärfer. „Zwergenrauch?“
 
@@ -488,7 +450,7 @@ Nicht vor.
 
 Zur Seite.
 
-Er stellte sich so, dass Taron und Elva hinter einem Baumstumpf standen, ohne dass es wie Deckung aussah. Brokk bemerkte es. Natürlich bemerkte er es.
+Er stellte sich so, dass Taron hinter einem Baumstumpf stand, ohne dass es wie Deckung aussah. Brokk bemerkte es. Natürlich bemerkte er es.
 
 „Guter Ritter“, sagte er.
 
@@ -536,7 +498,7 @@ Taron hob beide Hände.
 
 „Das war schlecht formuliert.“
 
-„Ja“, sagte Elva.
+„Ja“, sagte der Erzähler.
 
 „Danke.“
 
@@ -586,7 +548,7 @@ Nicht auf Brokk.
 
 Auf den Winkel.
 
-Er schlug nicht, um zu töten. Er trat gegen den Armbrustzwerg, brachte ihn aus der Linie und zog Taron mit der freien Hand zurück. Elva duckte sich, packte eine Handvoll Erde und warf sie dem nächsten Zwerg ins Gesicht. Es war keine ritterliche Technik. Sie funktionierte.
+Er schlug nicht, um zu töten. Er trat gegen den Armbrustzwerg, brachte ihn aus der Linie und zog Taron mit der freien Hand zurück. Kummer trat aus, was er sonst nur bei Taron tat, und traf zum ersten Mal jemanden, der es verdient hatte.
 
 Taron griff nach der Rauchkugel.
 
@@ -609,8 +571,6 @@ Taron erstarrte.
 Wenn er warf, würden die Zwerge vorbereitet sein. Vielleicht nicht alle. Vielleicht genug. Vielleicht würde Oswin endlich zufrieden sein und vielleicht würden sie trotzdem sterben.
 
 „Jetzt!“, sagte Oswin.
-
-Elva rief: „Taron!“
 
 Der Erzähler sagte: „Entscheide.“
 
@@ -656,7 +616,7 @@ Brokk sah auf die Kugel.
 
 Oswin starrte Taron an, als sei er gleichzeitig stolz und kurz davor, ihn später zu schlagen.
 
-Elva flüsterte: „Das war dein Plan?“
+Der Erzähler sagte: „Das war dein Plan?“
 
 „Er ist gerade entstanden.“
 
@@ -704,15 +664,11 @@ Oswin sagte: „Gefangene.“
 
 Brokk sah ihn an. „Gäste mit schlechten Optionen.“
 
-„Zwerge nennen Dinge gern praktisch“, sagte Elva.
+„Zwerge nennen Dinge gern praktisch“, sagte Taron.
 
 „Menschen nennen Gefängnisse Obhut“, sagte Brokk.
 
-Elva schwieg.
-
-Taron auch.
-
-Das hatte getroffen.
+Taron schwieg. Das Wort hatte in Elvas hastiger Abschrift gestanden, eng geschrieben, als habe sie sich beim Schreiben davor geekelt. Er hatte nicht erwartet, es aus dem Mund eines Zwergen wiederzuhören, und noch weniger, dass es dort genauso klang.
 
 Brokk deutete auf den Schlüssel. „Heb ihn auf.“
 
@@ -740,21 +696,15 @@ Brokk beobachtete es.
 
 „Dann reitest du wie immer.“
 
-Elva machte ein Geräusch, das gefährlich nah an einem Lachen lag.
-
-Taron sah sie beleidigt an.
-
-„Nicht du auch.“
-
-„Doch.“
+Der Erzähler lachte. Es war kein angenehmes Geräusch, weil es nur in Tarons Kopf stattfand und dort niemand die Tür zumachen konnte.
 
 Die Zwerge nahmen ihnen nicht die Waffen ab.
 
 Das war fast schlimmer.
 
-Sie ordneten sich um sie herum an, nicht eng, aber genau genug, dass jede Flucht zu einer sehr kurzen Geschichte geworden wäre. Brokk ging neben Taron her. Oswin ritt auf der anderen Seite, steif vor Misstrauen. Elva saß wieder hinter Taron auf Kummer und flüsterte:
+Sie ordneten sich um sie herum an, nicht eng, aber genau genug, dass jede Flucht zu einer sehr kurzen Geschichte geworden wäre. Brokk ging neben Taron her. Oswin ritt auf der anderen Seite, steif vor Misstrauen.
 
-„Du wolltest doch vielleicht abhauen.“
+„Du wolltest doch vielleicht abhauen“, sagte der Erzähler.
 
 „Ja.“
 
@@ -762,7 +712,19 @@ Sie ordneten sich um sie herum an, nicht eng, aber genau genug, dass jede Flucht
 
 „Ich habe beschlossen, meine Flucht großräumiger zu planen.“
 
-Der Erzähler sagte: „Das stimmt nicht, aber ich bewundere die Form.“
+„Das stimmt nicht, aber ich bewundere die Form.“
+
+Taron hatte es nicht laut gesagt. Er merkte es erst, als Brokk neben ihm den Kopf ein wenig drehte, nicht zu ihm, sondern in die Luft neben ihm, dorthin, wo für alle anderen nichts war.
+
+„Er hört zu“, sagte der Erzähler.
+
+„Wer?“
+
+„Der Hauptmann. Nicht dir. Mir.“
+
+Taron sah zur Seite. Brokk sah geradeaus. Es gab keinen Grund anzunehmen, dass er etwas gehört hatte, außer der Art, wie er nicht hinsah.
+
+Taron antwortete nicht mehr. Zum ersten Mal seit Grauwehr gab es niemanden, der ihm die Antworten vom Gesicht ablas, und er merkte, dass er das vermisste und zugleich froh darüber war. Manche Gespräche waren leichter, wenn sie im Kopf blieben. Andere wurden dort nur größer.
 
 Der Weg führte tiefer in das Grenzland.
 

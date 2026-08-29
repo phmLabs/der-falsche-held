@@ -18,7 +18,7 @@ Zwischen den Ranken lag nur Stein, Erde und Schatten.
 
 Oswin schob mit der Schwertscheide Ranken zur Seite. Dahinter kam ein niedriger Spalt im Stein zum Vorschein, gerade hoch genug für einen Zwerg, der seine Würde nicht brauchte, und für Menschen, die sich daran erinnern mussten, dass Würde in alten Geschichten selten überlebt.
 
-Elva ging in die Hocke und betrachtete den Boden.
+Taron ging in die Hocke. Das hatte er aus dem Stall: Wer wissen wollte, wer nachts am Zaun gewesen war, sah auf den Boden, nicht auf den Zaun.
 
 „Hier sind frische Spuren.“
 
@@ -26,17 +26,17 @@ Brokk sah hin.
 
 „Vargas Späher.“
 
-„Wie frisch?“ fragte Oswin.
+„Wie frisch?“, fragte Oswin.
 
 „Frischer als wir.“
 
 Taron sah den Spalt an. „Das heißt, jemand ist schon drin.“
 
-„Oder war drin“, sagte Elva.
+„Oder war drin“, sagte der Erzähler.
 
 „Ich mag deine Version weniger.“
 
-Der Erzähler sagte: „Beide Versionen haben bedauerlich viel Zukunft.“
+„Beide Versionen haben bedauerlich viel Zukunft.“
 
 Sie ließen die Pferde zwischen Fichten zurück. Tesk blieb mit seinem Knie bei ihnen, und Brokk stellte ihm einen zweiten dazu, damit das Knie nicht allein entscheiden musste. Kummer sah Taron nach, als habe er endgültig verstanden, dass Menschen stets zu den engsten, dunkelsten und unnötigsten Orten zurückkehrten, die sie finden konnten.
 
@@ -44,7 +44,7 @@ Taron hätte ihm gern widersprochen.
 
 Leider fehlten ihm Belege.
 
-Brokk verteilte die Lasten neu. Keine Deckenrollen, keine Satteltaschen, nichts, was an Stein hängenbleiben oder klappern konnte. Elva bekam eine kleine Lampe mit Hornscheiben. Oswin nahm eine zweite, obwohl er sie hielt, als sei Licht in geschlossenen Räumen eine Zumutung. Broda gab Taron einen kurzen Dolch in die Hand.
+Brokk verteilte die Lasten neu. Keine Deckenrollen, keine Satteltaschen, nichts, was an Stein hängenbleiben oder klappern konnte. Taron bekam eine kleine Lampe mit Hornscheiben. Das ehrte ihn kurz, bis er begriff, dass man dem Mann mit der Lampe am leichtesten folgen konnte. Oswin nahm eine zweite, obwohl er sie hielt, als sei Licht in geschlossenen Räumen eine Zumutung. Broda gab Taron einen kurzen Dolch in die Hand.
 
 „Kannst du damit umgehen?“
 
@@ -56,7 +56,7 @@ Taron betrachtete die Klinge. „Ich kann sie fallen lassen.“
 
 „Nicht deinen.“
 
-Taron steckte den Dolch an seinen Gürtel. Er hatte seit Tagen ein Messer bei sich, eigentlich ein kleines Küchenmesser aus Waldkirch, das Elva ihm in Grauwehr in die Hand gedrückt hatte. Es war besser zum Schneiden von Käse als zum Überleben. Dieser Dolch dagegen war schwerer, kürzer und ernst gemeint.
+Taron steckte den Dolch an seinen Gürtel. Er hatte seit Tagen ein Messer bei sich, eigentlich ein kleines Küchenmesser aus Waldkirch, das Elva ihm an der Gerbermauer in die Hand gedrückt hatte. Es war besser zum Schneiden von Käse als zum Überleben. Er trug es trotzdem so, dass er es spürte. Dieser Dolch dagegen war schwerer, kürzer und ernst gemeint.
 
 „Ich will ihn nicht benutzen müssen“, sagte Taron.
 
@@ -78,7 +78,7 @@ Der Spalt führte in einen schmalen Gang aus altem Bruchstein. Die ersten Schrit
 
 Nach wenigen Minuten verloren sie jedes Gefühl für Richtung.
 
-Oben war der Himmel grau gewesen, die Sonne irgendwo hinter Wolken, Varga irgendwo hinter ihnen. Unten gab es nur die Lampe vor Taron, die Schultern von Elva, den Geruch nach nassem Stein und den leisen Rhythmus von Brokks Leuten. Taron merkte, dass Zwerge in Tunneln anders gingen. Nicht nur sicherer. Anders. Sie setzten die Füße so, als hörten sie, was der Boden über den nächsten Schritt verriet.
+Oben war der Himmel grau gewesen, die Sonne irgendwo hinter Wolken, Varga irgendwo hinter ihnen. Unten gab es nur die Lampe in Tarons Hand, Oswins Rücken, den Geruch nach nassem Stein und den leisen Rhythmus von Brokks Leuten. Taron merkte, dass Zwerge in Tunneln anders gingen. Nicht nur sicherer. Anders. Sie setzten die Füße so, als hörten sie, was der Boden über den nächsten Schritt verriet.
 
 Er selbst trat in jede zweite Pfütze.
 
@@ -92,25 +92,17 @@ Beim dritten Mal sagte der Erzähler: „Vielleicht erkennt dich der Stein inzwi
 
 „Gewagte Drohung gegen jemanden ohne Füße.“
 
-Elva drehte sich kurz um. „Alles gut?“
+Taron wollte etwas Schlagfertiges antworten, kam auf einen rutschigen Stein und musste sich an der Wand abstützen. Niemand drehte sich um. Vor Waldkirch hätte er das für Rücksicht gehalten. Inzwischen wusste er, dass Zwerge unter der Erde nichts kommentierten, was nicht blutete.
 
-„Ja.“
+Die Wand unter seiner Hand war glatt. Zu glatt für Zufall.
 
-„Du machst das Gesicht.“
-
-„Welches?“
-
-„Das, mit dem du Gespräche verlierst, die niemand sonst hört.“
-
-Taron wollte widersprechen, kam aber auf einen rutschigen Stein und musste sich an der Wand abstützen. Elvas Blick reichte als Antwort.
-
-„Vor Waldkirch“, sagte Brokk.
+„Älter als eure Burg“, sagte Brokk, ohne sich umzudrehen, als hätte er gehört, wie Taron den Stein anfasste.
 
 „Das sagst du oft.“
 
 „Weil ihr Menschen gern so tut, als habe Geschichte mit euch begonnen.“
 
-Elva schnaubte leise. „In Waldkirch beginnt Geschichte meistens mit einem Priester, der eine Abschrift findet.“
+„In Waldkirch beginnt Geschichte meistens mit einem Priester, der eine Abschrift findet.“
 
 „Das ist noch schlimmer“, sagte Brokk.
 
@@ -124,7 +116,7 @@ Es war schwer zu erkennen, weil eine Straße unter der Erde vor allem wie ein Ga
 
 „Alle.“ Brokk ging weiter, ohne sich umzusehen. „Zwei Tagesmärsche von Riedwacht nach Ellingen, ohne Wetter, ohne Zoll und ohne dass jemand deine Ladung zählt. Menschen zahlten dafür.“
 
-Elva sah die Rinne an. „Zwerge haben Menschen unter der Erde reisen lassen?“
+Taron sah die Rinne an. „Zwerge haben Menschen unter der Erde reisen lassen?“
 
 „Wir haben sie zahlen lassen. Das ist bei uns fast dasselbe wie Freundschaft.“
 
@@ -139,10 +131,6 @@ Niemand sagte etwas dazu.
 Oswin sagte hinter ihnen: „Das kenne ich in menschlicher Fassung.“
 
 „Erzähl sie nicht“, sagte Brokk. „Ich habe heute genug.“
-
-„Niemand verteidigt gerade Abschriften“, sagte Taron.
-
-„Ich verteidige mich grundsätzlich früh.“
 
 Brokk blieb vor einer Wand stehen.
 
@@ -160,7 +148,7 @@ Oswin trat neben ihn. „Zwergisch?“
 
 „Auch.“
 
-Elva sah von einem zum anderen. „Das ist eine sehr unbequeme Antwort.“
+Taron fand, dass das eine sehr unbequeme Antwort war, und sagte es.
 
 Brokk nickte. „Gute Antworten sind oft unbequem, wenn sie lange vergraben waren.“
 
@@ -204,23 +192,21 @@ Brokk deutete nacheinander auf die Linien. „Zwerg. Mensch. Schutz.“
 
 „Natürlich nicht.“
 
-Elva trat näher. „Vielleicht ist das der Fehler. Alle glauben, die Schlüssel wären Besitz. Dabei sind es Aufgaben.“
+Taron sah weiter auf die Wand, und ein Gedanke kam, der ihm zu klug vorkam, um von ihm zu sein. Alle redeten von den Schlüsseln wie von Besitz. Rugar hatte einen. Er selbst trug einen unter dem Hemd. Zwei Reiche suchten den dritten. Aber an dieser Wand stand nichts von Haben. Da stand Tragen. Binden. Lösen. Bewahren.
 
-Brokk sah sie an.
+„Das sind keine Dinge“, sagte er laut. „Das sind Aufgaben.“
+
+Brokk sah ihn an.
 
 Oswin ebenfalls.
 
-Taron auch, hauptsächlich weil er gern zuerst klug gewesen wäre.
+„Was?“
 
-„Was?“, fragte Elva.
+„Nichts“, sagte Brokk. „Ich prüfe, ob das aus dir kam oder aus dem, mit dem du sprichst.“
 
-„Nichts“, sagte Taron. „Ich sammle nur gerade Gründe, dich nicht nach Waldkirch zurückzuschicken.“
+„Aus mir.“
 
-„Dafür bist du spät.“
-
-„Ich arbeite unter Druck.“
-
-„Du arbeitest nur unter Druck.“
+Brokk nickte langsam, als sei das die schlechtere und die bessere Nachricht zugleich.
 
 Weiter vorn gab Senn ein Zeichen.
 
@@ -232,7 +218,7 @@ Taron blieb stehen, bevor sein Fuß die Rinne erreichte. Das war für seine Verh
 
 Brokk kniete sich hin. „Alt.“
 
-„Gefährlich?“ fragte Elva.
+„Gefährlich?“, fragte Taron.
 
 „Alt ist unter der Erde selten harmlos.“
 
@@ -254,9 +240,9 @@ Taron sah ihn an. „Das waren sehr körpernahe Metallstangen.“
 
 „Ich bin gegen diese sprachliche Unterscheidung.“
 
-Elva hielt die Lampe höher. „Hier. An der Wand.“
+Er hob die Lampe, um die Stangen genauer zu sehen, und sah stattdessen die Wand daneben.
 
-Neben der Gabelung standen drei kleine Zeichen. Nicht leicht zu erkennen, weil Kalk darüber lag. Eines war ein Hammer, eines eine offene Hand, eines ein Vogel mit gesenktem Kopf. Kein prachtvoller Falke. Nur wenige eingeritzte Linien.
+Dort standen drei kleine Zeichen. Nicht leicht zu erkennen, weil Kalk darüber lag. Eines war ein Hammer, eines eine offene Hand, eines ein Vogel mit gesenktem Kopf. Kein prachtvoller Falke. Nur wenige eingeritzte Linien.
 
 Taron sah hin und spürte, wie sich etwas im Menschenschlüssel regte.
 
@@ -276,7 +262,7 @@ Taron nickte.
 
 Oswin sah auf die rechte Wand mit den Stangen. „Dann nehmen wir links.“
 
-„Du vertraust ihm?“ fragte Brokk.
+„Du vertraust ihm?“, fragte Brokk.
 
 „Nein“, sagte Oswin. „Ich vertraue der Falle.“
 
@@ -300,19 +286,19 @@ Brokk sah auf die Zeichen. „Die, die glaubte, Frieden müsse in Stein geschrie
 
 Senn begann, die Kammer abzugehen. Er zählte nicht laut, aber seine Lippen bewegten sich. Broda stand am Eingang und lauschte. Lorn blieb in Tarons Nähe, was Taron zuerst nett fand, bis er merkte, dass Lorn wahrscheinlich nur verhindern sollte, dass er versehentlich etwas Heiliges trat, öffnete oder beleidigte.
 
-Elva kniete sich neben die Asche. Sie nahm nichts hoch, sondern schob mit dem Messergriff vorsichtig eine Tonscherbe zur Seite.
+Taron kniete sich neben die Asche. Er nahm nichts hoch, sondern schob mit dem Griff des Küchenmessers vorsichtig eine Tonscherbe zur Seite. Unter der Asche kamen kleine Knochen zum Vorschein. Keine Menschenknochen. Fisch vielleicht. Ein paar verkohlte Kerne.
 
-„Hier wurde gekocht“, sagte sie.
+„Hier wurde gekocht“, sagte er.
 
-„In einer Eidstelle?“ fragte Taron.
+„In einer Eidstelle?“, fragte Oswin.
 
-„Menschen kochen überall, wenn sie lange genug bleiben.“
+„Menschen kochen überall, wenn sie lange genug bleiben.“ Taron hatte in Waldkirch Suppentöpfe an Orten gesehen, an denen laut Malchior niemals Suppe hätte stehen dürfen.
 
-Brokk sah zu ihr. „Und Zwerge auch.“
+Brokk sah zu ihm. „Zwerge auch.“
 
-Unter der Asche kamen kleine Knochen zum Vorschein. Keine Menschenknochen. Fisch vielleicht. Ein paar verkohlte Kerne. Taron hatte plötzlich ein Bild vor Augen: Leute, die hier unten saßen, nicht als Helden, nicht als Könige, sondern als Wachen. Müde. Hungrig. Einer hielt die Lampe, einer schrieb, einer rührte in einem Topf, während über ihnen Reiche Namen wechselten.
+Taron hatte plötzlich ein Bild vor Augen: Leute, die hier unten saßen, nicht als Helden, nicht als Könige, sondern als Wachen. Müde. Hungrig. Einer hielt die Lampe, einer schrieb, einer rührte in einem Topf, während über ihnen Reiche Namen wechselten.
 
-„Sie haben hier gelebt“, sagte Elva.
+„Sie haben hier gelebt“, sagte er.
 
 Brokk nickte. „Gewacht.“
 
@@ -330,9 +316,9 @@ Niemand lachte.
 
 Selbst der Erzähler gab nur ein leises „Hm“ von sich, das für seine Verhältnisse beinahe ehrfürchtig war.
 
-Elva hob die Lampe. „Hier fehlen Stücke.“
+Taron hob die Lampe. An der Wand fehlten Stücke.
 
-An der Wand waren einige Zeichen abgeschlagen. Nicht vom Alter. Die Kanten waren zu hart, zu bewusst. Jemand hatte Teile der Inschrift entfernt.
+Einige Zeichen waren abgeschlagen. Nicht vom Alter. Die Kanten waren zu hart, zu bewusst. Jemand hatte Teile der Inschrift entfernt.
 
 Oswin betrachtete den Boden. „Nicht neu.“
 
@@ -352,11 +338,13 @@ Oswins Gesicht verlor jede Bequemlichkeit.
 
 „Ja.“
 
-Elva sah ihn an. „Der Hunger.“
-
 Taron dachte an das Gewölbe unter der Burg. An den Geruch. An Krallen auf Stein. An den Moment, in dem sein Körper aufgegeben hatte und die Welt dennoch weiterging.
 
-„Merlan sagte, alte Wesen seien manchmal keine Monster“, sagte er.
+„Der Hunger“, sagte er.
+
+Niemand fragte, was er meinte. Oswin hatte die Geschichte gehört, Brokk offenbar eine ältere Fassung davon.
+
+„Merlan sagte, alte Wesen seien manchmal keine Monster“, sagte Taron.
 
 Brokk sah ihn scharf an. „Welcher Merlan?“
 
@@ -374,7 +362,7 @@ Brokk brummte. „Der mit den trockenen Händen.“
 
 Taron dachte an Malchior. An Abschriften. An Menschen, die unbequeme Worte lieber mit Siegeln beschwerten.
 
-„Und was lag unter Waldkirch?“, fragte Elva.
+„Und was lag unter Waldkirch?“, fragte er.
 
 Brokk trat zum Steinblock in der Mitte. „Nicht der Zwergenschlüssel. Den hatten wir. Unter Waldkirch liegt etwas, zu dem die Schlüssel gehören. Eine Eidstelle, größer als Riedwacht. Vielleicht das Schloss. Vielleicht nur ein Teil davon.“
 
@@ -428,15 +416,7 @@ Der Erzähler sagte leise: „Nicht hier.“
 
 Taron zog die Hand zurück. Sein Ärger über die halben Warnungen kam sofort, aber diesmal blieb er darunter. Er hatte den Klang in der Stimme gehört: keine Spielerei, keine kühle Freude am Unklaren. Eher ein alter Schmerz, der sich kurz gemeldet hatte und gleich wieder unter Regeln verschwand.
 
-Elva sah Taron an. „Was war?“
-
-„Er will nicht, dass wir hier herumprobieren.“
-
-„Dann probieren wir hier nicht herum.“
-
-„Du bist sehr schnell bereit, Stimmen in meinem Kopf zu gehorchen.“
-
-„Wenn sie dich davon abhalten, an alten Dämonenwänden herumzufummeln, ja.“
+Brokk sah, wie er die Hand zurückzog, und fragte nicht. Bei Niemand hatte er vermutlich gelernt, welche Fragen man einem Mann mit einer Stimme im Kopf nicht stellte.
 
 Ein Geräusch kam aus dem Gang hinter ihnen.
 
@@ -450,7 +430,7 @@ Nicht viele.
 
 Zu geordnet für Zufall.
 
-Brokk hob zwei Finger. Seine Leute bewegten sich ohne Worte an die Seiten der Kammer. Oswin stellte sich neben Taron, Elva hinter den Steinblock. Sie hielt ihr Küchenmesser tief, mit beiden Händen. Keine Heldengeste. Nur ein Griff, der nicht loslassen wollte.
+Brokk hob zwei Finger. Seine Leute bewegten sich ohne Worte an die Seiten der Kammer. Oswin stellte sich vor Taron. Taron stand hinter dem Steinblock und hielt Brodas Dolch tief, mit beiden Händen. Keine Heldengeste. Nur ein Griff, der nicht loslassen wollte.
 
 Ein Zwerg trat in den Eingang.
 
@@ -472,7 +452,7 @@ Brokk schloss kurz die Augen. Als er sie öffnete, war wieder der Hauptmann da.
 
 Taron hob eine Hand. „Ich finde die Formulierung weiterhin entwürdigend.“
 
-Elva sah ihn an. „Gerade?“
+„Gerade?“, fragte der Erzähler.
 
 „Gerade besonders.“
 
@@ -482,29 +462,29 @@ Oswin sagte: „Wie viele zwischen uns und draußen?“
 
 Brokk sah zur abgeschlagenen Wand. Dann zu Taron. Dann zu einer schmalen Öffnung hinter dem Steinblock.
 
-Vorher ging Elva noch einmal an die abgeschlagene Wand, aber sie legte die Hand nicht darauf.
+Vorher trat er noch einmal an die Wand und hob die Lampe, ohne den Stein zu berühren.
 
-„Ich kann sehen, wo etwas weg ist“, sagte sie.
+„Ich kann sehen, wo etwas weg ist“, sagte er.
 
 „Das können alle“, sagte Taron.
 
-„Nein.“ Sie zeigte, ohne zu berühren. „Hier. Der Abstand.“
+„Nein.“ Brokk zeigte, ohne zu berühren. „Hier. Der Abstand.“
 
-Brokk hob die Lampe.
+Taron sah hin und sah nur Stein.
 
-„Zeichen stehen gleichmäßig, wenn jemand sie mit Plan setzt“, sagte Elva. „Ich habe zwei Jahre Listen abgeschrieben. Wenn eine Zeile fehlt, sieht man es nicht an der Lücke, sondern daran, dass der Rest zu weit auseinandersteht.“
+„Wer Runen in Stein schlägt, teilt vorher die Wand“, sagte Brokk. „Ich habe das dreißig Jahre gemacht, bevor ich einen Stab bekam. Wenn eine Zeile fehlt, sieht man es nicht an der Lücke, sondern daran, dass der Rest zu weit auseinandersteht.“
 
-Sie fuhr mit dem Finger eine Handbreit über dem Stein entlang.
+Er fuhr mit dem Finger eine Handbreit über dem Stein entlang.
 
-„Hier fehlt nicht eine Sache. Hier fehlen vier.“
+„Hier fehlt nicht eine Sache. Hier fehlen vier. Drei kurze und eine lange. Die lange stand oben.“
 
-Brokk sah lange auf die Wand. „Vier?“
+„Und was oben steht?“
 
-„Drei kurze und eine lange.“ Elva richtete sich auf. „Die lange stand oben. Was oben steht, ist meistens die Bedingung.“
+„Ist meistens die Bedingung.“
 
-Der Erzähler sagte nichts, und Taron merkte, dass das inzwischen die genaueste Bestätigung war, die er bekam.
+Taron wartete auf einen Einwand aus seinem Kopf. Es kam keiner. Inzwischen war das die genaueste Bestätigung, die er bekam.
 
-„Dort.“
+Brokk deutete zur Öffnung hinter dem Steinblock. „Dort.“
 
 „Noch ein Loch?“, fragte Taron.
 
@@ -530,17 +510,13 @@ Lorn schluckte.
 
 Taron sah zu Brokk. Er hatte keine Ahnung, was man in einem solchen Moment sagen sollte. Dass es einem leid tat, war zu klein. Dass man sich selbst übergeben konnte, wäre ehrlicher gewesen.
 
-Oswin sagte leise: „Er lügt wahrscheinlich.“
+Er machte einen Schritt zum oberen Gang. Er wusste selbst nicht, ob er ihn ernst meinte.
 
-Brokk nickte. „Wahrscheinlich.“
+Oswins Hand lag auf seiner Schulter, bevor der zweite Schritt kam.
 
-„Aber nicht sicher.“
+„Wenn du jetzt hinaufgehst, nimmt er dich und tötet Krail trotzdem, sobald er hat, was er braucht.“
 
-„Nein.“
-
-Elva trat neben Taron. „Wenn du jetzt rausgehst, nimmt er dich und tötet Krail trotzdem, sobald er weiß, was er braucht.“
-
-Taron wollte fragen, woher sie das wusste. Dann erinnerte er sich daran, wie oft Menschen mit Macht in Waldkirch Versprechen gemacht hatten, während andere daneben Hunger hatten.
+Taron wollte fragen, woher Oswin das wusste. Dann fiel ihm ein, dass der Ritter sechsundachtzig Gründe hatte, solche Dinge zu wissen, und dass Menschen mit Macht in Waldkirch Versprechen gemacht hatten, während andere daneben hungerten. Er blieb stehen.
 
 Brokk hob die Stimme nicht. „Krail kennt seinen Eid.“
 
@@ -560,7 +536,7 @@ Brokk sah zu ihm. „Wenn ich zurückgehe, sterben mehr.“
 
 Lorns Stimme brach beinahe, aber er hielt sie. „Er weiß es auch.“
 
-Brokk schloss die eiserne Hand um den Stab. Dann duckte er sich in den Wasserlauf.
+Brokk schloss die eiserne Hand um den Stab. Dann duckte er sich zum Wasserlauf.
 
 „Weiter.“
 
@@ -588,11 +564,11 @@ Broda stand noch einen Atemzug. Dann steckte sie die Axt weg, was schlimmer auss
 
 Sie sagte auf dem ganzen weiteren Weg kein Wort. Viel später, in einem Hof voller Rauch, würde Taron sehen, wie sie einen verletzten Menschen aus dem Gedränge zog, und begreifen, dass sie in diesem Gang angefangen hatte.
 
-Elva kroch zuerst durch die Öffnung. Sie passte besser hindurch als Oswin, was niemand erwähnte, weil Oswin ein Schwert hatte und eine verletzte Würde mehr Platz brauchte als seine Schultern.
+Taron kroch zuerst durch die Öffnung. Brokk hatte es so entschieden: Wer gesucht wurde, ging vorn, wo ihn niemand von hinten wegziehen konnte. Taron passte besser hindurch als Oswin, was niemand erwähnte, weil Oswin ein Schwert hatte und eine verletzte Würde mehr Platz brauchte als seine Schultern.
 
-Taron folgte ihr.
+Oswin folgte ihm.
 
-Der Wasserlauf führte abwärts, eng und kalt. Nach wenigen Schritten waren seine Knie nass. Nach zehn hatte er aufgehört, über Würde nachzudenken. Hinter ihm schob sich Oswin durch den Stein, leise fluchend. Brokk kam als Letzter, nachdem seine Leute falsche Spuren in der Kammer verteilt hatten.
+Der Wasserlauf führte abwärts, eng und kalt. Nach wenigen Schritten waren Tarons Knie nass. Nach zehn hatte er aufgehört, über Würde nachzudenken. Hinter ihm schob sich Oswin durch den Stein, leise fluchend. Brokk kam als Letzter, nachdem seine Leute falsche Spuren in der Kammer verteilt hatten.
 
 Das Wasser wurde tiefer.
 
@@ -600,9 +576,9 @@ Zuerst bis zu den Knöcheln, dann bis zur Wade. Die Kälte zog durch Stiefel und
 
 Nach einer Weile hörte er auf, die Kälte zu spüren, und das war die schlechte Nachricht.
 
-Elva merkte es zuerst.
+Der Erzähler merkte es zuerst.
 
-„Sag etwas“, sagte sie nach vorn.
+„Sag etwas.“
 
 „Was denn?“
 
@@ -611,6 +587,10 @@ Elva merkte es zuerst.
 „Warum?“
 
 „Weil ich dann höre, wenn du langsamer wirst.“
+
+„Du sitzt in meinem Kopf. Du hörst alles.“
+
+„Ich höre, was du denkst. Das wird gerade langsamer. Also rede.“
 
 Also redete Taron. Er redete Unsinn, weil ihm nichts anderes einfiel: über Kummers Charakterfehler, über Malchiors Art, drei Wörter für ein Wort zu benutzen, über die Frage, ob man einen Zwergenschlüssel als Türöffner für eine Vorratskammer missbrauchen dürfe, wenn man wirklich Hunger habe.
 
@@ -626,31 +606,45 @@ Der Erzähler sagte: „Das war ein Scherz. Von einem Zwerg. Im Wasser. Ich noti
 
 „Ich behalte. Das ist billiger und schlechter.“
 
-Elva rief von vorn: „Zehn Schritte.“
+Die Lampe in Tarons Hand wurde kleiner. Er redete weiter. Irgendwann merkte er, dass er nur noch redete, wenn die Stimme „Zehn Schritte“ sagte, und dass sie es jedes Mal genau dann sagte, wenn seine Beine gerade beschlossen hatten, dass Stehenbleiben eine unterschätzte Überlebenskunst sei.
+
+„Zehn Schritte.“
 
 „Ich lebe.“
 
 „Weiter.“
 
-„Weiter“, sagte Oswin hinter ihm.
+„Weiter“, sagte Oswin hinter ihm, der nur die Hälfte hörte und die richtige Hälfte verstand.
 
-„Ich überlege gerade, ob Stehenbleiben eine unterschätzte Überlebenskunst ist.“
-
-„Nicht hier.“
-
-„Ihr habt sehr viele Ausnahmen.“
-
-Elva drehte sich vor ihm halb um. Ihre Lampe war fast aus. „Taron, wenn ich aus dieser Höhle wieder herauskomme, will ich nie wieder hören, dass Stallarbeit schlimm ist.“
-
-„Ich verspreche nichts, was meine zukünftige schlechte Laune einschränkt.“
-
-„Dann verspreche ich, dich daran zu erinnern.“
+Taron dachte an Elva, die in Waldkirch gerade vermutlich mit einem Eimer über den Hof ging und trockene Füße hatte. Er gönnte es ihr. Er gönnte es ihr sehr ungern.
 
 Der Gang wurde so niedrig, dass sie die letzten Meter kriechen mussten. Taron spürte den Dolch an seiner Seite, den Menschenschlüssel unter dem Hemd und die Rauchkugel im Beutel, und ließ alle drei, wo sie waren. In einem Gang, in dem man kaum atmen konnte, war Rauch kein Freund. Das hatte ihm niemand sagen müssen, und er war darauf beinahe stolz.
 
 Der Gang endete in einer niedrigen Höhle. Von oben fiel graues Licht durch einen Riss. Draußen musste der Abend beginnen. Wasser tropfte in eine flache Rinne und floss nach Süden.
 
-An der gegenüberliegenden Wand war ein Zeichen.
+Taron trat unter den Riss. Das Licht war zu schwach, um zu wärmen, aber es kam von oben, und das war nach diesem Tag Grund genug, den Kopf danach zu heben. Wasser tropfte ihm auf die Stirn. Hinter ihm wrang Oswin seinen Mantel aus, und Brokk stand am Eingang und hörte in den Gang zurück.
+
+„Warst du die ganze Zeit da?“, dachte Taron.
+
+„Wo sonst.“
+
+„Du warst leiser als sonst.“
+
+„Stein hört mit.“
+
+„Das ist keine Antwort.“
+
+„Es ist die, die ich habe.“ Der Erzähler machte eine Pause, die für ihn ungewöhnlich lang war. „Du bist nicht stehen geblieben. Im Wasser.“
+
+„Du hast mich reden lassen.“
+
+„Ich habe dich reden gehört. Das ist etwas anderes.“
+
+Taron wusste nicht, ob das Lob war. Bei dieser Stimme war Lob oft nur ein Vorwurf, der sich verlaufen hatte.
+
+Erst dann sah er die Wand gegenüber.
+
+Dort war ein Zeichen.
 
 Eine Hand.
 
@@ -670,8 +664,6 @@ Brokk sah zu dem Zeichen.
 
 „Der Schutzschlüssel liegt nicht in Karndorn. Nicht in Waldkirch. Er liegt zwischen beiden.“
 
-Elva trat neben Taron. „Natürlich.“
-
 „Fast eine Wegbeschreibung“, sagte Taron.
 
 Der Erzähler antwortete sehr leise. „Fast.“
@@ -680,9 +672,9 @@ Taron sah auf den dritten Strich. „Warum leuchtet der erst jetzt?“
 
 Brokk sagte: „Weil ein Schlüssel den anderen erkennt.“
 
-„Oder weil jemand will, dass wir weitergehen“, sagte Elva.
+„Oder weil jemand will, dass wir weitergehen.“
 
-Niemand widersprach.
+Taron hatte es gesagt, bevor er es zu Ende gedacht hatte. Niemand widersprach.
 
 Diesmal fühlte sich der fehlende Widerspruch nicht leer an. Jeder hatte genug eigene Gedanken.
 
@@ -692,7 +684,7 @@ Brokk kniete vor dem Zeichen und legte den Zwergenschlüssel nicht dazu. Er trug
 
 „Noch nicht drei“, sagte Brokk.
 
-Elva blickte in den südlichen Riss. „Und der dritte wartet dort?“
+Taron blickte in den südlichen Riss. „Und der dritte wartet dort?“
 
 Brokk sah zu der schwach leuchtenden Schutzspur. „Er wartet nicht. Er liegt.“
 
@@ -716,7 +708,7 @@ Oswin sah ihn an. „Dort gibt es keine Siedlung.“
 
 „Heute nicht.“
 
-„Was gab es dort?“ fragte Taron.
+„Was gab es dort?“, fragte Taron.
 
 Brokk sah auf das Zeichen, das schwach im Stein stand.
 
@@ -730,7 +722,7 @@ Brokk wandte sich zum Ausgang. „Eidgrund ist kein Ort für Banner. Kein Throns
 
 „Also der perfekte Ort für uns“, sagte Taron.
 
-Oswin zog den nassen Mantel von der Schulter. „Wie weit?“
+Oswin zog den nassen Mantel wieder über die Schulter. „Wie weit?“
 
 „Bei gutem Weg einen halben Tag.“
 
@@ -744,13 +736,13 @@ Taron sah zum schmalen Riss, durch den Wasser und graues Licht kamen. „Ich mö
 
 „Ich hatte trockene Füße.“
 
-Elva nahm Taron am Ärmel und zog ihn zur südlichen Öffnung. „Dann versuchen wir es diesmal mit mehr Leuten, die Nein sagen dürfen.“
+Er ging zur südlichen Öffnung, ohne dass ihn jemand am Ärmel zog. Das fiel ihm auf. Er hätte gern gesagt, dass es ihm nicht fehlte.
 
-Taron sah zu ihr.
+„Dann versuchen wir es diesmal mit mehr Leuten, die Nein sagen dürfen“, sagte er.
 
-Dann zu Oswin.
+Oswin sah ihn an.
 
-Dann zu Brokk.
+Dann Brokk.
 
 Die Gruppe wirkte nicht wie der Anfang eines Friedens.
 
