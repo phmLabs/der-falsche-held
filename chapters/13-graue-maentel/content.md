@@ -10,17 +10,9 @@ Taron wusste, dass das nicht episch war. Er hatte inzwischen genug über alte Ei
 
 „Wer außer dir redet hier?“
 
-„Das würdest du nicht verstehen“
+„Das würdest du nicht verstehen.“
 
 Oswin ritt neben ihm und sah aus, als könne er jede weitere Bemerkung zur Pferdehaltung körperlich spüren.
-
-„Wir brauchen zehn Dinge“, sagte er, ohne dass jemand gefragt hätte. „Ein Packpferd ist eines der weniger blutenden.“
-
-„Schön formuliert.“
-
-„Nein.“
-
-Der Erzähler fand, es habe etwas Karges gehabt. Taron gab ihm nicht recht, und der Erzähler erklärte, das sei der Zustand, in dem er am meisten sage. Oswin sah zu keinem von beiden. Das war seine Art, recht zu behalten, ohne Aufwand zu verschwenden.
 
 Sie ritten nach Südosten, weg von Waldkirch, weg vom direkten Weg nach Grauwehr und hin zu einer alten Straße, die auf keiner neueren Karte groß genug gezeichnet war, um wichtig zu wirken. Laut dem Königssiegel durften sie im Auftrag Waldkirchs reisen. Laut Taron bedeutete das, dass sie bei Bedarf Hilfe verlangen konnten. Laut Oswin bedeutete es vor allem, dass jeder, der lesen konnte, wusste, wen er vor sich hatte.
 
