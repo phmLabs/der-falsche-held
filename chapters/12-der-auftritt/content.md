@@ -490,15 +490,11 @@ Oswin kam mit den Pferden. Er sah Elva, dann das Siegel, dann den Weg nach Südo
 
 „Wir müssen fort.“
 
-„Warum?“, fragte Taron.
-
 Oswin deutete zurück zur Burg.
 
 Auf dem inneren Turm stieg ein schwarzer Vogel auf. Dann ein zweiter. Botenraben.
 
 „Malchior schreibt schneller, als du reitest.“
-
-Der Erzähler sagte: „Endlich ein Wettrennen, bei dem du nicht der langsamste Teilnehmer bist. Der Vogel gewinnt.“
 
 Taron stieg auf Kummer.
 
@@ -508,8 +504,6 @@ Elva kletterte hinter ihm auf, weil es kein drittes Pferd gab und weil Kummer in
 
 „Sprichst du mit dem Pferd oder mit mir?“, fragte Elva.
 
-„Ja.“
-
 Sie ritten los, diesmal nicht als Rückkehr.
 
 Als Aufbruch.
@@ -517,5 +511,3 @@ Als Aufbruch.
 Hinter ihnen lag Waldkirch, kleiner mit jedem Schritt und trotzdem schwer wie ein Stein in Tarons Rücken.
 
 Vor ihnen lag der Weg zum Schutzschlüssel.
-
-Und irgendwo zwischen beiden bewegten sich graue Mäntel.
