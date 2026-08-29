@@ -12,15 +12,11 @@ Taron wusste, dass das nicht episch war. Er hatte inzwischen genug über alte Ei
 
 „Das würdest du nicht verstehen.“
 
-Oswin ritt neben ihm und sah aus, als könne er jede weitere Bemerkung zur Pferdehaltung körperlich spüren.
+Oswin ritt neben ihm und sah aus, als könne er jede weitere Bemerkung zur Pferdebeladung körperlich spüren.
 
 Sie ritten nach Südosten, weg von Waldkirch, weg vom direkten Weg nach Grauwehr und hin zu einer alten Straße, die auf keiner neueren Karte groß genug gezeichnet war, um wichtig zu wirken. Laut dem Königssiegel durften sie im Auftrag Waldkirchs reisen. Laut Taron bedeutete das, dass sie bei Bedarf Hilfe verlangen konnten. Laut Oswin bedeutete es vor allem, dass jeder, der lesen konnte, wusste, wen er vor sich hatte.
 
 „Ein Siegel ist nützlich“, hatte der König gesagt.
-
-„Ein Ziel auf Wachs“, hatte Oswin danach gesagt.
-
-Beide hatten vermutlich recht. Taron hätte das gern gehasst, aber dafür war er zu müde.
 
 Der Menschenschlüssel lag unter seinem Hemd, das Reisesiegel im Beutel, die Rauchkugel getrennt davon in Leder gewickelt. Taron hatte die Dinge inzwischen so sorgfältig voneinander getrennt, als könne Ordnung verhindern, dass sie gemeinsam eine Katastrophe planten.
 
