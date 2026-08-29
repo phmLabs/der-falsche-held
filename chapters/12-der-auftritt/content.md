@@ -530,12 +530,6 @@ Das Pferd drehte den Kopf, sah, dass niemand hinter Taron aufkletterte, und atme
 
 Elva stand neben dem toten Dornbusch und hob nicht die Hand. Sie zog nur den Knoten am roten Tuch fester.
 
-„Praktische Leute bleiben, wo die Töpfe sind“, sagte der Erzähler. „Du wirst dich daran gewöhnen müssen, wieder nur mit mir zu reden.“
-
-„Ich habe nie aufgehört, mit dir zu reden.“
-
-„Doch. Seit Grauwehr. Es war sehr erholsam.“
-
 Sie ritten los, diesmal nicht als Rückkehr.
 
 Als Aufbruch.
