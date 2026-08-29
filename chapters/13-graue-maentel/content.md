@@ -16,7 +16,7 @@ Oswin ritt neben ihm und sah aus, als könne er jede weitere Bemerkung zur Pferd
 
 Sie ritten nach Südosten, weg von Waldkirch, weg vom direkten Weg nach Grauwehr und hin zu einer alten Straße, die auf keiner neueren Karte groß genug gezeichnet war, um wichtig zu wirken. Laut dem Königssiegel durften sie im Auftrag Waldkirchs reisen. Laut Taron bedeutete das, dass sie bei Bedarf Hilfe verlangen konnten. Laut Oswin bedeutete es vor allem, dass jeder, der lesen konnte, wusste, wen er vor sich hatte.
 
-„Ein Siegel ist nützlich“, hatte der König gesagt.
+„Ein Siegel ist nützlich“, hatte der König gesagt. Über den Schlüssel hatte er weniger gesagt und länger zum Tor gesehen.
 
 Der Menschenschlüssel lag unter seinem Hemd, das Reisesiegel im Beutel, die Rauchkugel getrennt davon in Leder gewickelt. Taron hatte die Dinge inzwischen so sorgfältig voneinander getrennt, als könne Ordnung verhindern, dass sie gemeinsam eine Katastrophe planten.
 

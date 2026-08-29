@@ -440,6 +440,20 @@ Taron dachte an den Mann unter der Maske. An Neral. An die Zisterne. An Oswins W
 
 Der König winkte den Vogt heran. „Ein Reisesiegel. Vorräte. Frische Verbände. Kein Reichseid.“
 
+Dann sah er auf Tarons Hand, die noch immer auf dem Hemd lag, dort, wo darunter der Schlüssel saß.
+
+„Und den nimmst du mit. Er gehört auf den Weg, nicht in eine Kammer.“
+
+Es klang groß. Der Hof nahm es so. Aber Albrechts Blick blieb nicht bei Taron. Er ging über die Köpfe hinweg zum Tor, zur Mauer, zu dem Loch im Pflaster, und kam erst zurück, als Greves Wort noch einmal durch den Hof gegangen war: Zwergentrupps.
+
+„Er hat Angst“, sagte der Erzähler.
+
+„Vor mir?“
+
+„Vor dem, was kommt, um zu holen, was du trägst. Ein König mit geflicktem Mantel möchte das nicht vor seinem Tor haben.“
+
+Taron verstand. Der Schlüssel durfte mit, weil Albrecht ihn nicht hier haben wollte. Das war keine Erlaubnis. Das war eine Bitte, die sich als Befehl verkleidet hatte.
+
 Malchior sagte: „Mein König.“
 
 Albrecht wandte sich ihm zu. „Nicht heute.“
